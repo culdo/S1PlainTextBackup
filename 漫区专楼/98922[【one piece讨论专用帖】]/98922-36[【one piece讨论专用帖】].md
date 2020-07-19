@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 12:02** 
+> ## **本文件最后更新于2020-07-19 22:01** 
 
 
 
@@ -335,19 +335,7 @@
 ####  Alkarlindil  
 ##### 52519#       发表于 2020-4-29 15:41
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247468&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-4-29 15:30</a>
-• 草帽团跟基德团开始潜入凯多的城堡
-
-• 如果飞六胞能找到凯多儿子，能有权利挑战「大看板」的位置
-
-• 凯 ...</blockquote>
-那不是自损实力...
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -486,16 +474,7 @@
 ####  韶华白首  
 ##### 52527#       发表于 2020-4-30 09:11
 
-
-
-
-贴吧的个人汉化不更新了
-
-腾讯的汉化真的别扭
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -573,19 +552,7 @@
 ####  韶华白首  
 ##### 52532#       发表于 2020-5-1 01:03
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47264694&amp;ptid=98922" target="_blank">被子十三 发表于 2020-4-30 23:44</a>
-
-我倒是觉得腾讯的翻译除了人名之外都挺顺畅的
-
-
-— from OnePlus ONEPLUS A6013, Android 10 of S1 ...</blockquote>
-就是人名别扭
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -866,13 +833,7 @@ PG ONE那个棘龙也是啊
 ####  拉菲尔神父  
 ##### 52547#       发表于 2020-5-9 22:10
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大汉化时代过于生草
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1053,15 +1014,7 @@ PG ONE那个棘龙也是啊
 ####  Alkarlindil  
 ##### 52558#       发表于 2020-5-10 12:09
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363756&amp;ptid=98922" target="_blank">frozenblood 发表于 2020-5-10 05:50</a>
-喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想要我的财宝吗（指二轮融资）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1070,16 +1023,7 @@ PG ONE那个棘龙也是啊
 ####  细雨湿流光  
 ##### 52559#       发表于 2020-5-10 12:16
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258256&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-4-30 13:16</a>
-
-凯多儿子名字：Yamato ，大和。</blockquote>
-难怪凯多这么想把基德海贼团的基拉认过来
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3635,13 +3579,7 @@ Numbers成员hatcha（暂译为“八查”）登场。（他的笑声是【hach
 ####  拉菲尔神父  
 ##### 52698#       发表于 2020-6-2 10:00
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皇副守门员过于生草
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7631,16 +7569,7 @@ boku，應該是個年輕人(切嗣：是嗎)</blockquote>海贼里的男角色�
 ####  波隆  
 ##### 52917#       发表于 2020-6-20 07:31
 
-
-
-
-按之前的套路的话，凯多一梯队肯定是三灾，六子基本算是中层干部
-
-套用明哥体系，三灾是扑克牌三人组，六子就是baby5硬汉老头自爆人这些级别的吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8344,14 +8273,7 @@ cao
 ####  yario  
 ##### 52956#       发表于 2020-6-30 17:53
 
-
-
-
-现在的消息  大和是妹子  千万别画女硬说男了。。。。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8557,14 +8479,7 @@ cao
 ####  yario  
 ##### 52967#       发表于 2020-7-2 12:17
 
-
-
-
-路飞后宫人数再加一，要成为后宫王的男人。。。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8659,18 +8574,7 @@ cao
 ####  yario  
 ##### 52973#       发表于 2020-7-2 12:38
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034655&amp;ptid=98922" target="_blank">梁皇无忌 发表于 2020-7-2 12:25</a>
-
-就不能是伪娘吗</blockquote>
-胸肌发达+尾田小框盖章。应该不会错了。
-
-女身男心
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9001,16 +8905,7 @@ op没啥身高歧视
 ####  yario  
 ##### 52991#       发表于 2020-7-2 14:02
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035278&amp;ptid=98922" target="_blank">周愚 发表于 2020-7-2 13:14</a>
-
-搞不好真是这样</blockquote>
-真相了？！
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10603,6 +10498,25 @@ ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 飞一般的YY| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10623,4 +10537,557 @@ ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/
 
 
 
-                              
+
+
+-----
+
+####  Player  
+##### 53074#       发表于 2020-7-7 12:13
+
+
+
+
+请问现在在哪里看漫画，不要腾讯的
+
+
+
+
+
+
+
+-----
+
+####  chais613  
+##### 53075#       发表于 2020-7-7 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101703&amp;ptid=98922" target="_blank">Player 发表于 2020-7-7 12:13</a>
+
+请问现在在哪里看漫画，不要腾讯的</blockquote>
+hupu
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53076#       发表于 2020-7-17 23:10
+
+
+
+
+大蛇被砍头了，不过我觉得应该会诈尸
+
+
+看起来堪十郎也被小菊砍了
+
+
+两皇还是合流了啊
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 53077#       发表于 2020-7-18 00:01
+
+
+
+
+大和这性格感觉很难阻止她上船啊，就和御田上白胡子船一样，这第十人定了？
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53078#       发表于 2020-7-18 00:06
+
+
+
+
+大和基本就是第10人了，草帽团里女性战力太弱了，未来打黑胡子团娜美和罗宾都没法对位九尾狐的，大和来了正好对上她。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 无所不黑| + 1|身高和实力基本上是代替女帝上船。。。.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 53079#       发表于 2020-7-18 00:38
+
+
+
+
+大蛇用了这么多笔墨描写，不可能就这样被凯多砍了，估计后面大蛇也会反水，可能还有起到重要作用。
+
+
+
+
+
+
+
+-----
+
+####  acejoe  
+##### 53080#       发表于 2020-7-18 00:58
+
+
+
+
+大蛇要砍八次头才会死
+
+
+
+
+
+
+
+-----
+
+####  管他三俗  
+##### 53081#       发表于 2020-7-18 02:28
+
+
+
+
+八歧大蛇总得打两下吧
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53082#       发表于 2020-7-18 03:43
+
+
+
+
+这么看加洛特没希望啦，残念
+
+
+估计打完这场以后毛皮族和和之国剩下的势力会以联军（或者伞下势力）形式加入草帽
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 53083#       发表于 2020-7-18 03:58
+
+
+
+
+会不会这一篇还是没有正面刚凯多，凯多大妈直接出海走了
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53084#       发表于 2020-7-18 06:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48139866&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-7-18 03:58</a>
+
+会不会这一篇还是没有正面刚凯多，凯多大妈直接出海走了</blockquote>
+那5年完结就不要想了，，（还剩几年？）
+
+
+我是不介意再等10年但是尾田大概撑不住
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53085#       发表于 2020-7-18 06:50
+
+
+
+
+七武海应该抓几个？证明海军新战力很强劲
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53086#       发表于 2020-7-18 10:24
+
+
+
+
+能被2年后超新星揍的科技熊，应该不是四皇担忧的武器。除非和平主义者数量比海贼杂鱼还要多一个数量级。这里我觉得留了个悬念，之后海军需要大规模战争的时候就会出现。
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 53087#       发表于 2020-7-18 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48138683&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-7-18 00:06</a>
+
+大和基本就是第10人了，草帽团里女性战力太弱了，未来打黑胡子团娜美和罗宾都没法对位九尾狐的，大和来了正 ...</blockquote>
+船上有两个娜美脸怎么分辨<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fdream923  
+##### 53088#       发表于 2020-7-18 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48141043&amp;ptid=98922" target="_blank">金鱼师父 发表于 2020-7-18 10:38</a>
+船上有两个娜美脸怎么分辨</blockquote>
+有个有角，一个没有
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 53089#       发表于 2020-7-18 22:44
+
+
+
+
+有没有日语达人，给讲解讲解“连成一片的大秘宝”有啥玄机？
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 53090#       发表于 2020-7-18 22:50
+
+
+
+
+御田的人气是一开始的低，出海后慢慢回升，到回来一看到老婆的样子提着刀去了是最高峰，然后就是莫名其妙的退让和莫名其妙的怂人气低了，顺带和之国本身人气也因为“啊我们其实可以打得过大和的但是为了和平不打”这样和御田一样的逻辑而掉到最低点了
+
+
+给人感觉就是尾田拼命给和之国和御田捧属性，但是必定输，于是就给人感觉特别傻逼
+
+
+
+
+
+
+
+-----
+
+####  x五更琉璃  
+##### 53091#       发表于 2020-7-19 00:21
+
+
+
+
+怎么人人都怕炸弹，明明连个鸟人都炸不掉，你武装色呢<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fdream923  
+##### 53092#       发表于 2020-7-19 06:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48147231&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-7-18 22:44</a>
+有没有日语达人，给讲解讲解“连成一片的大秘宝”有啥玄机？</blockquote>
+日文跟「one piece」一样具有各种含义，直译就是将分散东西连成一片，至于连的是什么，海洋？历史？D的意志？还是所有，只能猜了
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 53093#       发表于 2020-7-19 09:20
+
+
+
+
+关键是大和有没有果实能力？
+
+
+关系到凯多到底是吃了龙果实的人还是吃了人果实的龙。
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 53094#       发表于 2020-7-19 09:33
+
+
+
+
+大和的梦想是让和之国开国吧，大几率是大和在和之国等候约定之时，除非爆出什么猛料需要大和去亲眼见证OP
+
+—— 来自 samsung SM-G770F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  梦魇  
+##### 53095#       发表于 2020-7-19 09:50
+
+
+
+
+公开了？
+
+<img src="https://img.saraba1st.com/forum/202007/19/095025s7ll3rdxb3lvlhgs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7E33D0FA-E97C-4AEF-9353-216500BC88B9.jpeg</strong> (530.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-19 09:50 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/19/095023out7f4t57iu5jwcj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7C9B3568-8964-4942-AF80-3DE20DFD3CFA.jpeg</strong> (494.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-19 09:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53096#       发表于 2020-7-19 10:19
+
+
+
+
+凯多说，海军本部的新战斗力足以镇压皇团，这个是又拿到什么新玩具可以抵消掉地利嘛。到现在为止，路飞就算加上小马哥还是胜算很小。那么接下来海军会入场嘛。
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 53097#       发表于 2020-7-19 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149322&amp;ptid=98922" target="_blank">梦魇 发表于 2020-7-19 09:50</a>
+公开了？</blockquote>
+巴雷特这是彻底黑历史了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">剧场版里先揭露Laugh Tale，我还以为得到了尾田认可呢
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 53098#       发表于 2020-7-19 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48140027&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-07-18 06:50:06</a>
+七武海应该抓几个？证明海军新战力很强劲</blockquote>吧唧霸王色强运，鹰眼战力天花板之一，小白胡子属于新人物还有剧情线索待挖掘，怎么看都是女帝吃瘪，被天龙人再当一次rbq<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 53099#       发表于 2020-7-19 20:56
+
+
+
+
+又到了最喜欢的第十人时间了
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 53100#       发表于 2020-7-19 21:12
+
+
+
+
+对青鸡来说，和之国的瀑布天险完全不是个事啊。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53101#       发表于 2020-7-19 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149143&amp;ptid=98922" target="_blank">C男人 发表于 2020-7-19 09:20</a>
+
+关键是大和有没有果实能力？
+
+
+关系到凯多到底是吃了龙果实的人还是吃了人果实的龙。 ...</blockquote>
+凯多和他女儿的角就是祖传的东东咯？
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53102#       发表于 2020-7-19 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48154833&amp;ptid=98922" target="_blank">blueflames001 发表于 2020-7-19 20:56</a>
+
+又到了最喜欢的第十人时间了</blockquote>
+第十人甚平回来了呀。
+
+要是没有食言的话，故事还剩200-300话，即便有第11人，那么ta的可发展的空间很有限啊。只能作为战斗员，直奔最后的几场硬仗？
+
+
+
+
+
+                             
