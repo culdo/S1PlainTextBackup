@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-09 16:01** 
+> ## **本文件最后更新于2020-07-20 20:00** 
 
 
 
@@ -120,14 +120,7 @@
 ####  望上弦  
 ##### 1507#       发表于 2020-3-10 00:21
 
-
-
-
-这届q娃质量不行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -153,14 +146,7 @@
 ####  南风森琉璃  
 ##### 1509#       发表于 2020-3-10 09:10
 
-
-
-
-黄毛真是每一句话都凸显智商谷地的亚子。。。希望她的个人剧情来点新意吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2741,14 +2727,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 ####  南风森琉璃  
 ##### 1646#       发表于 2020-3-23 08:21
 
-
-
-
-下集作画好像会很好的样子，又是黄色亲女儿？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3064,16 +3043,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 ####  南风森琉璃  
 ##### 1661#       发表于 2020-3-26 07:52
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46873889&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-25 23:19</a>
-
-但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月…… ...</blockquote>
-哈哈哈哈哈哈没想到会是这展开
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3186,14 +3156,7 @@ Q娃连连看终于要停服了？</blockquote>
 ####  傲娇的章鱼  
 ##### 1668#       发表于 2020-3-27 00:57
 
-
-
-
-q娃消消乐很垃圾吗？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3370,7 +3333,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_u6Ete" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_e23sr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -3522,14 +3485,7 @@ MKTN…… ​​​​
 ####  傲娇的章鱼  
 ##### 1683#       发表于 2020-3-29 13:38
 
-
-
-
-十年了，串珠机幼女玩不腻吗？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4121,14 +4077,7 @@ MKTN…… ​​​​
 ####  傲娇的章鱼  
 ##### 1716#       发表于 2020-3-30 10:03
 
-
-
-
-别啊，挺想看正太和女主cp的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4401,14 +4350,7 @@ MKTN…… ​​​​
 ####  南风森琉璃  
 ##### 1731#       发表于 2020-4-1 07:56
 
-
-
-
-下话怎么看预告像要打阶段boss了？才第十话
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5156,7 +5098,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Sz2S0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_R24h7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -5532,14 +5474,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  南风森琉璃  
 ##### 1790#       发表于 2020-4-7 01:01
 
-
-
-
-神回。。。面对剧情撞车疫情stuff没有选择绕道走而是正面迎上，强啊！你说grace暗示安倍死保奥运我都要信了，而且之后深刻地反省了，强啊！
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5548,16 +5483,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  南风森琉璃  
 ##### 1791#       发表于 2020-4-7 01:04
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984349&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-4-5 18:21</a>
-
-作为团宠担当的粉主感觉很少见？</blockquote>
-公主的春春，拥抱的花都有这种性质，不过在公主之前确实没有？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5758,14 +5684,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  傲娇的章鱼  
 ##### 1801#       发表于 2020-4-8 22:18
 
-
-
-
-录音棚都关了，q娃是不是要停播了？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5808,14 +5727,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  傲娇的章鱼  
 ##### 1804#       发表于 2020-4-9 06:20
 
-
-
-
-光之美少女去和新冠病毒战斗了，所以暂时没办法拍动画片给大家看（确信）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6336,14 +6248,7 @@ BGM让我觉得我在玩RPG，
 ####  南风森琉璃  
 ##### 1833#       发表于 2020-4-13 23:16
 
-
-
-
-今年的振作嘴炮比较言之有物，但新外挂给得很突兀，有点令人失望
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7001,14 +6906,7 @@ cv：大原さやか 的感觉
 ####  傲娇的章鱼  
 ##### 1871#       发表于 2020-4-18 16:20
 
-
-
-
-超古代q娃（迪迦感）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7280,14 +7178,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  傲娇的章鱼  
 ##### 1884#       发表于 2020-4-19 08:50
 
-
-
-
-日向居然要知难而退了，历代q娃里有害怕而退出q娃的吗？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7407,13 +7298,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  傲娇的章鱼  
 ##### 1891#       发表于 2020-4-19 15:58
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一想到今年的q娃会受到疫情影响缩短集数改剧本就觉得好难过
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7678,14 +7563,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  傲娇的章鱼  
 ##### 1906#       发表于 2020-4-20 09:51
 
-
-
-
-我的心之花要枯萎了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7961,14 +7839,7 @@ Q娃拍了这么多年基本应该算的上 专有时段了吧 不播Q娃还能�
 ####  傲娇的章鱼  
 ##### 1921#       发表于 2020-4-20 16:25
 
-
-
-
-严重应该不会特别严重吧，应该不会到美国意大利的地步。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">诶，希望天佑日本
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8083,14 +7954,7 @@ mam
 ####  南风森琉璃  
 ##### 1928#       发表于 2020-4-21 01:05
 
-
-
-
-日向这是第一个因为敌人太强而想打退堂鼓的Q娃？前一个有印象的是微笑了，打boss之前想了一晚要不要缩
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8349,13 +8213,7 @@ mam
 ####  傲娇的章鱼  
 ##### 1943#       发表于 2020-4-26 20:33
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">和佳我想你啊啊啊啊
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8686,14 +8544,7 @@ q娃停了
 ####  傲娇的章鱼  
 ##### 1963#       发表于 2020-5-13 06:55
 
-
-
-
-日本快解封了吧。是不是能复播了？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9111,14 +8962,7 @@ M7「シェアして！プリキュア」
 ####  南风森琉璃  
 ##### 1982#       发表于 2020-5-25 07:53
 
-
-
-
-nice，停了几周来着，想她们了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10009,14 +9853,7 @@ test
 ####  傲娇的章鱼  
 ##### 2030#       发表于 2020-6-10 15:55
 
-
-
-
-今年q娃是不是就40集了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10331,14 +10168,7 @@ test
 ####  傲娇的章鱼  
 ##### 2047#       发表于 2020-6-17 15:39
 
-
-
-
-妈妈！！！！！！
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12650,14 +12480,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  傲娇的章鱼  
 ##### 2166#       发表于 2020-7-6 08:33
 
-
-
-
-感觉变健康是因为疫情改的剧本....
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13113,4 +12936,545 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 
 
 
-                          
+
+
+-----
+
+####  Sliurus  
+##### 2192#       发表于 2020-7-9 16:15
+
+
+
+
+延期到明年还行，秋季剧场版是不是没了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2193#       发表于 2020-7-9 16:15
+
+
+
+
+延期到明年还行，秋季剧场版是不是没了
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2194#       发表于 2020-7-9 18:57
+
+
+
+
+明年的Q娃被放弃了还是直接延续到明年？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2195#       发表于 2020-7-17 23:10
+
+
+
+
+今年专楼的热度太惨了，迎来神回的一周泥潭整顿了
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2196#       发表于 2020-7-17 23:21
+
+
+
+
+这粉主难受的样子，仿佛小日向未来被抓了一样
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2197#       发表于 2020-7-17 23:23
+
+
+
+
+终于跟上进度了，一次打三个那两集还挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2198#       发表于 2020-7-18 01:41
+
+
+
+
+总之追加马上就要登场了吧
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2199#       发表于 2020-7-18 11:56
+
+
+
+
+明天和doremi联动？
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2200#       发表于 2020-7-18 12:14
+
+
+
+
+还有宫本生孩子了 问题是她是2月宣布结婚的 现在7月生孩子 难道是奉子成婚
+今年ed1是齐藤唱 而ed2又换成了她 明显齐藤其实是给她顶班<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+历代来讲ed1 2换歌手来唱也很罕见
+无印没有换过ed
+gogo五周年搞出四合唱 这首ed2也用了三年了
+魔法和拥抱声优唱 ed2加了追加
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2201#       发表于 2020-7-18 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48141738&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-7-18 11:56</a>
+
+明天和doremi联动？</blockquote>
+可能性很大吧
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2202#       发表于 2020-7-18 16:12
+
+
+
+
+完全没有任何要联动的情报吧？
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2203#       发表于 2020-7-18 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48133677&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-07-09 18:57:57</a>
+明年的Q娃被放弃了还是直接延续到明年？</blockquote>东映英雄档三部都要改时间吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  spadepie  
+##### 2204#       发表于 2020-7-18 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48143962&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-7-18 16:16</a>
+
+东映英雄档三部都要改时间吧
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+saber还是9月放
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2205#       发表于 2020-7-18 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48145279&amp;ptid=1860852" target="_blank">spadepie 发表于 2020-7-18 18:59</a>
+
+saber还是9月放</blockquote>
+这01要变成第二个DCD了么
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2206#       发表于 2020-7-19 08:01
+
+
+
+
+硬广告
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1ggvy1gcht1j21hc0u0n6m.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2207#       发表于 2020-7-19 12:03
+
+
+
+
+果然是三角关系啊草，感觉好别扭啊
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2208#       发表于 2020-7-19 12:35
+
+
+
+
+看到有个性别不同的就肯定有问题
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2209#       发表于 2020-7-19 12:44
+
+
+
+
+联动就是一副海报，永远的友情结果是个三角恋，这集在闹啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2210#       发表于 2020-7-19 14:54
+
+
+
+
+这集挺不错，情感到位，节奏把握好
+
+什么友情大树，下面宣誓的都结婚了（两个老人，以及背景音的对话），这是纯爱gal的最终场景吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+下集知优回，老板娘造型<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+题外话，感觉今年同人图里三人一起的很多，还蛮罕见的
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2211#       发表于 2020-7-19 21:37
+
+
+
+
+道理我都懂
+<img src="http://wx4.sinaimg.cn/large/006wIUUEly1ggwlqsdba0j31660no4qp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 2212#       发表于 2020-7-19 23:00
+
+
+
+
+上周兔子回感觉和佳和兔子的关系比和其他两个人还亲，让我觉得兔子之后人形变追加都不奇怪，可惜偷跑情报是无情的
+
+我想看兔子变追加之后和佳变身bank改成双人牵手ver啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2213#       发表于 2020-7-19 23:12
+
+
+
+
+包子鼠的rap还挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+友情大树告别 结果来的都是结婚的……那么问题来了这主角组谁和谁会结婚呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 2214#       发表于 2020-7-19 23:25
+
+
+
+
+意思是不是说
+
+收了朋友卡也还有戏？
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2215#       发表于 2020-7-19 23:36
+
+
+
+
+这集是桃园结义？
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2216#       发表于 2020-7-20 00:55
+
+
+
+
+这集真的不是看了星q之后写出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2217#       发表于 2020-7-20 01:00
+
+
+
+
+看到开头就像肯定是老树发新芽结局，没想到直接宣布不治去开告别祭了，结果最后还是拐回老树发新芽了，这个脚本之前鬼太郎写过几话挺好看的我有记住他的名字
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2218#       发表于 2020-7-20 07:37
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-7-20 07:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48155903&amp;ptid=1860852" target="_blank">kirimori 发表于 2020-7-19 23:00</a>
+
+上周兔子回感觉和佳和兔子的关系比和其他两个人还亲，让我觉得兔子之后人形变追加都不奇怪，可惜偷跑情报是 ...</blockquote>
+说起来三人之间的互动的确比和各自的淫 兽（这词终于是敏 感词了）的互动少了点
+
+
+想当毛芙伦第二只有等剧场版了。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2219#       发表于 2020-7-20 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48156147&amp;ptid=1860852" target="_blank">wind4rap 发表于 2020-7-19 23:25</a>
+
+意思是不是说
+
+收了朋友卡也还有戏？</blockquote>
+这不是贵乱Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2220#       发表于 2020-7-20 14:37
+
+
+
+
+doremi的联动就这个 还不如不官宣 当一个小彩蛋德了 反对doremi剧场版也延了
+
+不过某些狗大友真是喜欢给菱川六花女士找伴
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2221#       发表于 2020-7-20 19:15
+
+
+
+
+蓝毛真是有故事的女人。一开始就说三个人不能见面是有原因的，后面看到两个人的戒指立马心有所悟。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2222#       发表于 2020-7-20 19:53
+
+
+
+<img src="http://wx4.sinaimg.cn/large/69559a0aly1ggxo21ey7aj20fq0fpwoc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
