@@ -153,9 +153,9 @@
   },
   {
     "id": "1336553",
-    "totalpage": 787,
+    "totalpage": 788,
     "title": "[『吹响吧！上低音号』专楼 剧场版上映中 3年生篇制作決定!]",
-    "lastedit": 1595304067,
+    "lastedit": 1595390464,
     "category": "漫区专楼",
     "active": true
   },
@@ -1049,9 +1049,9 @@
   },
   {
     "id": "1905029",
-    "totalpage": 112,
+    "totalpage": 113,
     "title": "[任天堂2020年第一次直面会病栋，还是继续明晚十点吧]",
-    "lastedit": 1595340080,
+    "lastedit": 1595390503,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5009,9 +5009,9 @@
   },
   {
     "id": "1910970",
-    "totalpage": 19,
-    "title": "[2020年同人小黄油专楼（7.6更新2本）]",
-    "lastedit": 1594130564,
+    "totalpage": 20,
+    "title": "[2020年同人小黄油专楼（7.19更新3本）]",
+    "lastedit": 1595390555,
     "category": "游戏区专楼",
     "active": true
   },
@@ -9517,7 +9517,7 @@
     "title": "[【炙热的我们】R1SE／SNH48／盘尼西林／SING／BlackAce／SiS／火少／声入…]",
     "lastedit": 1592791589,
     "category": "外野专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1938979",
@@ -10449,9 +10449,9 @@
   },
   {
     "id": "1941579",
-    "totalpage": 955,
+    "totalpage": 956,
     "title": "[【V10】虚拟YouTuber综合讨论楼欢迎回来]",
-    "lastedit": 1595354513,
+    "lastedit": 1595390609,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -12961,9 +12961,9 @@
   },
   {
     "id": "1945537",
-    "totalpage": 71,
+    "totalpage": 73,
     "title": "[【M12】神楽Mea(KaguraMea)真爱讨论楼（7月29日3D初发布）]",
-    "lastedit": 1595383670,
+    "lastedit": 1595390955,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -13165,7 +13165,7 @@
     "title": "[白人女子枪指黑人母女引来网络声讨，然而]",
     "lastedit": 1594001855,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1945656",
@@ -15193,9 +15193,9 @@
   },
   {
     "id": "1947477",
-    "totalpage": 14,
+    "totalpage": 15,
     "title": "[对马岛之鬼讨论帖]",
-    "lastedit": 1595384056,
+    "lastedit": 1595391186,
     "category": "游戏区专楼",
     "active": true
   },
@@ -15353,17 +15353,17 @@
   },
   {
     "id": "1949913",
-    "totalpage": 6,
+    "totalpage": 7,
     "title": "[为啥总有人认为无糖可乐是假的无糖？]",
-    "lastedit": 1595319269,
+    "lastedit": 1595391222,
     "category": "外野",
     "active": true
   },
   {
     "id": "1948099",
-    "totalpage": 9,
+    "totalpage": 10,
     "title": "[一直觉得高俅和林冲在林娘子事件上都表现得很蠢]",
-    "lastedit": 1595355166,
+    "lastedit": 1595391235,
     "category": "外野",
     "active": true
   },
@@ -15545,9 +15545,9 @@
   },
   {
     "id": "1950425",
-    "totalpage": 13,
+    "totalpage": 14,
     "title": "[【B12】VUP综合讨论专楼]",
-    "lastedit": 1595384134,
+    "lastedit": 1595391284,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -15577,9 +15577,9 @@
   },
   {
     "id": "1950442",
-    "totalpage": 5,
+    "totalpage": 6,
     "title": "[社畜“自愿”加班，小孩早产，公司不续聘]",
-    "lastedit": 1595384166,
+    "lastedit": 1595391297,
     "category": "外野",
     "active": true
   },
@@ -15733,6 +15733,22 @@
     "title": "[米奇王、姉体験女学寮还能水很久吧]",
     "lastedit": 1595384297,
     "category": "漫区",
+    "active": true
+  },
+  {
+    "id": "1947767",
+    "totalpage": 4,
+    "title": "[书到用时方恨少，求推书不要网文]",
+    "lastedit": 1595391327,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1950514",
+    "totalpage": 3,
+    "title": "[腾讯还是牛逼，把IGN中国也收了，多边形就职IGN中国总编..]",
+    "lastedit": 1595391332,
+    "category": "游戏区",
     "active": true
   }
 ]
