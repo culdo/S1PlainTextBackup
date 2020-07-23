@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-22 00:10** 
+> ## **本文件最后更新于2020-07-23 10:12** 
 
 
 
@@ -2175,4 +2175,397 @@ SYL 每天一次壶男我倒是没啥意见，毕竟现在看来就是额外的�
 
 
 
-                                             
+
+
+-----
+
+####  erer  
+##### 128#       发表于 2020-7-22 17:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你她娘的又来告知，我怕了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 129#       发表于 2020-7-22 18:26
+
+
+
+
+"実はついに"，从语境上，感觉会是偏好的消息，或者是很沙雕的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 130#       发表于 2020-7-22 18:45
+
+
+
+
+这个游戏看之前先调小音量吧，鬼叫夸要来了
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 131#       发表于 2020-7-22 18:55
+
+
+
+
+不是重大告知 基本就是图一乐的没什么好在意的
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 132#       发表于 2020-7-22 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来是告知一下养了猫
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 133#       发表于 2020-7-22 19:42
+
+
+
+
+其实...我养了个电子宠物<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 134#       发表于 2020-7-22 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">当然是补货了来通知大家买买买啦
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 135#       发表于 2020-7-22 19:55
+
+
+
+
+肯定是和久美子的母女联动时间定了啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 136#       发表于 2020-7-22 21:16
+
+
+
+
+gkdgkd 我听完事还要搬砖呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 137#       发表于 2020-7-22 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48187589&amp;ptid=1947500" target="_blank">hjcxiaowo 发表于 2020-7-22 21:16</a>
+
+gkdgkd 我听完事还要搬砖呢</blockquote>
+行 我给搞了 我搬砖去了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 138#       发表于 2020-7-22 21:23
+
+
+
+
+关了关了，我的耳朵不是用来受苦的。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 139#       发表于 2020-7-22 21:25
+
+
+
+
+叫小麦的雄猫，还晒猫了。
+
+太吵了
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 140#       发表于 2020-7-22 21:25
+
+
+
+
+耳膜疼死了，臭女人
+
+
+
+
+
+
+
+-----
+
+####  不知火六花  
+##### 141#       发表于 2020-7-22 21:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这，是回到哪去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">声音有够大的
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 142#       发表于 2020-7-22 21:27
+
+
+
+ 本帖最后由 离魂仙 于 2020-7-22 22:59 编辑 
+
+这毛好看。偷张图
+<img src="https://img.nga.178.com/attachments/mon_202007/22/-zue37Q5-9fsqZ1jT3cS10i-86.png" referrerpolicy="no-referrer">
+
+巧了，在下也正在苦心思索如何在书房引进一只不会啃我电线的毛
+
+如果夸宝，呃，如果久阿姨有什么心得的话，请务必在直播中分享一下
+
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 143#       发表于 2020-7-22 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">一时不知道酸谁，我也想养个猫
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 144#       发表于 2020-7-22 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">🐲了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 145#       发表于 2020-7-22 21:33
+
+
+
+
+夸之呼吸太草了
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 146#       发表于 2020-7-22 21:34
+
+
+
+
+这耳膜破坏直播能留下来看的大概都是真爱了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 147#       发表于 2020-7-22 21:56
+
+
+
+ 本帖最后由 nevp 于 2020-7-22 23:08 编辑 
+
+等等，第三张猫图里是不是看到了夸宝的手指
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 148#       发表于 2020-7-22 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">颜色不像是皮肤，就算抱着猫位置也对不上
+
+
+你这怎么搞的好像没见过凛子的手似的
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 149#       发表于 2020-7-22 23:01
+
+
+
+
+这颜色比起手指不如说更像丁丁，夸宝果然是个猛男<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 150#       发表于 2020-7-22 23:04
+
+
+
+
+草，就随便看了一眼感觉有几分像，回头仔细想想怕不是夸宝毕业之前都看不到哪怕奶油面包了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 151#       发表于 2020-7-23 09:12
+
+
+
+
+都是馋身子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            

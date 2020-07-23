@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-21 15:03** 
+> ## **本文件最后更新于2020-07-23 10:11** 
 
 
 
@@ -9,7 +9,7 @@
 
 
 
- 本帖最后由 zhangqq_010 于 2020-7-18 23:08 编辑 
+ 本帖最后由 zhangqq_010 于 2020-7-22 18:12 编辑 
 
 sucker punch的对马岛虽然大家期待并不是很大，但是佳作预期还是不少的
 
@@ -32,6 +32,9 @@ sucker punch的对马岛虽然大家期待并不是很大，但是佳作预期�
 
 
 最有趣的是包括fami通和ign日本都表示过赞许的设计风格，ucg毫不客气地给出了“充斥着浮夸的仪式感，更显其在文化内核上的薄弱"的看法
+
+<img src="http://img.nga.178.com/attachments/mon_202007/14/biQ5-2t5sZrT3cSqo-z3.jpg.medium.jpg" referrerpolicy="no-referrer">
+
 
 
 
@@ -56,6 +59,7 @@ sucker punch的对马岛虽然大家期待并不是很大，但是佳作预期�
 <img src="http://tvax4.sinaimg.cn/large/4363b495ly1ggvhzqtddcj21110kre81.jpg" referrerpolicy="no-referrer">
 
 <img src="http://tvax4.sinaimg.cn/large/4363b495ly1ggvi05aaxwj211c0kub29.jpg" referrerpolicy="no-referrer">
+
 
 
 
@@ -727,7 +731,7 @@ PTSD还行
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48148215&amp;ptid=1947710" target="_blank">zhangqq_010 发表于 2020-7-19 01:23</a></blockquote>
-<img src="https://p.sda1.dev/0/ead1055521f67bee84098b90addef053/捕获.JPG" id="aimg_LsMmv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ead1055521f67bee84098b90addef053/捕获.JPG" id="aimg_t9vwM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2563,4 +2567,343 @@ wait，伊苏8？<img src="https://static.saraba1st.com/image/smiley/face2017/10
 
 
 
-                                             
+
+
+-----
+
+####  hamartia  
+##### 133#       发表于 2020-7-22 11:49
+
+
+
+
+游戏机实用技术超过15年资历以上的编辑还有吗？
+
+我没有续订之前有丰富游戏经验的只剩纱迦和胜负师了
+
+
+
+
+
+
+
+-----
+
+####  xdescat01  
+##### 134#       发表于 2020-7-22 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48148262&amp;ptid=1947710" target="_blank">美風藍 发表于 2020-7-19 01:41</a>
+关键是这游戏日本人说味正，ucg说味不正，你们说听谁的
+
+—— 来自 HUAWEI CLT-AL01, Android 9上的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">日本人文化传承已经被美利坚打断了，黑船之后无日本，日本正统在精日
+
+
+
+
+
+
+
+-----
+
+####  倒影  
+##### 135#       发表于 2020-7-22 17:27
+
+
+
+
+欧美游戏坏！日本游戏好！
+啊，对马岛是美国人做的啊？这……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 136#       发表于 2020-7-22 17:30
+
+
+
+<blockquote>hamartia 发表于 2020-7-22 11:49
+游戏机实用技术超过15年资历以上的编辑还有吗？
+
+我没有续订之前有丰富游戏经验的只剩纱迦和胜负师了 ...</blockquote>
+这两个已经是管理层了，你不能指望什么稿子都由他们写，所以……
+
+
+
+
+
+
+
+-----
+
+####  看别人玩游戏  
+##### 137#       发表于 2020-7-22 17:57
+
+
+
+ 本帖最后由 看别人玩游戏 于 2020-7-22 17:58 编辑 
+
+拿这个游戏动不动往黑泽明上靠的，要么就是不怎么看黑泽明，要么就是云了几分钟，看了下风景。另外，游戏里的黑白模式纯粹是噱头而已…
+
+
+
+
+
+
+
+-----
+
+####  zhangqq_010  
+##### 138#         楼主| 发表于 2020-7-22 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185713&amp;ptid=1947710" target="_blank">看别人玩游戏 发表于 2020-7-22 17:57</a>
+
+拿这个游戏动不动往黑泽明上靠的，要么就是不怎么看黑泽明，要么就是云了几分钟，看了下风景。另外，游戏里 ...</blockquote>
+虽然说是噱头吧，大远景和动态还是有点那味儿的
+
+不过作为拍照模式的滤镜还是挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若菜  
+##### 139#       发表于 2020-7-22 18:45
+
+
+
+ 本帖最后由 若菜 于 2020-7-22 18:46 编辑 
+
+玩下来就是感觉UCG傻逼，想起来在他们淘宝买的东西还没评价，立刻打个差评去<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Harlaus  
+##### 140#       发表于 2020-7-22 19:00
+
+
+
+
+讨论焦点原来集中在美国人做日本故事
+
+可**当年做寂静岭也有类似的争议么
+
+
+
+
+
+
+
+-----
+
+####  nozomitech  
+##### 141#       发表于 2020-7-22 19:07
+
+
+
+
+居然还有人拿国内媒体评分当真的吗
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 142#       发表于 2020-7-22 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这一串回复跟ucg杀了你们马似的也挺弱智的。我寻思下面文字评价也挺准确的啊
+
+
+
+
+
+
+
+-----
+
+####  欠损  
+##### 143#       发表于 2020-7-22 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">UCG已经不纳入我的评分参考了，体验还行。
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 144#       发表于 2020-7-22 19:14
+
+
+
+<blockquote>白昼梦 发表于 2020-7-22 19:11
+你们这一串回复跟ucg杀了你们马似的也挺弱智的。我寻思下面文字评价也挺准确的啊 ...</blockquote>
+就跟选秀节目一样，你表演完了，评委说了一堆好话，然后按下X。
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 145#       发表于 2020-7-22 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48186421&amp;ptid=1947710" target="_blank">luowei_nowe 发表于 2020-7-22 19:14</a>
+
+就跟选秀节目一样，你表演完了，评委说了一堆好话，然后按下X。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以弱智唯评分论就完事了吗
+
+
+
+
+
+
+
+-----
+
+####  zag  
+##### 146#       发表于 2020-7-23 00:59
+
+
+
+
+实不相瞒，ign japan差不多也是这个意思
+
+
+
+
+
+
+
+-----
+
+####  zhangqq_010  
+##### 147#         楼主| 发表于 2020-7-23 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48189295&amp;ptid=1947710" target="_blank">zag 发表于 2020-7-23 00:59</a>
+实不相瞒，ign japan差不多也是这个意思</blockquote>
+问题始终不是评语，是评分和评价的不客气程度……
+
+—— 来自 LENOVO Lenovo TB-8703F, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ChrisSnake  
+##### 148#       发表于 2020-7-23 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48150475&amp;ptid=1947710" target="_blank">LucienLachance 发表于 2020-7-19 12:22</a>
+
+UCG怎么现在都剩下这些垃圾玩意
+
+
+TLOU2 抛开剧情是个9.5分的神作，算上剧情就是一坨屎，0分滚粗。MD我还买 ...</blockquote>
+抱歉 就算抛开剧情 你让我玩母猩猩我也下不了口
+
+
+
+
+
+
+
+-----
+
+####  大喇叭花田  
+##### 149#       发表于 2020-7-23 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48147430&amp;ptid=1947710" target="_blank">fault 发表于 2020-7-18 23:07</a>
+
+有没有比较专业的分析对马岛画面的视频，求指路。
+
+对马岛大白天的时候，整体的色调看着非常奇怪。。 ...</blockquote>
+日本那些海岛上阳光充足时就是这个感觉。
+
+
+
+
+
+
+
+-----
+
+####  大喇叭花田  
+##### 150#       发表于 2020-7-23 09:12
+
+
+
+
+看了UCG这个评测，我当时的感想是：哦，果然是这样，缝合怪罐头厂果然翻车了。
+
+
+实际玩到之后：**！差点错过如此神作，UCG四个妈。
+
+
+
+
+
+
+
+-----
+
+####  ybfelix  
+##### 151#       发表于 2020-7-23 10:09
+
+
+
+
+话说日本人自己有做高成本的这种历史设定动作冒险或者RPG游戏吗。我想起来日本做的这类似乎好多加了奇幻或者近乎奇幻元素。或者像武士道之刃这样设定在有直升机的现代的时空转换
+
+
+
+
+
+                                            
