@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-23 10:13** 
+> ## **本文件最后更新于2020-07-23 18:13** 
 
 
 
@@ -9,11 +9,13 @@
 
 
 
- 本帖最后由 mixtycomeon 于 2020-7-22 22:52 编辑 
+ 本帖最后由 mixtycomeon 于 2020-7-23 14:17 编辑 
 
     挑战时间：2020.07.21-08.20，如果中途不能自控则视为挑战失败，如果达成挑战，之后考虑再追加二阶段或者遵从欲望。因为并非主观能控制的，所以梦遗不会影响记录。我不是要搞什么戒色，平时性幻想照常不耽误，只是要靠意志力来克制施法行为。         主楼可能会记录一些挑战期间的生活琐事以及发情记录。可能会每天或者每几天更新一次。
 
 
+7月23日：
+办公场所重新装修完了，被科长抓走当苦力把东西搬回来，推了一上午的箱子，顺便帮几个大姐把电脑装好，有一个人的显示屏在之前的搬运时磕碎了，她高兴地和科长报了一台新显示器。一点多干完活身上的汗开始变黏，kimo。瞄了一眼我们科长脖子上也是汗，被汗水洇湿了的淡粉T恤背后透露出浅色的胸罩背带，好像和她像泥鳅一样黏在一起啊，想想她和别人聊天时说过最近在备孕就更兴奋了！啊不能再继续yy下去了，不然就要在公共场所勃起了。我要找个地方躺会。
 7月22日：
 
          运动量合计：罗马尼亚硬拉3组，俯身划船4组，坐姿划船4组，高位下拉4组，面拉4组，变速坡度走3公里，超人式3组。(走完之后把衣服上吸的汗全拧出来的时候还是挺爽的)
@@ -1299,11 +1301,12 @@ LZ期间去大保健算不算破戒？
 
 
 
+ 本帖最后由 yuzhaoping 于 2020-7-23 12:23 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170804&amp;ptid=1949984" target="_blank">黑丝后的腿毛 发表于 2020-7-21 08:35</a>
 出处啊
 
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
-画师是sanjuurou
+画师sanjuurou，作品secret X secret
 
 —— 来自 samsung SM-G9300, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
@@ -1335,12 +1338,24 @@ LZ期间去大保健算不算破戒？
 
 
 
+ 本帖最后由 阿福牛肉 于 2020-7-23 16:50 编辑 
 
 我也来借楼挑战。
 
 7月21号。Day 0。
 
 为了更好的完成挑战，今天回去先施法一次。
+
+
+7月22号。Day1.
+
+今天脑子一团浆糊，看到自己的复习进度又很慌张，实在提不起兴趣。
+
+
+7月23号。Day0.
+
+一个意外发生了，不小心看到了同事（一个元气**）侧漏了。画面会永远留在我脑海里的。晚上没忍住，用花与蛇系列作为施法材料了。
+
 
 
 
@@ -3270,8 +3285,12 @@ day 1
 
 
 
+ 本帖最后由 周处长 于 2020-7-23 10:49 编辑 
 
+7..22
 我也参战吧，今天早上施法，所以是day0
+7.23更新
+今天早上又施法，所以又是day0
 
 —— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
@@ -4436,4 +4455,693 @@ Day2
 
 
 
-                                         
+
+
+-----
+
+####  热风疾风  
+##### 244#       发表于 2020-7-23 10:52
+
+
+
+
+戒色吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1991, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  失落之翼  
+##### 245#       发表于 2020-7-23 10:58
+
+
+
+
+一般这种帖子不是骗涩图的么
+
+
+
+
+
+
+
+-----
+
+####  edenpenn  
+##### 246#       发表于 2020-7-23 11:25
+
+
+
+
+明天开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Eric_方歌阙  
+##### 247#       发表于 2020-7-23 11:26
+
+
+
+
+这几段妹子观察太草了，处男味溢出屏幕（无恶意
+
+
+
+
+
+
+
+-----
+
+####  Cirn09  
+##### 248#       发表于 2020-7-23 11:41
+
+
+
+
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向于周几冲，连续冲了几天
+
+缺点是统计以天单位，一天两发统计不到，也没法统计倾向于每天几点冲，
+
+应用是开源的，有兴趣的魔法师可以
+
+[https://github.com/iSoron/uhabits](https://github.com/iSoron/uhabits)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| claymorep| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Illidan  
+##### 249#       发表于 2020-7-23 11:42
+
+
+
+
+同样坚持2天了。
+
+31岁。工作也忙。
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 250#       发表于 2020-7-23 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48192102&amp;ptid=1949984" target="_blank">Cirn09 发表于 2020-7-23 11:41</a>
+
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向 ...</blockquote>
+感谢推荐，很好用
+
+
+
+
+
+
+
+-----
+
+####  便秘的猫  
+##### 251#       发表于 2020-7-23 13:00
+
+
+
+
+day9！
+
+
+
+
+
+
+
+-----
+
+####  6847651  
+##### 252#       发表于 2020-7-23 13:03
+
+
+
+
+后面写个finished老是以为今天失败到此为止的意思
+
+
+
+
+
+
+
+-----
+
+####  ikonon  
+##### 253#       发表于 2020-7-23 13:03
+
+
+
+
+day2
+
+
+
+
+
+
+
+-----
+
+####  狗没拿伞  
+##### 254#       发表于 2020-7-23 13:23
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  Thurston  
+##### 255#       发表于 2020-7-23 13:26
+
+
+
+ 本帖最后由 Thurston 于 2020-7-23 13:56 编辑 
+
+day0.
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  feb2  
+##### 256#       发表于 2020-7-23 13:38
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  相濡以沫  
+##### 257#       发表于 2020-7-23 13:41
+
+
+
+
+可恶，昨天没忍住，day0<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 258#       发表于 2020-7-23 13:48
+
+
+
+
+微博看了太多色图了，想冲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 259#       发表于 2020-7-23 13:50
+
+
+
+
+刷了下推就不行了day0<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 260#       发表于 2020-7-23 13:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 261#       发表于 2020-7-23 13:55
+
+
+
+
+别挑战了，弟弟它不爽了
+
+
+
+
+
+
+
+-----
+
+####  flypig361  
+##### 262#       发表于 2020-7-23 14:26
+
+
+
+
+day2.原本是day4,可惜晚上做梦了
+
+
+
+
+
+
+
+-----
+
+####  最爱大萌德  
+##### 263#       发表于 2020-7-23 14:29
+
+
+
+
+我傻了，搁这写小黄文呢？
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 264#       发表于 2020-7-23 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48189891&amp;ptid=1949984" target="_blank">lucac 发表于 2020-7-23 06:36</a>
+
+3/30</blockquote>
+3.5/30今天好难啊。。跑了5公里，还洗了冷水澡，希望能坚持到第4天
+
+
+
+
+
+
+
+-----
+
+####  6927LR  
+##### 265#       发表于 2020-7-23 15:03
+
+
+
+
+day 2
+
+
+
+
+
+
+
+-----
+
+####  长风难度  
+##### 266#       发表于 2020-7-23 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185658&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-22 17:52</a>
+
+day1</blockquote>
+day2
+
+
+
+
+
+
+
+-----
+
+####  曾博  
+##### 267#       发表于 2020-7-23 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48194039&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-23 15:05</a>
+
+day2</blockquote>
+你出来了？
+
+
+
+
+
+
+
+-----
+
+####  netplaying  
+##### 268#       发表于 2020-7-23 15:18
+
+
+
+
+禁欲可以有效改善熬夜后的恢复速度，然而。。。
+
+
+
+
+
+
+
+-----
+
+####  禽兽公爵  
+##### 269#       发表于 2020-7-23 15:57
+
+
+
+
+我四天没充了，昨天看了个本子非常色，到现在已经看了5遍那个本子，敢硬不敢射
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 270#       发表于 2020-7-23 16:18
+
+
+
+<blockquote>有妹是老婆 发表于 2020-7-22 16:54
+day0 
+
+。。。reset，今天冲了两发。明天开始，我一定要坚持7天</blockquote>
+day 1
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 271#       发表于 2020-7-23 16:25
+
+
+
+
+3/30
+
+感觉今晚就要0/30了
+
+
+
+
+
+
+
+-----
+
+####  阿垃垃圾历  
+##### 272#       发表于 2020-7-23 16:27
+
+
+
+
+day 0 昨晚上发现一部网飞的墨西哥剧 女主是真的骚 冲了两次
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 273#       发表于 2020-7-23 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48192102&amp;ptid=1949984" target="_blank">Cirn09 发表于 2020-7-23 11:41</a>
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">有个想法，这功能是不是能靠账本记账app实现……
+
+—— 来自 Xiaomi M2002J9E, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  花海境  
+##### 274#       发表于 2020-7-23 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48187858&amp;ptid=1949984" target="_blank">SpectatorA 发表于 2020-07-22 21:47:42</a>
+在强烈好奇心驱使下真买了个来体验一下。之前的猜测没错，这东西的原理主要是通过限制突出量让你无法完成 ...</blockquote>厉害厉害，我只是看漫画的时候会想想而已，不知道实战是什么样的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 275#       发表于 2020-7-23 17:26
+
+
+
+
+我怀疑你们想空手套涩图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/beb44592ly1gf80stbfx0g20ao0dcb2m.gif" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/beb44592ly1gflc0ujqm9g20dc0a0qvm.gif" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/beb44592ly1gcuj5mkmnrg20b40euqvc.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 276#       发表于 2020-7-23 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48193338&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-23 13:51</a>
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+这是什么游戏啊？太涩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不可说  
+##### 277#       发表于 2020-7-23 17:33
+
+
+
+
+搁这儿搞二进制呢？
+01010101010101
+
+—— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  南宫月汐  
+##### 278#       发表于 2020-7-23 17:35
+
+
+
+
+学学人家禁欲进行时
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SpectatorA  
+##### 279#       发表于 2020-7-23 17:43
+
+
+
+ 本帖最后由 SpectatorA 于 2020-7-23 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48195353&amp;ptid=1949984" target="_blank">花海境 发表于 2020-7-23 17:13</a>
+
+厉害厉害，我只是看漫画的时候会想想而已，不知道实战是什么样的
+
+
+  -- 来自 能看大图的 Stage1官方 Androi ...</blockquote>
+
+体验结论是这是个玩字母的时候攒大招加BUFF的道具。你拿它往相反的方向去用就会转化成纯粹的DEBUFF。夹得蛋疼还时不时一碰就硬，比单纯不管它不施法难受多了。因为你无法把注意力转移掉
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 280#       发表于 2020-7-23 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48195485&amp;ptid=1949984" target="_blank">RainbowSealife 发表于 2020-7-23 17:26</a>
+我怀疑你们想空手套涩图</blockquote>
+果然死或生5比6代好冲多了，光是汗水特效都要比6代好
+
+
+
+
+
+
+
+-----
+
+####  七音骨笛  
+##### 281#       发表于 2020-7-23 17:44
+
+
+
+
+day 2  忘了昨天冲了没（糟糕）
+
+
+
+
+
+                                        
