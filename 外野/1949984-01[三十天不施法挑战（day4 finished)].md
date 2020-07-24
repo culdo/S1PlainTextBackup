@@ -1,0 +1,6669 @@
+> ## **本文件最后更新于2020-07-25 00:11** 
+
+
+
+-----
+
+####  mixtycomeon  
+##### 1#       楼主       发表于 2020-7-20 22:29
+
+
+
+ 本帖最后由 mixtycomeon 于 2020-7-24 22:59 编辑 
+
+    挑战时间：2020.07.21-08.20，如果中途不能自控则视为挑战失败，如果达成挑战，之后考虑再追加二阶段或者遵从欲望。因为并非主观能控制的，所以梦遗不会影响记录。我不是要搞什么戒色，平时性幻想照常不耽误，只是要靠意志力来克制施法行为。         主楼可能会记录一些挑战期间的生活琐事以及发情记录。可能会每天或者每几天更新一次。
+
+
+7月24日: 
+         去好久没去的兰州牛肉面吃了份孜然牛肉炒面，嗝～。旁边烧烤店的服务员妹子笑起来真甜，脖子上有四颗痣，菱形排布。回去的路上被洒水车给洗了，还挺凉爽的。
+7月23日：         运动量合计：45.7公里骑行+办公室搬家         办公场所重新装修完了，被科长抓走当苦力把东西搬回来，推了一上午的箱子，顺便帮几个大姐把电脑装好，有一个人的显示屏在之前的搬运时磕碎了，她高兴地和科长报了一台新显示器。一点多干完活身上的汗开始变黏，kimo。瞄了一眼我们科长脖子上也是汗，被汗水洇湿了的淡粉T恤背后透露出浅色的胸罩背带，好像和她像泥鳅一样黏在一起啊，想想她和别人聊天时说过最近在备孕就更兴奋了！啊不能再继续yy下去了，不然就要在公共场所勃起了。我要找个地方躺会。
+
+         下班之后去看彗星(用双筒)，骑车去城郊的路上看到西北低空有薄云和水雾，略感担忧，好在今天彗星的高度较高，等云飘开还是有机会的，天黑前还得买瓶花露水，要不然会被虫子吃了。
+         找了一个水泡旁边的开阔地，视野不错，背离城市光源，但是要以肉身飨虫了。
+         20：10北斗七星用肉眼隐约可见。
+         20：50终于看到了！灰不溜秋的，有点糊，能分辨出头和尾。一晚上虫子没白喂。
+
+         又看了两次彗星之后，个人摸索的寻星经验是先顺着北斗七星找到天旋和玉台，彗星差不多就在玉台关于天旋的对称点上，也就差不多在大熊的前爪中间，感觉它头部的光点特别离散，不像恒星那么集中。
+         21：02看到一颗疑似人造卫星的天体，经过仙女座的位置。望远镜放下来的瞬间看到十多只蚊子在眼前飞，险些昏倒。
+         今晚十分开心，回家。
+
+7月22日：
+
+         运动量合计：罗马尼亚硬拉3组，俯身划船4组，坐姿划船4组，高位下拉4组，面拉4组，变速坡度走3公里，超人式3组。(走完之后把衣服上吸的汗全拧出来的时候还是挺爽的)
+
+         路边一个奶奶领着(外)孙女，小女孩在吃蛋挞，咬了两口脆边之后，直接把锡箔扔了，侧过脸把蛋挞往嘴里塞，奇怪的是这么小就扎了耳朵眼，戴了耳钉。
+
+         跑步机小姐姐的腿肉肉的好棒。（算了，不贴桂珍了，这楼处男浓度已经够高了，再贴又显得更恶心了。                  麦当劳等餐的时候听到旁边刚进来的一个甜美声音：“老公，你想吃哪个”，转过头看去是一名穿着淡蓝色碎花连衣裙、粉红色拖鞋、白色棉袜的娇小人妻，瓜子脸，腰线尽显。为什么还没喝到冰可乐我就感觉饱了呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，只好仓促地带走我的1+1。7月21日：
+
+         运动量合计：20公里晨骑，平板卧推5组，上斜3组，器械推上胸4组，飞鸟3组。
+
+         早起买了本地一家网红油炸糕，1块5一个，单论价钱非常划算。<img src="https://i.loli.net/2020/07/21/uVW63js8FpRBkbC.jpg" referrerpolicy="no-referrer">
+
+          公交车上，旁边站立着一对父女，女孩十五六岁年纪，齐颌短发，穿着浅橘色t恤和碎边牛仔短裤，女孩对男子说我今天出门防晒没涂匀，于是弯腰提踵，用手摩挲自己白皙的小腿，我偷瞄了一站，然后下车。
+
+          下午，坐公交去健身房的路上上来一对疑似姐妹的女孩子，都穿着白色t恤和蓝色短裤，矮个的看起来刚上高中，面带稚气，姐姐成熟一些，应该是大学生，身高和我一般，腿极长，大腿甚细甚白，感觉我用两只手应该能握住，面容有那种刚刚成熟的感觉，真是美好的青春气息。
+
+          现在是健身房的淡季，但仍然四处散发着雄性荷尔蒙的味道，练力量的三三两两，可以占着器械组间多休息一会而不用被旁人催促，健身房现在唯一能看的下眼的女性是一个私教，苹果脸，淡淡的腮红，胸也不是非常大，大概有D吧，穿着黑色的健身房的官t，十分宽松，身材并不是电视或者短视频里那种嘴里喊着“跟我一起做”的青春活力阳光动感美女型，腰臀比也就0.8吧，穿着粉白色健身短裤，膝盖上没有赘肉，一双白色跑步鞋和黄白色花边棉袜，不和人说话时永远是一副性冷淡脸，略带蔑视的眼神，仿佛对我说：你这个菜逼推一组60公斤还吼这么大声，人不知道以为你推120。小姐姐，我有罪，不知道多少次我在组间休息的时候拿你yy过，让我很快(并没有)就恢复了战斗力，好想把你顶墙上，从后面......对不起，我有罪，我要做下一组了。
+
+练完之后，我全身最疼的地方不是胸，也不是三头，是两天练的小腿，都怪我当时着急去和朋友吃烤肉就没好好拉伸，每次坐久了站起来小腿都像在抽筋，我要死了。
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------          信息补充：本人男，无信仰，相信科学和现代医学，偶尔宅，不肥但缩，二十后半大龄dt，过去十余年大概日均施法一次不辍，最频繁的的一次大概是一个晚上四次，曾经坚持不施法的最长记录大概有十天。对于外国人的那种不撸挑战一直是当乐子看的。至于为什么发到S1来，一方面是想做个见证，另一方就是内容因为和S1气质比较贴近。          一点不重要的起因：也说不上是心血来潮，昨天晚上看主播闲聊时候讲每个人都会有些不情愿做、不敢做的事，譬如不愿意吃芹菜、不愿意去戒烟、不敢去追求女神、不敢喝自己的尿、不敢脱离自己生活的群体等等，其实并非你真的不愿意，只是你觉得到回报不足以弥补付出的价，现在假如有人给你一百、一万、十万、一百万你还愿不愿意去尝试，听到此我就联想有什么能付出十万让我去挑战自己不愿意做的事，思来想去觉得三十天不施法是个对我来说既有挑战性又似乎能实现的事，而且不需要付出太多经济和时间成本。于是乎，我决定尝试一下。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| haarp| + 1|胸也不是非常大，大概有D吧|
+| S1APP君| + 3|给你点精神鼓励！|
+| 禽兽公爵| + 1|我最多7天，而且憋完后接下来7天会爆发.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 2#         楼主| 发表于 2020-7-20 22:29
+
+
+
+
+占楼
+
+
+
+
+
+
+
+-----
+
+####  斯勒恩鬼歌  
+##### 3#       发表于 2020-7-20 22:35
+
+
+
+
+谁来，下面开始上图。
+
+
+
+
+
+
+
+-----
+
+####  fqxufo  
+##### 4#       发表于 2020-7-20 22:36
+
+
+
+
+想骗瑟图就直接说嘛
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 5#         楼主| 发表于 2020-7-20 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48168246&amp;ptid=1949984" target="_blank">fqxufo 发表于 2020-7-20 22:36</a>
+
+想骗瑟图就直接说嘛</blockquote>
+还用的着骗么，直接打开欧金金的主贴列表。
+
+
+
+
+
+
+
+-----
+
+####  Lisylfn  
+##### 6#       发表于 2020-7-20 22:44
+
+
+
+
+day0
+day1
+day0
+day0
+
+
+
+
+
+
+
+-----
+
+####  萧拂雪  
+##### 7#       发表于 2020-7-20 22:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/20/224523tdd5yxfz1wf09caa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0C586A14288672E24CB81208953AB3F4.jpg</strong> (16.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-20 22:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KafuuEriri  
+##### 8#       发表于 2020-7-20 22:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二进制
+
+
+
+
+
+
+
+-----
+
+####  剑起苍斓  
+##### 9#       发表于 2020-7-20 22:47
+
+
+
+
+饱暖思淫欲，整天去搬砖回来就睡，也许能达成一个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 10#       发表于 2020-7-20 22:48
+
+
+
+
+兄弟有没有听说过自宫练剑？
+
+
+
+
+
+
+
+-----
+
+####  Cypher_96  
+##### 11#       发表于 2020-7-20 22:48
+
+
+
+
+我接受挑战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ruby的披风  
+##### 12#       发表于 2020-7-20 22:49
+
+
+
+
+你应该去A岛发<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xiaose123  
+##### 13#       发表于 2020-7-20 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 南+ a岛请
+
+
+
+
+
+
+
+-----
+
+####  摸噗  
+##### 14#       发表于 2020-7-20 22:52
+
+
+
+
+一个月<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 15#       发表于 2020-7-20 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本贴有望成为色图楼
+
+
+
+
+
+
+
+-----
+
+####  流放者卡尔  
+##### 16#       发表于 2020-7-20 22:54
+
+
+
+
+不施法但跟老婆那啥算不算施法？
+
+
+
+
+
+
+
+-----
+
+####  nukacolamania  
+##### 17#       发表于 2020-7-20 22:54
+
+
+
+<blockquote>其实并非你真的不愿意，只是你觉得到回报不足以弥补付出的价，现在假如有人给你一百、一万、十万、一百万你还愿不愿意去尝试</blockquote>
+正因为如此，才凸显出还没找到人给钱就先来自我挑战的傻X之处。
+
+
+----发送自 [motorola moto x4,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  苇原雪道  
+##### 18#       发表于 2020-7-20 23:01
+
+
+
+
+有请[@欧金金](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=461722) 
+
+
+
+
+
+
+
+-----
+
+####  Uaral  
+##### 19#       发表于 2020-7-20 23:03
+
+
+
+
+与楼主共勉！
+
+
+
+
+
+
+
+-----
+
+####  ikonon  
+##### 20#       发表于 2020-7-20 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  V5Style  
+##### 21#       发表于 2020-7-20 23:06
+
+
+
+<img src="https://p.sda1.dev/0/9b38537e98e93fa68cd905b7a0fec129/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  takitaki  
+##### 22#       发表于 2020-7-20 23:09
+
+
+
+
+day0
+
+day0
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  电话微波炉  
+##### 23#       发表于 2020-7-20 23:10
+
+
+
+
+你怎么不上南+呢，那里多得是戒撸的，day0 、day1、day 0 day1 0101010101010101
+
+
+
+
+
+
+
+-----
+
+####  Libitya  
+##### 24#       发表于 2020-7-20 23:13
+
+
+
+
+遵从你的本性<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zj884843  
+##### 25#       发表于 2020-7-20 23:15
+
+
+
+
+现在的和尚或者神父是不是还要守这个戒的
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 26#       发表于 2020-7-20 23:17
+
+
+
+
+有钱我就参加，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pliee  
+##### 27#       发表于 2020-7-20 23:18
+
+
+
+
+快进到梦遗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恨讨论  
+##### 28#       发表于 2020-7-20 23:22
+
+
+
+
+我也来 day1
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 29#       发表于 2020-7-20 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我8年前试过，在国内穷游，40天，一次都没撸过，也没什么感觉，但是一回到家马上开电脑打开万华镜撸了这辈子最爽的几发
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 30#       发表于 2020-7-20 23:25
+
+
+
+
+活到现在没施法过
+小黄书照看，小黄油照完，毫无影响
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  乘风除火  
+##### 31#       发表于 2020-7-20 23:30
+
+
+
+
+建议上贞操锁，钥匙由潭友保管，完成挑战后发起为期一天的投票，潭友投同意票过三分之二方可返还钥匙，失败则进入下一个三十日封闭期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  茜茜...  
+##### 32#       发表于 2020-7-20 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2872e1ec9eda90f4a23d0a9c79b2befd/IMG_3B41B14F7C4D5E5589A70BFBE8E13B7D.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Illidan  
+##### 33#       发表于 2020-7-20 23:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我也来试试看好了
+
+
+
+
+
+
+
+-----
+
+####  cqx7133  
+##### 34#       发表于 2020-7-20 23:51
+
+
+
+
+楼主，本人从未自渎过，看到不少人认为无法戒除，这辈子也不准备尝试。因而好奇问问，自渎是有过一次便会不由自主的重复，还是仅在特定条件下（例如成人内容）才会激发的条件反射？
+
+
+
+
+
+
+
+-----
+
+####  潮汕枪手叶国欢  
+##### 35#       发表于 2020-7-20 23:52
+
+
+
+
+戒X吧老哥？？？
+
+
+
+
+
+
+
+-----
+
+####  eva099  
+##### 36#       发表于 2020-7-20 23:53
+
+
+
+
+你需要个贞操锁
+
+
+
+
+
+
+
+-----
+
+####  ghsakv  
+##### 37#       发表于 2020-7-20 23:54
+
+
+
+
+我真的完成过一个月不施法，然而并没有什么卵用，所以我选择继续施法<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我就再氪一单  
+##### 38#       发表于 2020-7-21 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">经验之谈
+996忙得回家倒头就睡肯定能完成这挑战
+
+毕业第一份工作第一年夏天789仨月都忙得886，十一空下来久违施法了一次<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">量大到有点后悔没准备个套套套上
+人生中仅有的两次对量的估计严重不足
+
+剩下一次是第一次
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OVTVO| + 1|你，背叛了处男阶级😭|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  一只优越Fa♂  
+##### 39#       发表于 2020-7-21 00:02
+
+
+
+ 本帖最后由 一只优越Fa♂ 于 2020-7-21 00:03 编辑 
+
+试过了，一星期开始失眠，两星期精力充沛。解放时空落落地感觉少了什么……
+
+
+
+
+
+
+
+-----
+
+####  北卡厨王  
+##### 40#       发表于 2020-7-21 00:02
+
+
+
+
+说起来当年大一，宿舍上下铺不好弄，加上学校各种事，真就一学期没る过
+
+
+
+
+
+
+
+-----
+
+####  last_order  
+##### 41#       发表于 2020-7-21 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169367&amp;ptid=1949984" target="_blank">北卡厨王 发表于 2020-7-21 00:02</a>
+
+说起来当年大一，宿舍上下铺不好弄，加上学校各种事，真就一学期没る过</blockquote>
+跑个题，我在学五十音的时候也是用撸来记忆る的，然后る完就ろ了，当时感觉自己是个变态<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 周处长| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  承尘  
+##### 42#       发表于 2020-7-21 00:15
+
+
+
+
+快进到归零<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无敌大法师  
+##### 43#       发表于 2020-7-21 00:16
+
+
+
+
+暑假快开始了
+有点难
+我先挑战下10天吧
+
+
+
+
+
+
+
+-----
+
+####  saybestty  
+##### 44#       发表于 2020-7-21 00:18
+
+
+
+
+最近头发掉的有点多，需要克制下欲望<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">day1打卡
+
+
+
+
+
+
+
+-----
+
+####  z曾晓明  
+##### 45#       发表于 2020-7-21 00:25
+
+
+
+
+颇有一股a岛风格(つд⊂)
+
+
+
+
+
+
+
+-----
+
+####  爱尔米娜  
+##### 46#       发表于 2020-7-21 01:12
+
+
+
+
+LZ期间去大保健算不算破戒？
+
+
+
+
+
+
+
+-----
+
+####  一个好名字  
+##### 47#       发表于 2020-7-21 01:16
+
+
+
+
+以前也从来不施法，自从玩了股票……<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rslika  
+##### 48#       发表于 2020-7-21 01:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二进制戒撸
+
+—— 来自 blackshark SHARK KLE-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cwlo  
+##### 49#       发表于 2020-7-21 01:57
+
+
+
+
+太难了，闲着没事做就想施法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  runningch  
+##### 50#       发表于 2020-7-21 02:04
+
+
+
+
+战马<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  小月亮李再含  
+##### 51#       发表于 2020-7-21 02:06
+
+
+
+
+经验之谈，吃肉就戒不了撸，所以怪不得和尚要戒荤腥。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  聚散浮云  
+##### 52#       发表于 2020-7-21 02:13
+
+
+
+
+关键是达成了也没什么意义啊，你还不如搞个每天100个俯卧撑挑战
+
+
+
+
+
+
+
+-----
+
+####  LChicken  
+##### 53#       发表于 2020-7-21 02:25
+
+
+
+
+说起喝尿，昨天发生一件事
+
+我以前只喝过自己的，没尝过别人的。昨天和女朋友斗嘴，她说要撒尿给我喝，我说你敢尿我就敢喝
+
+于是我躺在瑜伽垫上，她裤子一拔坐我脸上，憋了半天尿不出，回头喝点水接着来
+
+人体部位经验欠佳，她连自己peehole张哪里都搞不清，以为坐我脑袋正中间就能飞流直下三千尺
+
+结果是向前喷射给我来了个免费洗头，我还要把嘴接过去才尝到一点
+
+很咸的味道，倒是没有我自己尿那么浓的尿骚味和苦涩味
+
+光线不好，晚上用瑜伽垫的时候一脚踩上去才发现还有一摊一直没擦掉
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 完先生| + 1||
+| saevey| + 1|不愧是你|
+| 卢比扬卡大饭店| + 1|不愧是你|
+| cxc666| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  草化木  
+##### 54#       发表于 2020-7-21 02:28
+
+
+
+
+相当久以前也做过这种事呐，现在看来是外力抑制需求，反而会提高预期，所以总是失败<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">如果坛里老哥所说30+魔法师衰退效应存在的话，推测我会自然而然地经历一个“啊我悟了”的过程？
+
+
+有本书这么说：凡事要反过来想。为什么不制定一个30天施法挑战，不同的载体、题材、器具，信息时代的财富像是专门为你准备的礼物，想象力的边界可以尽情打开，助你修行……咳咳，接受原力的黑暗面吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| claymorep| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 55#       发表于 2020-7-21 02:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如挑战每天EX10分钟 一个月不撸
+
+
+
+
+
+
+
+-----
+
+####  cxc666  
+##### 56#       发表于 2020-7-21 05:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170084&amp;ptid=1949984" target="_blank">LChicken 发表于 2020-7-21 02:25</a>
+说起喝尿，昨天发生一件事
+
+我以前只喝过自己的，没尝过别人的。昨天和女朋友斗嘴，她说要撒尿给我喝，我说 ...</blockquote>
+会玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  深渊魔王  
+##### 57#       发表于 2020-7-21 06:17
+
+
+
+
+三十天算啥，坚持100天试试
+
+
+
+
+
+
+
+-----
+
+####  AraTurambar  
+##### 58#       发表于 2020-7-21 06:32
+
+
+
+
+30天太容易了。
+
+
+我一有重大事件就戒施法祈福，结果找工作那次戒了三个多月。
+
+
+然后就基本戒掉了，现在运动量上来之后连想法都很少了。
+
+
+
+
+
+
+
+-----
+
+####  tt173  
+##### 59#       发表于 2020-7-21 06:59
+
+
+
+
+所以说这帖不是资源收集共享帖？
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 60#         楼主| 发表于 2020-7-21 07:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169240&amp;ptid=1949984" target="_blank">cqx7133 发表于 2020-7-20 23:51</a>
+
+楼主，本人从未自渎过，看到不少人认为无法戒除，这辈子也不准备尝试。因而好奇问问，自渎是有过一次便会不 ...</blockquote>
+不能说是完全由外界刺激引发，个人经验是：在一定心理压力下，你的大脑有选择性地去诱导你接触sq内容来刺激自己让你开始本能释放。有时候自己动手的感觉不如在梦遗带来的真实感强。
+
+
+
+
+
+
+
+-----
+
+####  Corruptwing  
+##### 61#       发表于 2020-7-21 07:08
+
+
+
+
+戒了两个半月的电子设备，电脑手机电视收音机什么都没有，身边的电器除了手表就只剩电灯了，甚至报纸杂志都没得看
+
+没素材管也没得撸
+
+然而也没什么特别的戒断反应，就那么普通过了两个半月
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 62#         楼主| 发表于 2020-7-21 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170050&amp;ptid=1949984" target="_blank">聚散浮云 发表于 2020-7-21 02:13</a>
+
+关键是达成了也没什么意义啊，你还不如搞个每天100个俯卧撑挑战</blockquote>
+是没什么意义，无法就是一个对个人意志力的测试而已。而且对我来说每天做一百个俯卧撑的挑战性比这个低太多。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 63#         楼主| 发表于 2020-7-21 07:25
+
+
+
+ 本帖最后由 mixtycomeon 于 2020-7-21 07:34 编辑 
+
+暂且先用爱萝莉吧。
+话说大家有推荐的稳定的图床么？不要新浪微博。
+
+
+
+
+
+
+
+-----
+
+####  fuochai  
+##### 64#       发表于 2020-7-21 08:18
+
+
+
+
+7月4日
+
+新开这本日记，也为了督促自己下个学期多下些苦功。先要读完手边的莎士比亚的《亨利八世》……
+
+7月13日
+
+打牌。
+
+7月14日
+
+打牌。
+
+7月15日
+
+打牌。
+
+7月16日
+
+胡适之啊胡适之！你怎么能如此堕落！先前订下的学习计划你都忘了吗？ 子曰：“吾日三省吾身。”……不能再这样下去了！
+
+7月17日
+
+打牌。
+
+7月18日
+
+打牌。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑丝后的腿毛  
+##### 65#       发表于 2020-7-21 08:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169089&amp;ptid=1949984" target="_blank">茜茜... 发表于 2020-07-20 23:37:09</a></blockquote>出处啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 66#       发表于 2020-7-21 08:43
+
+
+
+
+快进到归零<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuzhaoping  
+##### 67#       发表于 2020-7-21 09:15
+
+
+
+ 本帖最后由 yuzhaoping 于 2020-7-23 12:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170804&amp;ptid=1949984" target="_blank">黑丝后的腿毛 发表于 2020-7-21 08:35</a>
+出处啊
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+画师sanjuurou，作品secret X secret
+
+—— 来自 samsung SM-G9300, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 68#       发表于 2020-7-21 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚好我也戒撸，一起自勉！day2！
+
+
+
+
+
+
+
+-----
+
+####  阿福牛肉  
+##### 69#       发表于 2020-7-21 09:35
+
+
+
+ 本帖最后由 阿福牛肉 于 2020-7-23 16:50 编辑 
+
+我也来借楼挑战。
+
+7月21号。Day 0。
+
+为了更好的完成挑战，今天回去先施法一次。
+
+
+7月22号。Day1.
+
+今天脑子一团浆糊，看到自己的复习进度又很慌张，实在提不起兴趣。
+
+
+7月23号。Day0.
+
+一个意外发生了，不小心看到了同事（一个元气**）侧漏了。画面会永远留在我脑海里的。晚上没忍住，用花与蛇系列作为施法材料了。
+
+
+
+
+
+
+
+
+-----
+
+####  Feena  
+##### 70#       发表于 2020-7-21 09:38
+
+
+
+
+打卡
+
+
+
+
+
+
+
+-----
+
+####  kevnmo  
+##### 71#       发表于 2020-7-21 09:42
+
+
+
+
+楼主加油吧。作为女性，我自己都忍不住这么久不手贱，虽然只是听听同人音声（声音大于视觉刺激）的程度，但每周末的夜晚就会忍不住追求那一瞬间的愉悦（？）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 苇原雪道| + 1|礼求交|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  quinaeus  
+##### 72#       发表于 2020-7-21 09:42
+
+
+
+
+跟着挑战一下，7月21日，Day 0
+
+
+
+
+
+
+
+-----
+
+####  雀巢学生奶粉  
+##### 73#       发表于 2020-7-21 09:44
+
+
+
+
+你们戒色吧的人没有自己的贴吧么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  长风难度  
+##### 74#       发表于 2020-7-21 09:47
+
+
+
+
+借贴一用，2020年7月21日 day0
+
+
+
+
+
+
+
+-----
+
+####  第三类  
+##### 75#       发表于 2020-7-21 09:47
+
+
+
+
+不理解，不施法还要梦遗，你不嫌烦啊？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  泥菩萨过江  
+##### 76#       发表于 2020-7-21 09:49
+
+
+
+
+个人最长记录：28岁那年戒了57天
+
+
+
+
+
+
+
+-----
+
+####  朔方原的星MK.2  
+##### 77#       发表于 2020-7-21 09:49
+
+
+
+
+主要取决于有没有事做
+有事忙的话晚上倒头就睡毛线心思都没有
+没事做根本不可能板得住
+
+
+
+
+
+
+
+-----
+
+####  d-scher  
+##### 78#       发表于 2020-7-21 09:49
+
+
+
+
+戒色吧老哥入住爱撕衣啦！
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 79#         楼主| 发表于 2020-7-21 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171435&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-21 09:47</a>
+借贴一用，2020年7月21日 day0</blockquote>
+你滚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 80#       发表于 2020-7-21 09:51
+
+
+
+
+我也来，明天肛周脓肿手术，住院一周应该是不能也没兴致去撸了，就是一周后出院，看看能不能忍住。6年级学会撸，高考结束那年我做包皮手术，戴着环伤口还没愈合，都忍不住要撸，从那之后再也没想过戒撸这件事了。
+
+
+
+
+
+
+
+-----
+
+####  libratest  
+##### 81#       发表于 2020-7-21 09:52
+
+
+
+
+0101010101000000
+
+
+
+
+
+
+
+-----
+
+####  新北產業園區  
+##### 82#       发表于 2020-7-21 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171435&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-21 09:47</a>
+
+借贴一用，2020年7月21日 day0</blockquote>
+你怎么也出现了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ei_baka  
+##### 83#       发表于 2020-7-21 09:58
+
+
+
+
+day1→**管理，好色哦→day0<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 84#       发表于 2020-7-21 09:59
+
+
+
+
+发色图助楼主修行！
+
+
+
+
+
+
+
+-----
+
+####  wtyrambo  
+##### 85#       发表于 2020-7-21 10:00
+
+
+
+
+day1
+
+day0
+
+day0
+
+day0
+
+day0
+
+day0
+
+day0
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cl776  
+##### 86#       发表于 2020-7-21 10:04
+
+
+
+
+媳妇下个月底预产期，丈母娘已经过来住了，月嫂也准备过来。
+
+我预计必须能坚持个100来天吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  maouzhkami  
+##### 87#       发表于 2020-7-21 10:17
+
+
+
+
+撸管有害记忆力！开戒！
+
+
+
+
+
+
+
+-----
+
+####  woid1  
+##### 88#       发表于 2020-7-21 10:20
+
+
+
+[@欧金金](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=461722)
+
+
+
+
+
+
+
+-----
+
+####  流放者卡尔  
+##### 89#       发表于 2020-7-21 10:35
+
+
+
+<blockquote>cl776 发表于 2020-7-21 10:04
+媳妇下个月底预产期，丈母娘已经过来住了，月嫂也准备过来。
+
+我预计必须能坚持个100来天吧 ...</blockquote>
+你**焚身，猴急难忍的时候，你爱人会给你口的……真实经验
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 90#       发表于 2020-7-21 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171748&amp;ptid=1949984" target="_blank">woid1 发表于 2020-7-21 10:20</a>
+
+@欧金金</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要不把这楼当做瑟图更新楼好了
+
+
+
+
+
+
+
+-----
+
+####  这不科学  
+##### 91#       发表于 2020-7-21 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那LZ意思是，20号这天已经冲了？？发帖时间应该是贤者TIME
+
+
+
+
+
+
+
+-----
+
+####  聚散浮云  
+##### 92#       发表于 2020-7-21 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170489&amp;ptid=1949984" target="_blank">mixtycomeon 发表于 2020-7-21 07:11</a>
+
+是没什么意义，无法就是一个对个人意志力的测试而已。而且对我来说每天做一百个俯卧撑的挑战性比这个低太 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那不如搞个有意义还能锻炼意志力的，学点什么一直坚持不下去的这种
+
+
+
+
+
+
+
+-----
+
+####  天心  
+##### 93#       发表于 2020-7-21 10:50
+
+
+
+
+以前备战毕业论文和毕业考试的时候坚持了一个多月，后来考完放飞自我真的爽，还记得看的是NTR2<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  出轨的三头龙  
+##### 94#       发表于 2020-7-21 10:50
+
+
+
+
+那还不如30天每日有氧40分钟
+
+
+
+
+
+
+
+-----
+
+####  万花谷杂役  
+##### 95#       发表于 2020-7-21 10:54
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  摸噗  
+##### 96#       发表于 2020-7-21 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48168498&amp;ptid=1949984" target="_blank">摸噗 发表于 2020-07-20 22:52:47</a>
+一个月</blockquote>day0<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| masakahaha| + 1|欢乐多|
+| 牙与三角形| + 1|好评加鹅|
+| 希望之异热同心| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  台球论坛网友  
+##### 97#       发表于 2020-7-21 10:58
+
+
+
+
+所以30天后你们会集体社保高呼爽快嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 98#         楼主| 发表于 2020-7-21 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171988&amp;ptid=1949984" target="_blank">聚散浮云 发表于 2020-7-21 10:46</a>
+
+那不如搞个有意义还能锻炼意志力的，学点什么一直坚持不下去的这种 ...</blockquote>
+一开始就说了，这个没什么经济和时间成本，而且又适合发在这里。
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 99#         楼主| 发表于 2020-7-21 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171967&amp;ptid=1949984" target="_blank">这不科学 发表于 2020-7-21 10:44</a>
+
+那LZ意思是，20号这天已经冲了？？发帖时间应该是贤者TIME</blockquote>
+发帖时候其实已经快冷却好了差不多。
+
+
+
+
+
+
+
+-----
+
+####  帕林马哲理  
+##### 100#       发表于 2020-7-21 13:56
+
+
+
+
+最长的一次完全没有X生活还是二十一岁，忙的半年都没ML，搞得大概十天就要遗精一次。三十天对健康其实没什么好处的。
+
+
+
+
+
+
+
+-----
+
+####  睡不醒的虾米  
+##### 101#       发表于 2020-7-21 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171941&amp;ptid=1949984" target="_blank">欧金金 发表于 2020-07-21 10:41:48</a>
+要不把这楼当做瑟图更新楼好了</blockquote>毕竟欧金金也不是什么恶魔！
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  糖醋里脊和果子  
+##### 102#       发表于 2020-7-21 14:30
+
+
+
+
+半夜起来洗澡洗**不累吗…
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 103#       发表于 2020-7-21 14:32
+
+
+
+
+借贴一用，2020年7月21日 day0
+
+
+
+
+
+
+
+-----
+
+####  Gazzz  
+##### 104#       发表于 2020-7-21 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169007&amp;ptid=1949984" target="_blank">乘风除火 发表于 2020-7-20 23:30</a>
+
+建议上贞操锁，钥匙由潭友保管，完成挑战后发起为期一天的投票，潭友投同意票过三分之二方可返还钥匙，失败 ...</blockquote>
+这不等于变相宣判无期童贞了么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  grantliu  
+##### 105#       发表于 2020-7-21 14:45
+
+
+
+
+占楼等图
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 106#       发表于 2020-7-21 14:55
+
+
+
+
+30天，2020年7月21日 day0
+
+
+
+
+
+
+
+-----
+
+####  忘川、  
+##### 107#       发表于 2020-7-21 15:00
+
+
+
+
+2020年7月21日 day0
+
+
+
+
+
+
+
+-----
+
+####  Hqchan  
+##### 108#       发表于 2020-7-21 15:06
+
+
+
+
+估计我人生一大遗憾会是没梦遗过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔子大战ntr  
+##### 109#       发表于 2020-7-21 15:07
+
+
+
+
+长时间不撸加遗精少的话会的前列腺炎的
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 110#         楼主| 发表于 2020-7-21 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48174866&amp;ptid=1949984" target="_blank">Hqchan 发表于 2020-7-21 15:06</a>
+
+估计我人生一大遗憾会是没梦遗过</blockquote>
+个人经验感觉一周以上不撸的话还是很容易遗的
+
+
+
+
+
+
+
+-----
+
+####  嘤嘤嘤QAQ  
+##### 111#       发表于 2020-7-21 15:25
+
+
+
+
+归零归零归归归归归归归归归零
+
+
+
+
+
+
+
+-----
+
+####  cedric301  
+##### 112#       发表于 2020-7-21 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171941&amp;ptid=1949984" target="_blank">欧金金 发表于 2020-7-21 10:41</a>
+要不把这楼当做瑟图更新楼好了</blockquote>
+资瓷
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 113#       发表于 2020-7-21 15:53
+
+
+
+
+借个楼 day0
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 114#       发表于 2020-7-21 15:53
+
+
+
+
+借个楼 day0
+
+
+
+
+
+
+
+-----
+
+####  你听得到  
+##### 115#       发表于 2020-7-21 16:04
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  天之叢云  
+##### 116#       发表于 2020-7-21 16:07
+
+
+
+
+打..打什么卡,0000
+
+
+
+
+
+
+BTraphen - 翔鶴(アズールレーン) (83088521) .jpg
+(719.44 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-7-21 16:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/21/160717bntn88zqpgrqgmy8.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cing  
+##### 117#       发表于 2020-7-21 16:09
+
+
+
+
+快进到失败，其实一个月还好啦一会会就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  拉菲露  
+##### 118#       发表于 2020-7-21 16:31
+
+
+
+
+十。。。。十万哪里领？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CANKIL  
+##### 119#       发表于 2020-7-21 16:35
+
+
+
+
+手冲就像泡面，泡面几天不吃就特别想吃，连续换着口味吃了几天后就感觉腻了，然后循环；手冲几天不冲就特别想冲，连续换着题材冲了几天后就贤者时间，然后循环。
+
+
+
+
+
+
+
+-----
+
+####  cqx7133  
+##### 120#       发表于 2020-7-21 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48170480&amp;ptid=1949984" target="_blank">mixtycomeon 发表于 2020-7-21 07:07</a>
+
+不能说是完全由外界刺激引发，个人经验是：在一定心理压力下，你的大脑有选择性地去诱导你接触sq内容来刺 ...</blockquote>
+既然自渎与成人内容强相关，那么，停止接触成人内容效果如何，如果成人内容难戒除，或许可以每次起意就故意看一些讨厌的人，例如丑肥黑或男人？
+
+
+
+
+
+
+
+-----
+
+####  朔方原的星MK.2  
+##### 121#       发表于 2020-7-21 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48175801&amp;ptid=1949984" target="_blank">cqx7133 发表于 2020-7-21 16:41</a>
+既然自渎与成人内容强相关，那么，停止接触成人内容效果如何，如果成人内容难戒除，或许可以每次起意就故 ...</blockquote>
+去戒色吧，他们专业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小姜不辣  
+##### 122#       发表于 2020-7-21 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48175801&amp;ptid=1949984" target="_blank">cqx7133 发表于 2020-7-21 16:41</a>
+既然自渎与成人内容强相关，那么，停止接触成人内容效果如何，如果成人内容难戒除，或许可以每次起意就故 ...</blockquote>
+被掰弯或者触发了奇怪的xp怎么办？
+
+
+
+
+
+
+
+-----
+
+####  莱茵哈鲁特  
+##### 123#       发表于 2020-7-21 17:16
+
+
+
+
+这个油炸糕看着不错啊。来个地址
+
+
+
+
+
+
+
+-----
+
+####  长风难度  
+##### 124#       发表于 2020-7-21 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171435&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-21 09:47</a>
+
+借贴一用，2020年7月21日 day0</blockquote>
+挑战失败，重新挑战，2020年7月21日17点21分 day0
+
+
+
+
+
+
+
+-----
+
+####  95jiuwu  
+##### 125#       发表于 2020-7-21 17:24
+
+
+
+
+看到现在才见到几张色图，实在是失望，<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  quinaeus  
+##### 126#       发表于 2020-7-21 17:42
+
+
+
+<blockquote>mixtycomeon 发表于 2020-7-21 15:18
+个人经验感觉一周以上不撸的话还是很容易遗的</blockquote>
+我高三坚持了一年没撸，但是也从来没梦遗过😂
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 127#         楼主| 发表于 2020-7-21 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48175801&amp;ptid=1949984" target="_blank">cqx7133 发表于 2020-7-21 16:41</a>
+既然自渎与成人内容强相关，那么，停止接触成人内容效果如何，如果成人内容难戒除，或许可以每次起意就故 ...</blockquote>
+以我个人经验和浅薄的知识水平来理解，更像是一种你的大脑下意识地一步一步引导你靠近它需要的材料并悄悄地保存下来。我下面用拙劣的描写来试图说明这件事。
+登上上班的公交车前你买了一份报纸，你在后排坐下后拿了出来，本来只想看下你喜爱的球队的昨晚的比赛结果，你快速地翻过了前面的社会新闻和政策解读板块，就在你马上要看到期待已久的球队大胜的新闻的时候，你的目光不由自主地被养生保健板块右下角用加粗黑体字写着壮阳强根、固本培元的广告图所吸引，那是一幅穿着略有暴露的家居服的男女卧室起居图，男性的睡衣敞开着露出隆起胸肌的内缘，女性的身位比男性低一个头，服服帖帖地搂着男性的腰，睡衣的第二枚口子似扣非扣，仰着头望向男方，眼神透露出渴望，你迅速地翻过了这一页，你并不是一个gay也十分清楚刚刚那幅仅注视了一秒画面暗示了什么，你只是不想让坐在你公交邻座的女士发现你在看这么不入流的内容，你心满意足地得知了球队点球绝杀的消息后，慢慢地将报纸合上望向窗外，听到公交报站你得知还有下一站该下车了，你坐直准备起身，旁边的女士看到后正要侧身为你让路时，一阵风吹了进来，风卷起报纸的一边，露出了那张让你尴尬的广告，你装作不经意地夹了下报纸，然后迅速地移动到了后门。
+上面整段时间里发生的事远不止这些，，但是你的大脑将它不需要的信息素材堆到了更大更深的仓库，而所有第二人称都是由你大脑主动筛选留下来，将它们放到了一个可以随时提用的快速仓库。后面的整天里这些内容随时会在不经意间调用出来，不断回味，直到你吃过晚饭后的某个时刻爆发出来。
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jiangmaomao123| + 1|yysy qs|
+| cqx7133| + 1|嗯，戒除时间一长，看什么都会联想sq内容.|
+| Booorunestud| + 1|day1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  saybestty  
+##### 128#       发表于 2020-7-21 18:20
+
+
+
+
+Day2 打卡
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 129#       发表于 2020-7-21 18:23
+
+
+
+
+试试看自制力，目标先定半个月吧，day0<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  smkf013  
+##### 130#       发表于 2020-7-21 18:23
+
+
+
+
+So, everyday is day0 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fange  
+##### 131#       发表于 2020-7-21 18:25
+
+
+
+
+33年没试过算大贤者？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  CANKIL  
+##### 132#       发表于 2020-7-21 18:36
+
+
+
+
+再见吧，这些**的女恶魔！
+<img src="https://p.sda1.dev/0/55977742713bae513cd0a324673ac6cc/IMG_0369D24E54134DA2E42F22277FA4B85F.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  相濡以沫  
+##### 133#       发表于 2020-7-21 18:38
+
+
+
+
+借个楼DAY 2 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不爱讨论的萌豚  
+##### 134#       发表于 2020-7-21 18:45
+
+
+
+
+这么热闹加我一个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  苇原雪道  
+##### 135#       发表于 2020-7-21 18:46
+
+
+
+
+等我回去る一发后再从明天开始，否则好亏
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 136#       发表于 2020-7-21 18:54
+
+
+
+
+一进来就看到戒撸失败
+
+
+
+
+
+
+
+-----
+
+####  ehero428  
+##### 137#       发表于 2020-7-21 19:07
+
+
+
+
+我必成功！day0
+
+
+
+
+
+
+
+-----
+
+####  看着键盘发呆  
+##### 138#       发表于 2020-7-21 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 139#       发表于 2020-7-21 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少看刺激的就好了，不过这大热天的，抑制太久会唤醒大脑储存的学习资料吧。
+
+
+
+
+
+
+
+-----
+
+####  SpectatorA  
+##### 140#       发表于 2020-7-21 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169007&amp;ptid=1949984" target="_blank">乘风除火 发表于 2020-7-20 23:30</a>
+
+建议上贞操锁，钥匙由潭友保管，完成挑战后发起为期一天的投票，潭友投同意票过三分之二方可返还钥匙，失败 ...</blockquote>
+yysy,除非是非常硬核那种全包的铁裤衩，一般贞操锁的结构只是让你无法OX而已。施法应该是拦不住的
+
+
+
+
+
+
+
+-----
+
+####  ColinWine  
+##### 141#       发表于 2020-7-21 23:37
+
+
+
+
+day0
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  恨讨论  
+##### 142#       发表于 2020-7-21 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48168912&amp;ptid=1949984" target="_blank">恨讨论 发表于 2020-7-20 23:22</a>
+
+我也来 day1</blockquote>
+day 0<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GJRstone  
+##### 143#       发表于 2020-7-21 23:41
+
+
+
+
+我就不day0了，合理释放，合理释放
+
+
+
+
+
+
+
+-----
+
+####  迷的思考者  
+##### 144#       发表于 2020-7-21 23:58
+
+
+
+
+借着上次发烧才坚持了四天 你们随意 我先冲一发睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  台球论坛网友  
+##### 145#       发表于 2020-7-22 00:00
+
+
+
+
+T -29 Days <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 146#       发表于 2020-7-22 00:11
+
+
+
+
+day 1
+
+
+
+
+
+
+
+-----
+
+####  破罐子  
+##### 147#       发表于 2020-7-22 00:14
+
+
+
+
+光看标题我还以为finished是失败了
+
+
+
+
+
+
+
+-----
+
+####  Reinhold  
+##### 148#       发表于 2020-7-22 00:28
+
+
+
+
+过0点了，那我也来记一下
+day 0
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  sprittee  
+##### 149#       发表于 2020-7-22 00:38
+
+
+
+
+我也跟一下，到考试为止都不施法了
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  翻滚吧熊犊子  
+##### 150#       发表于 2020-7-22 00:43
+
+
+
+
+不用这么灭人欲吧？适度就好 比如半个月或者一周这样
+
+
+
+
+
+
+
+-----
+
+####  namelessashen  
+##### 151#       发表于 2020-7-22 01:15
+
+
+
+
+好好好我也来 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">今天开始
+
+
+
+
+
+
+
+-----
+
+####  桐名  
+##### 152#       发表于 2020-7-22 01:48
+
+
+
+
+很厉害哎，再接再厉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王怡人  
+##### 153#       发表于 2020-7-22 02:51
+
+
+
+
+我也来试试, 看看能不能撑到第三天
+
+
+
+
+
+
+
+-----
+
+####  screeper  
+##### 154#       发表于 2020-7-22 03:00
+
+
+
+
+油炸糕看起来真好吃，可惜我们这儿没有<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jpiajwopdm  
+##### 155#       发表于 2020-7-22 03:13
+
+
+
+
+看了看2019年开年写的目标，惭愧。我也参加好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 156#       发表于 2020-7-22 05:57
+
+
+
+
+day0 
+
+
+
+
+
+
+
+-----
+
+####  ikonon  
+##### 157#       发表于 2020-7-22 07:52
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 158#       发表于 2020-7-22 07:57
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  小妻水亚美  
+##### 159#       发表于 2020-7-22 08:05
+
+
+
+
+这种贴骗瑟图不如割bao皮吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 160#       发表于 2020-7-22 08:13
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  忘川、  
+##### 161#       发表于 2020-7-22 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48174802&amp;ptid=1949984" target="_blank">忘川、 发表于 2020-7-21 15:00</a>
+2020年7月21日 day0</blockquote>
+day1
+
+
+
+
+
+
+
+-----
+
+####  人生长恨水长东  
+##### 162#       发表于 2020-7-22 08:32
+
+
+
+
+我也来，第二天
+
+
+
+
+
+
+
+-----
+
+####  Feena  
+##### 163#       发表于 2020-7-22 08:35
+
+
+
+
+第二天了，MP+1
+
+
+
+
+
+
+
+-----
+
+####  poco98  
+##### 164#       发表于 2020-7-22 08:37
+
+
+
+
+那啥，双人运动算施法吗
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 165#       发表于 2020-7-22 08:38
+
+
+
+
+day3，半夜3点硬醒。。。
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  maouzhkami  
+##### 166#       发表于 2020-7-22 08:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171725&amp;ptid=1949984" target="_blank">maouzhkami 发表于 2020-7-21 10:17</a>
+
+撸管有害记忆力！开戒！</blockquote>
+不小心啊，神志不清冲了一发，还是要时刻警惕<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">勉为其难记个day1，从今天开始再努力好了
+
+
+
+
+
+
+
+-----
+
+####  クマ吉诃德  
+##### 167#       发表于 2020-7-22 09:01
+
+
+
+
+我也来挑战（
+明天：适之啊适之（不
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 168#       发表于 2020-7-22 09:03
+
+
+
+
+day2
+
+
+
+
+
+
+
+-----
+
+####  moontype  
+##### 169#       发表于 2020-7-22 09:04
+
+
+
+
+MARK DAY1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 170#       发表于 2020-7-22 09:05
+
+
+
+
+楼内所有计时器快进到day0
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  KIMINO  
+##### 171#       发表于 2020-7-22 09:36
+
+
+
+
+day 1
+
+
+
+
+
+
+
+-----
+
+####  BEBEBEBEBOP  
+##### 172#       发表于 2020-7-22 09:37
+
+
+
+
+来，day1
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  martinium  
+##### 173#       发表于 2020-7-22 09:51
+
+
+
+
+怎么样在累成狗的情况下撸一管更难。只要强度高，每天累成狗回家只想躺根本不会想其他的。
+
+— from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Youszsh  
+##### 174#       发表于 2020-7-22 11:18
+
+
+
+
+归零，归归归归零
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 175#       发表于 2020-7-22 11:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+胡适之啊！胡适之！
+
+
+
+
+
+
+
+-----
+
+####  windzz  
+##### 176#       发表于 2020-7-22 11:34
+
+
+
+
+看到油炸糕，就想到甜甜圈，看到圈就想到...
+
+明天是第一天。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  菟原手兒奈  
+##### 177#       发表于 2020-7-22 11:34
+
+
+
+
+参加，day2
+
+
+
+
+
+
+
+-----
+
+####  周处长  
+##### 178#       发表于 2020-7-22 11:47
+
+
+
+ 本帖最后由 周处长 于 2020-7-23 10:49 编辑 
+
+7..22
+我也参战吧，今天早上施法，所以是day0
+7.23更新
+今天早上又施法，所以又是day0
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  花海境  
+##### 179#       发表于 2020-7-22 12:08
+
+
+
+
+买一个贞操锁，然后把钥匙交给别人，坚持三十天我觉得轻而易举吧，漫画里面坚持一年都可以有。
+
+<img src="https://img.saraba1st.com/forum/202007/22/120607b86r6b0y96612981.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (802.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-22 12:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SSF  
+##### 180#       发表于 2020-7-22 12:18
+
+
+
+
+不是应该是
+day1 finished
+day1 finished
+day1 finished
+day1 finished
+day1 finished
+day1 finished
+……
+
+吗
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  quinaeus  
+##### 181#       发表于 2020-7-22 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48171382&amp;ptid=1949984" target="_blank">quinaeus 发表于 2020-7-21 09:42</a>
+
+跟着挑战一下，7月21日，Day 0</blockquote>
+Day 1
+
+
+
+
+
+
+
+-----
+
+####  便秘的猫  
+##### 182#       发表于 2020-7-22 12:41
+
+
+
+
+借楼，day8
+
+
+
+
+
+
+
+-----
+
+####  foreversmiles  
+##### 183#       发表于 2020-7-22 12:42
+
+
+
+
+会精囊爆炸的！
+
+
+
+
+
+
+
+-----
+
+####  ump45  
+##### 184#       发表于 2020-7-22 12:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">楼主能不能推荐个拉伸教程
+
+
+
+
+
+
+
+-----
+
+####  单流灯塔  
+##### 185#       发表于 2020-7-22 13:57
+
+
+
+
+好图我转
+<img src="http://wx4.sinaimg.cn/mw690/71fec969gy1ggwhv8bpgxj20fu14iwjh.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天桥夜风  
+##### 186#       发表于 2020-7-22 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48175311&amp;ptid=1949984" target="_blank">nailuo1993 发表于 2020-7-21 15:53</a>
+
+借个楼 day0</blockquote>
+本来还想说兄弟你归零的也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一想应该是风怒
+
+
+
+
+
+
+
+-----
+
+####  jiangmaomao123  
+##### 187#       发表于 2020-7-22 15:09
+
+
+
+
+这已经转型成戒色专楼了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 188#       发表于 2020-7-22 15:33
+
+
+
+
+其实一个月不撸挺松的
+我以前也是那种每天不撸睡不着觉的人
+现在已经无欲无求了，连硬盘里面的小黄油都许久没有打开
+你问我怎么做到的，简单
+看管人，打钱，推管人
+加粉丝群 混熟
+做二创 看教程
+卧槽这么一套下来还有精力撸管 天天都是昏睡过去罢了
+
+
+
+
+
+
+
+-----
+
+####  倒悬  
+##### 189#       发表于 2020-7-22 15:36
+
+
+
+
+day1
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nemuru_baka  
+##### 190#       发表于 2020-7-22 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48184384&amp;ptid=1949984" target="_blank">FUZE 发表于 2020-7-22 15:33</a>
+
+其实一个月不撸挺松的
+
+我以前也是那种每天不撸睡不着觉的人
+
+现在已经无欲无求了，连硬盘里面的小黄油都许久 ...</blockquote>
+管人把人变成鬼
+
+
+
+
+
+
+
+-----
+
+####  七音骨笛  
+##### 191#       发表于 2020-7-22 16:00
+
+
+
+
+俺也来
+
+Day 1
+
+
+
+
+
+
+
+-----
+
+####  那牛喝多  
+##### 192#       发表于 2020-7-22 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169089&amp;ptid=1949984" target="_blank">茜茜... 发表于 2020-7-20 23:37</a></blockquote>
+施主，请问这是什么漫画？
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 193#       发表于 2020-7-22 16:54
+
+
+
+
+day0 
+
+。。。reset，今天冲了两发。明天开始，我一定要坚持7天<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tk553521  
+##### 194#       发表于 2020-7-22 17:39
+
+
+
+
+Day0
+
+—— 来自 samsung SM-N9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  小妻水亚美  
+##### 195#       发表于 2020-7-22 17:42
+
+
+
+
+这么多页了怎么没什么人发瑟图啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  半额便当  
+##### 196#       发表于 2020-7-22 17:43
+
+
+
+
+我已经小两个月了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  长风难度  
+##### 197#       发表于 2020-7-22 17:52
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 198#       发表于 2020-7-22 18:14
+
+
+
+
+第一周比较难熬，后面就逐渐佛系了。一周一次比较健康，时间久了施法出的水箭有略微泛黄<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+劝你们多吃羊肉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  失眠的考拉  
+##### 199#       发表于 2020-7-22 18:14
+
+
+
+
+撸这个字是有魔力的，你看到这个字之后就会忍不住的想。只能帮你到这了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  法外狂徒S1娘  
+##### 200#       发表于 2020-7-22 18:18
+
+
+
+
+？好怪阿
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 201#         楼主| 发表于 2020-7-22 18:21
+
+
+
+ 本帖最后由 mixtycomeon 于 2020-7-22 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185910&amp;ptid=1949984" target="_blank">法外狂徒S1娘 发表于 2020-7-22 18:18</a>
+？好怪阿</blockquote>
+坏女人guna，小学男生不喜欢大姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/208.png" referrerpolicy="no-referrer">视奸
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 202#       发表于 2020-7-22 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48182374&amp;ptid=1949984" target="_blank">花海境 发表于 2020-7-22 12:08</a>
+买一个贞操锁，然后把钥匙交给别人，坚持三十天我觉得轻而易举吧，漫画里面坚持一年都可以有。
+
+
+ ...</blockquote>
+本子求详细！
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  宁静中的沉默  
+##### 203#       发表于 2020-7-22 18:29
+
+
+
+
+借楼DAY 1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+试试能不能坚持一个月
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 204#       发表于 2020-7-22 18:31
+
+
+
+
+DAY1
+
+DAY2
+
+DAY1
+
+DAY2
+
+DAY1
+
+DAY1
+
+DAY1
+
+
+不挑战了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weary10  
+##### 205#       发表于 2020-7-22 19:13
+
+
+
+
+day2 failed？
+
+
+
+
+
+
+
+-----
+
+####  chenyizhou001  
+##### 206#       发表于 2020-7-22 19:20
+
+
+
+
+day20，坚持✊还有十天
+
+
+
+
+
+
+
+-----
+
+####  单脚着地  
+##### 207#       发表于 2020-7-22 20:02
+
+
+
+
+一时兴起的day0，虽然我对自己不太抱希望
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wwdzcjsmxx  
+##### 208#       发表于 2020-7-22 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185112&amp;ptid=1949984" target="_blank">有妹是老婆 发表于 2020-7-22 16:54</a>
+
+day0 
+
+。。。reset，今天冲了两发。明天开始，我一定要坚持7天</blockquote>
+你不是一个人。。。orz<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColinWine  
+##### 209#       发表于 2020-7-22 20:37
+
+
+
+
+day1 等等，今天还有几个小时呢
+
+
+
+
+
+
+
+-----
+
+####  anoink586  
+##### 210#       发表于 2020-7-22 20:42
+
+
+
+
+高考前试了一百天，模考得成绩很好，结果考前三十天结束之后，成绩有所下降，果然有害记忆力我也来试试吧， Day one
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 211#       发表于 2020-7-22 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48183691&amp;ptid=1949984" target="_blank">天桥夜风 发表于 2020-7-22 14:23</a>
+
+本来还想说兄弟你归零的也太快了一想应该是风怒</blockquote>
+刚刚没忍住归零了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer"> 明天再接再厉
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 212#       发表于 2020-7-22 21:25
+
+
+
+
+快进到ed算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  爱尔米娜  
+##### 213#       发表于 2020-7-22 21:35
+
+
+
+
+ 你以七天为周期不就好了
+
+
+
+
+
+
+
+-----
+
+####  SpectatorA  
+##### 214#       发表于 2020-7-22 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48182374&amp;ptid=1949984" target="_blank">花海境 发表于 2020-7-22 12:08</a>
+
+买一个贞操锁，然后把钥匙交给别人，坚持三十天我觉得轻而易举吧，漫画里面坚持一年都可以有。
+
+
+ ...</blockquote>
+在强烈好奇心驱使下真买了个来体验一下。之前的猜测没错，这东西的原理主要是通过限制突出量让你无法完成对接，并没有什么禁欲的感觉。反倒很容易因为跟内壁摩擦而硬起来，时间长了越来越敏感说不定会直接走火。真要长期使用除非能保证在外面能一直单独上厕所不然迟早社会死亡，因为基本得蹲着方便。
+
+锁芯也很菜用发夹秒开的程度
+
+
+
+
+
+
+
+-----
+
+####  公输  
+##### 215#       发表于 2020-7-22 22:02
+
+
+
+
+day0打卡
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 216#       发表于 2020-7-22 22:04
+
+
+
+
+想起了那个眼动仪不看胸部挑战，豪言壮语两分钟然后一秒落败
+
+祝大家不要这样吧
+
+
+
+
+
+
+
+-----
+
+####  曾博  
+##### 217#       发表于 2020-7-22 22:11
+
+
+
+
+我接受挑战
+
+
+
+
+
+
+
+-----
+
+####  huruii7  
+##### 218#       发表于 2020-7-22 23:05
+
+
+
+
+我也来day0一下，希望明天能控制住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  茜茜...  
+##### 219#       发表于 2020-7-22 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48184807&amp;ptid=1949984" target="_blank">那牛喝多 发表于 2020-7-22 16:21</a>
+施主，请问这是什么漫画？</blockquote>
+有人回了啊，sanjuurou的，不过不知道是哪一部的
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 220#       发表于 2020-7-22 23:19
+
+
+
+
+day0 打卡，7月不撸，从我做起，毕竟刚贤者
+
+
+
+
+
+
+
+-----
+
+####  yakee  
+##### 221#       发表于 2020-7-22 23:32
+
+
+
+
+打个卡，我也跟楼主做这个挑战
+
+
+
+
+
+
+
+-----
+
+####  茜茜...  
+##### 222#       发表于 2020-7-22 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d580c0c8ee9e3524ad29bdb65075fa83/IMG_A3DF07E45B3D400A9D9A7294F99C91D9.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帆影FX  
+##### 223#       发表于 2020-7-23 00:01
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  乘风除火  
+##### 224#       发表于 2020-7-23 00:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">day1
+
+
+
+
+
+
+
+-----
+
+####  苇原雪道  
+##### 225#       发表于 2020-7-23 00:40
+
+
+
+
+刚来了一发神清气爽。day0
+
+
+
+
+
+
+
+-----
+
+####  rkSan  
+##### 226#       发表于 2020-7-23 02:11
+
+
+
+
+z<img src="https://p.sda1.dev/0/2f242f2f6c29c4a90feebf542ec7cb1e/IMG_30C066C9A2A42364BD4049E99D2BEBED.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  果小饼  
+##### 227#       发表于 2020-7-23 02:23
+
+
+
+
+不是吧大哥 你认真的？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 228#       发表于 2020-7-23 06:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48180545&amp;ptid=1949984" target="_blank">lucac 发表于 2020-7-22 09:03</a>
+
+day2</blockquote>
+3/30
+
+
+
+
+
+
+
+-----
+
+####  Tissuesea  
+##### 229#       发表于 2020-7-23 07:08
+
+
+
+
+我也day2，30天我不梦遗算我赢
+
+—— 来自 HUAWEI AUM-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 230#       发表于 2020-7-23 07:37
+
+
+
+
+day2
+话说你们半夜会硬醒吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Booorunestud  
+##### 231#       发表于 2020-7-23 07:47
+
+
+
+
+day0<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vincent_law  
+##### 232#       发表于 2020-7-23 07:48
+
+
+
+
+看到finished，进来看看
+
+
+
+
+
+
+
+-----
+
+####  菟原手兒奈  
+##### 233#       发表于 2020-7-23 07:59
+
+
+
+
+Day2完成打卡
+
+
+
+
+
+
+
+-----
+
+####  maouzhkami  
+##### 234#       发表于 2020-7-23 08:04
+
+
+
+
+忍得了是男人，忍不了不是人，day2
+
+
+
+
+
+
+
+-----
+
+####  Feena  
+##### 235#       发表于 2020-7-23 08:05
+
+
+
+
+...清零了，重来吧
+
+
+
+
+
+
+
+-----
+
+####  XXlong  
+##### 236#       发表于 2020-7-23 08:10
+
+
+
+
+day1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  朗姆酒hentai  
+##### 237#       发表于 2020-7-23 08:11
+
+
+
+
+day0<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 238#       发表于 2020-7-23 08:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">day4，感觉看啥都能硬了。。。
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 239#       发表于 2020-7-23 08:18
+
+
+
+
+来了来了DAY2
+
+
+
+
+
+
+
+-----
+
+####  人生长恨水长东  
+##### 240#       发表于 2020-7-23 08:18
+
+
+
+
+第三天day3
+
+
+
+
+
+
+
+-----
+
+####  masakahaha  
+##### 241#       发表于 2020-7-23 08:22
+
+
+
+
+day 1<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0-alpha
+
+
+
+
+
+
+
+-----
+
+####  quinaeus  
+##### 242#       发表于 2020-7-23 08:26
+
+
+
+<blockquote>quinaeus 发表于 2020-7-22 12:21
+Day 1</blockquote>
+Day 2
+
+
+
+
+
+
+
+-----
+
+####  忘川、  
+##### 243#       发表于 2020-7-23 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48180367&amp;ptid=1949984" target="_blank">忘川、 发表于 2020-7-22 08:31</a>
+day1</blockquote>
+Day2
+
+
+
+
+
+
+
+-----
+
+####  热风疾风  
+##### 244#       发表于 2020-7-23 10:52
+
+
+
+
+戒色吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1991, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  失落之翼  
+##### 245#       发表于 2020-7-23 10:58
+
+
+
+
+一般这种帖子不是骗涩图的么
+
+
+
+
+
+
+
+-----
+
+####  edenpenn  
+##### 246#       发表于 2020-7-23 11:25
+
+
+
+
+明天开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Eric_方歌阙  
+##### 247#       发表于 2020-7-23 11:26
+
+
+
+
+这几段妹子观察太草了，处男味溢出屏幕（无恶意
+
+
+
+
+
+
+
+-----
+
+####  Cirn09  
+##### 248#       发表于 2020-7-23 11:41
+
+
+
+
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向于周几冲，连续冲了几天
+
+缺点是统计以天单位，一天两发统计不到，也没法统计倾向于每天几点冲，
+
+应用是开源的，有兴趣的魔法师可以
+
+[https://github.com/iSoron/uhabits](https://github.com/iSoron/uhabits)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| claymorep| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Illidan  
+##### 249#       发表于 2020-7-23 11:42
+
+
+
+
+同样坚持2天了。
+
+31岁。工作也忙。
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 250#       发表于 2020-7-23 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48192102&amp;ptid=1949984" target="_blank">Cirn09 发表于 2020-7-23 11:41</a>
+
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向 ...</blockquote>
+感谢推荐，很好用
+
+
+
+
+
+
+
+-----
+
+####  便秘的猫  
+##### 251#       发表于 2020-7-23 13:00
+
+
+
+
+day9！
+
+
+
+
+
+
+
+-----
+
+####  6847651  
+##### 252#       发表于 2020-7-23 13:03
+
+
+
+
+后面写个finished老是以为今天失败到此为止的意思
+
+
+
+
+
+
+
+-----
+
+####  ikonon  
+##### 253#       发表于 2020-7-23 13:03
+
+
+
+
+day2
+
+
+
+
+
+
+
+-----
+
+####  狗没拿伞  
+##### 254#       发表于 2020-7-23 13:23
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  Thurston  
+##### 255#       发表于 2020-7-23 13:26
+
+
+
+ 本帖最后由 Thurston 于 2020-7-23 13:56 编辑 
+
+day0.
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  feb2  
+##### 256#       发表于 2020-7-23 13:38
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  相濡以沫  
+##### 257#       发表于 2020-7-23 13:41
+
+
+
+
+可恶，昨天没忍住，day0<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 258#       发表于 2020-7-23 13:48
+
+
+
+
+微博看了太多色图了，想冲<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 259#       发表于 2020-7-23 13:50
+
+
+
+
+刷了下推就不行了day0<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 260#       发表于 2020-7-23 13:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RainbowSealife| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 261#       发表于 2020-7-23 13:55
+
+
+
+
+别挑战了，弟弟它不爽了
+
+
+
+
+
+
+
+-----
+
+####  flypig361  
+##### 262#       发表于 2020-7-23 14:26
+
+
+
+
+day2.原本是day4,可惜晚上做梦了
+
+
+
+
+
+
+
+-----
+
+####  最爱大萌德  
+##### 263#       发表于 2020-7-23 14:29
+
+
+
+
+我傻了，搁这写小黄文呢？
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 264#       发表于 2020-7-23 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48189891&amp;ptid=1949984" target="_blank">lucac 发表于 2020-7-23 06:36</a>
+
+3/30</blockquote>
+3.5/30今天好难啊。。跑了5公里，还洗了冷水澡，希望能坚持到第4天
+
+
+
+
+
+
+
+-----
+
+####  6927LR  
+##### 265#       发表于 2020-7-23 15:03
+
+
+
+
+day 2
+
+
+
+
+
+
+
+-----
+
+####  长风难度  
+##### 266#       发表于 2020-7-23 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185658&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-22 17:52</a>
+
+day1</blockquote>
+day2
+
+
+
+
+
+
+
+-----
+
+####  曾博  
+##### 267#       发表于 2020-7-23 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48194039&amp;ptid=1949984" target="_blank">长风难度 发表于 2020-7-23 15:05</a>
+
+day2</blockquote>
+你出来了？
+
+
+
+
+
+
+
+-----
+
+####  netplaying  
+##### 268#       发表于 2020-7-23 15:18
+
+
+
+
+禁欲可以有效改善熬夜后的恢复速度，然而。。。
+
+
+
+
+
+
+
+-----
+
+####  禽兽公爵  
+##### 269#       发表于 2020-7-23 15:57
+
+
+
+
+我四天没充了，昨天看了个本子非常色，到现在已经看了5遍那个本子，敢硬不敢射
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 270#       发表于 2020-7-23 16:18
+
+
+
+<blockquote>有妹是老婆 发表于 2020-7-22 16:54
+day0 
+
+。。。reset，今天冲了两发。明天开始，我一定要坚持7天</blockquote>
+day 1
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 271#       发表于 2020-7-23 16:25
+
+
+
+
+3/30
+
+感觉今晚就要0/30了
+
+
+
+
+
+
+
+-----
+
+####  阿垃垃圾历  
+##### 272#       发表于 2020-7-23 16:27
+
+
+
+
+day 0 昨晚上发现一部网飞的墨西哥剧 女主是真的骚 冲了两次
+
+
+
+
+
+
+
+-----
+
+####  mishidexieyu  
+##### 273#       发表于 2020-7-23 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48192102&amp;ptid=1949984" target="_blank">Cirn09 发表于 2020-7-23 11:41</a>
+推荐个app，建两个习惯，每天睡觉前冲了就点冲了，没冲就点没冲
+
+统计时间长了可以看看今年冲了多少次，倾向 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">有个想法，这功能是不是能靠账本记账app实现……
+
+—— 来自 Xiaomi M2002J9E, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  花海境  
+##### 274#       发表于 2020-7-23 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48187858&amp;ptid=1949984" target="_blank">SpectatorA 发表于 2020-07-22 21:47:42</a>
+在强烈好奇心驱使下真买了个来体验一下。之前的猜测没错，这东西的原理主要是通过限制突出量让你无法完成 ...</blockquote>厉害厉害，我只是看漫画的时候会想想而已，不知道实战是什么样的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 275#       发表于 2020-7-23 17:26
+
+
+
+
+我怀疑你们想空手套涩图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="http://tva2.sinaimg.cn/large/beb44592ly1gf80stbfx0g20ao0dcb2m.gif" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/beb44592ly1gflc0ujqm9g20dc0a0qvm.gif" referrerpolicy="no-referrer">
+<img src="http://tva4.sinaimg.cn/large/beb44592ly1gcuj5mkmnrg20b40euqvc.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 276#       发表于 2020-7-23 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48193338&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-23 13:51</a>
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+这是什么游戏啊？太涩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不可说  
+##### 277#       发表于 2020-7-23 17:33
+
+
+
+
+搁这儿搞二进制呢？
+01010101010101
+
+—— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  南宫月汐  
+##### 278#       发表于 2020-7-23 17:35
+
+
+
+
+学学人家禁欲进行时
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SpectatorA  
+##### 279#       发表于 2020-7-23 17:43
+
+
+
+ 本帖最后由 SpectatorA 于 2020-7-23 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48195353&amp;ptid=1949984" target="_blank">花海境 发表于 2020-7-23 17:13</a>
+
+厉害厉害，我只是看漫画的时候会想想而已，不知道实战是什么样的
+
+
+  -- 来自 能看大图的 Stage1官方 Androi ...</blockquote>
+
+体验结论是这是个玩字母的时候攒大招加BUFF的道具。你拿它往相反的方向去用就会转化成纯粹的DEBUFF。夹得蛋疼还时不时一碰就硬，比单纯不管它不施法难受多了。因为你无法把注意力转移掉
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 280#       发表于 2020-7-23 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48195485&amp;ptid=1949984" target="_blank">RainbowSealife 发表于 2020-7-23 17:26</a>
+我怀疑你们想空手套涩图</blockquote>
+果然死或生5比6代好冲多了，光是汗水特效都要比6代好
+
+
+
+
+
+
+
+-----
+
+####  七音骨笛  
+##### 281#       发表于 2020-7-23 17:44
+
+
+
+
+day 2  忘了昨天冲了没（糟糕）
+
+
+
+
+
+
+
+-----
+
+####  ehero428  
+##### 282#       发表于 2020-7-23 18:18
+
+
+
+
+day0咯！
+
+
+
+
+
+
+
+-----
+
+####  crosz  
+##### 283#       发表于 2020-7-23 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48194904&amp;ptid=1949984" target="_blank">阿垃垃圾历 发表于 2020-7-23 16:27</a>
+
+day 0 昨晚上发现一部网飞的墨西哥剧 女主是真的骚 冲了两次</blockquote>
+名字呢
+
+
+
+
+
+
+
+-----
+
+####  anoink586  
+##### 284#       发表于 2020-7-23 18:20
+
+
+
+
+day 2
+
+
+
+
+
+
+
+-----
+
+####  Glasber  
+##### 285#       发表于 2020-7-23 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48194904&amp;ptid=1949984" target="_blank">阿垃垃圾历 发表于 2020-7-23 16:27</a>
+day 0 昨晚上发现一部网飞的墨西哥剧 女主是真的骚 冲了两次</blockquote>
+剧名呢老哥
+
+
+
+
+
+
+
+-----
+
+####  逆转纹章  
+##### 286#       发表于 2020-7-23 18:33
+
+
+
+
+我已经连续三天day0了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+一开浏览器就下意识的输入ex、pixiv、rule34、Twitter、p站<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">。
+我感觉我后半辈子也不可能能忍得住30天了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">。
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  w516967455  
+##### 287#       发表于 2020-7-23 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">因为外出 已经day10了 好想归零 但是回家还要好久
+
+
+
+
+
+
+
+-----
+
+####  摸噗  
+##### 288#       发表于 2020-7-23 19:09
+
+
+
+
+每次快day2就忍不住了 开冲！<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 289#       发表于 2020-7-23 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48195509&amp;ptid=1949984" target="_blank">RainbowSealife 发表于 2020-7-23 17:28</a>
+这是什么游戏啊？太涩了吧</blockquote>
+窑子航线<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  雨R  
+##### 290#       发表于 2020-7-23 19:29
+
+
+
+
+Day3，结束了，不小心刷到本好本子
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 291#       发表于 2020-7-23 19:56
+
+
+
+
+
+Day0
+
+
+
+
+
+
+
+-----
+
+####  花海境  
+##### 292#       发表于 2020-7-23 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48185974&amp;ptid=1949984" target="_blank">希望之异热同心 发表于 2020-7-22 18:23</a>
+
+本子求详细！
+
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+作者的英文名是akai mato，中文名不知道
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 293#       发表于 2020-7-23 21:39
+
+
+
+
+打个卡，day5
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  奥丁丁丁  
+##### 294#       发表于 2020-7-23 21:51
+
+
+
+
+ 借楼挑战
+
+7.23,Day01
+
+
+
+
+
+
+
+-----
+
+####  Benighted  
+##### 295#       发表于 2020-7-23 21:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戒色吧S1分部
+
+
+
+
+
+
+
+-----
+
+####  xun401  
+##### 296#       发表于 2020-7-23 22:51
+
+
+
+
+Day 4 心情很平静，这次也许行
+
+
+
+
+
+
+
+-----
+
+####  苇原雪道  
+##### 297#       发表于 2020-7-24 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48189159&amp;ptid=1949984" target="_blank">苇原雪道 发表于 2020-7-23 00:40</a>
+刚来了一发神清气爽。day0</blockquote>
+day1。感觉还好
+
+
+
+
+
+
+
+-----
+
+####  Rocinante  
+##### 298#       发表于 2020-7-24 01:59
+
+
+
+
+刚破戒完，day0
+
+—— 来自 samsung SM-G9650, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  masakahaha  
+##### 299#       发表于 2020-7-24 02:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48190186&amp;ptid=1949984" target="_blank">masakahaha 发表于 2020-7-23 08:22</a>
+day 1
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.3.0-alpha</blockquote>
+day2<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0-alpha
+
+
+
+
+
+
+
+-----
+
+####  曾博  
+##### 300#       发表于 2020-7-24 02:05
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  pandaman7777  
+##### 301#       发表于 2020-7-24 02:13
+
+
+
+
+day1，记录一下
+
+—— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  呆鹅  
+##### 302#       发表于 2020-7-24 02:17
+
+
+
+
+S1转型戒色吧
+
+
+
+
+
+
+
+-----
+
+####  朗姆酒hentai  
+##### 303#       发表于 2020-7-24 05:58
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 304#       发表于 2020-7-24 06:02
+
+
+
+
+4/30
+
+
+
+
+
+
+
+-----
+
+####  影子都没有了  
+##### 305#       发表于 2020-7-24 07:12
+
+
+
+
+泪目，大家加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 306#       发表于 2020-7-24 07:14
+
+
+
+
+day3 突然感觉楼主是不是戒色吧来搞和平演变的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  炽十二翼  
+##### 307#       发表于 2020-7-24 08:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">忘了day几了，今天周五，算day 5吧
+
+
+
+
+
+
+
+-----
+
+####  maouzhkami  
+##### 308#       发表于 2020-7-24 08:14
+
+
+
+
+清零了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">看来第二天是最难的，不过看了个好本子，不亏
+
+
+
+
+
+
+
+-----
+
+####  夹心baka  
+##### 309#       发表于 2020-7-24 09:02
+
+
+
+
+&gt;day3
+
+工作日还好，周末就贼危险，一不小心就尻枪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  quinaeus  
+##### 310#       发表于 2020-7-24 09:08
+
+
+
+<blockquote>quinaeus 发表于 2020-7-23 08:26
+Day 2</blockquote>
+Day 3
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 311#       发表于 2020-7-24 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48188612&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-22 23:19</a>
+day0 打卡，7月不撸，从我做起，毕竟刚贤者</blockquote>
+day1√ 
+day2 ing
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 312#       发表于 2020-7-24 09:22
+
+
+
+<blockquote>引用第288楼暗示我7酱于2020-07-23 19:18发表的  :
+
+引用:RainbowSealife 发表于 2020-7-23 17:28这是什么游戏啊？太涩了吧窑......</blockquote>
+窑子航线没这玩意儿啊（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 313#       发表于 2020-7-24 09:25
+
+
+
+
+DAY 5！！！
+
+
+
+
+
+
+
+-----
+
+####  菟原手兒奈  
+##### 314#       发表于 2020-7-24 09:29
+
+
+
+ 本帖最后由 菟原手兒奈 于 2020-7-24 09:35 编辑 
+
+day3 完成
+
+最近有点犯痔疮，下周痔疮好了得继续坚持去健身房
+
+
+
+
+
+
+
+-----
+
+####  jklzh  
+##### 315#       发表于 2020-7-24 09:32
+
+
+
+
+Lz还没有day0吗？
+
+
+
+
+
+
+
+-----
+
+####  斯卡蕾特  
+##### 316#       发表于 2020-7-24 09:35
+
+
+
+
+把科长照片交出来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxf66503  
+##### 317#       发表于 2020-7-24 09:45
+
+
+
+
+我怎么觉得楼主D3的日记已经有憋疯的倾向了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红都剧院24排4号  
+##### 318#       发表于 2020-7-24 09:49
+
+
+
+
+喷了，看你们几时清零
+
+
+
+
+
+
+
+-----
+
+####  cxl6191467  
+##### 319#       发表于 2020-7-24 10:06
+
+
+
+
+和女票啪啪啪算diy吗？
+
+
+
+
+
+
+
+-----
+
+####  lakewest  
+##### 320#       发表于 2020-7-24 10:12
+
+
+
+
+我也来 今天直接就是day3
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 321#         楼主| 发表于 2020-7-24 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48201424&amp;ptid=1949984" target="_blank">zxf66503 发表于 2020-7-24 09:45</a>
+我怎么觉得楼主D3的日记已经有憋疯的倾向了</blockquote>
+我其实每天都那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  阿垃垃圾历  
+##### 322#       发表于 2020-7-24 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48196006&amp;ptid=1949984" target="_blank">Glasber 发表于 2020-7-23 18:20</a>
+
+剧名呢老哥</blockquote>
+黯欲
+
+
+
+
+
+
+
+-----
+
+####  逢魔的铃音  
+##### 323#       发表于 2020-7-24 11:15
+
+
+
+
+同参与，同参与
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿垃垃圾历  
+##### 324#       发表于 2020-7-24 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48196001&amp;ptid=1949984" target="_blank">crosz 发表于 2020-7-23 18:20</a>
+
+名字呢</blockquote>
+黯欲
+
+
+
+
+
+
+
+-----
+
+####  lostsea  
+##### 325#       发表于 2020-7-24 11:16
+
+
+
+
+day2 今天在公司去上厕所的路上，一个女同事穿的紧身牛仔裤，走路一扭一扭的，凸显的屁股巨大，想贴上去蹭和撞击
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 326#       发表于 2020-7-24 11:25
+
+
+
+
+4/30，我还能战斗
+
+
+
+
+
+
+
+-----
+
+####  藤宫由季  
+##### 327#       发表于 2020-7-24 11:28
+
+
+
+
+参与一下，不施法+有氧运动30分钟<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+day0
+
+
+
+
+
+
+
+
+-----
+
+####  anicorn  
+##### 328#       发表于 2020-7-24 11:52
+
+
+
+
+day2/30 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明天绝对会回到0
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 329#       发表于 2020-7-24 12:08
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  LedZeppelin  
+##### 330#       发表于 2020-7-24 12:37
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 331#       发表于 2020-7-24 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48201226&amp;ptid=1949984" target="_blank">希望之异热同心 发表于 2020-7-24 09:25</a>
+
+DAY 5！！！</blockquote>
+下午没忍住。。。输了
+
+
+
+
+
+
+
+-----
+
+####  Illidan  
+##### 332#       发表于 2020-7-24 14:42
+
+
+
+
+day4, 工作真的忙...
+
+
+
+
+
+
+
+-----
+
+####  xxq1984  
+##### 333#       发表于 2020-7-24 14:45
+
+
+
+
+有一说一，至少四天没冲了。
+
+昨晚准备和老婆来一发的。结果那娘们睡着了擦。
+
+别的男人都是不想交公粮，我二天一次都可以。但是没地交<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  怪叔叔木易  
+##### 334#       发表于 2020-7-24 15:10
+
+
+
+
+共勉，咱也来试试，先一周吧
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  八方美人  
+##### 335#       发表于 2020-7-24 15:15
+
+
+
+
+泻药，dl新出了个暑假开大车游戏，一天蛇了3回
+
+
+
+
+
+
+
+-----
+
+####  chenyizhou001  
+##### 336#       发表于 2020-7-24 15:48
+
+
+
+
+day21 finished
+
+
+
+
+
+
+
+-----
+
+####  クマ吉诃德  
+##### 337#       发表于 2020-7-24 15:50
+
+
+
+
+我输力…（哭腔
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kuuga  
+##### 338#       发表于 2020-7-24 15:52
+
+
+
+
+无尽的八月要来了🤣
+很大机会这楼每天都day1🌝
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 339#       发表于 2020-7-24 15:53
+
+
+
+<blockquote>xxq1984 发表于 2020-7-24 14:45
+有一说一，至少四天没冲了。
+
+昨晚准备和老婆来一发的。结果那娘们睡着了擦。
+
+别的男人都是不想交公粮，我二 ...</blockquote>
+我一天一次都可以。
+
+然而多数情况下只能交给最忠实的左右手。
+
+
+
+
+
+
+
+-----
+
+####  xxq1984  
+##### 340#       发表于 2020-7-24 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48204745&amp;ptid=1949984" target="_blank">七色梦幻亚雷特 发表于 2020-7-24 15:53</a>
+
+我一天一次都可以。
+
+然而多数情况下只能交给最忠实的左右手。</blockquote>
+老哥你老婆多大你能一天一次这么高的兴致？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  你听得到  
+##### 341#       发表于 2020-7-24 17:03
+
+
+
+
+day1
+
+
+
+
+
+
+
+-----
+
+####  freeandwind  
+##### 342#       发表于 2020-7-24 17:06
+
+
+
+
+这个应该不难吧……
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  moontype  
+##### 343#       发表于 2020-7-24 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48204189&amp;ptid=1949984" target="_blank">希望之异热同心 发表于 2020-7-24 14:40</a>
+
+下午没忍住。。。输了</blockquote>
+下午你都能来事
+
+
+
+
+
+
+
+-----
+
+####  Tissuesea  
+##### 344#       发表于 2020-7-24 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48189930&amp;ptid=1949984" target="_blank">Tissuesea 发表于 2020-7-23 07:08</a>
+我也day2，30天我不梦遗算我赢
+
+—— 来自 HUAWEI AUM-AL20, Android 8.0.0上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+day3，推黄油内心毫无波动中<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI AUM-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  便秘的猫  
+##### 345#       发表于 2020-7-24 17:37
+
+
+
+
+day11，但是这周末双休，大概要破戒了
+
+
+
+
+
+
+
+-----
+
+####  lakewest  
+##### 346#       发表于 2020-7-24 19:12
+
+
+
+
+day4 还可以坚持的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 347#       发表于 2020-7-24 19:26
+
+
+
+<blockquote>有妹是老婆 发表于 2020-7-23 16:18
+day 1</blockquote>
+day 2
+
+
+
+
+
+
+
+-----
+
+####  绵绵糕  
+##### 348#       发表于 2020-7-24 19:30
+
+
+
+
+借个楼day3，看到楼主有点动力了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6927LR  
+##### 349#       发表于 2020-7-24 19:31
+
+
+
+
+day3
+
+
+
+
+
+
+
+-----
+
+####  amusitelang  
+##### 350#       发表于 2020-7-24 19:40
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  加把劲骑士  
+##### 351#       发表于 2020-7-24 19:43
+
+
+
+
+第四天，脱贫攻坚普查中
+
+
+
+
+
+
+
+-----
+
+####  changeek  
+##### 352#       发表于 2020-7-24 19:50
+
+
+
+
+年轻真好啊
+
+
+
+
+
+
+
+-----
+
+####  邬德强  
+##### 353#       发表于 2020-7-24 20:22
+
+
+
+
+这里就是day0tv吗
+
+
+
+
+
+
+
+-----
+
+####  lokok  
+##### 354#       发表于 2020-7-24 20:24
+
+
+
+
+出差培训6天了，嘿嘿。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 355#       发表于 2020-7-24 20:34
+
+
+
+
+我觉得，光这么没意思
+
+楼里应该每天更新点美女的图片
+
+这样才有挑战性
+
+
+
+
+
+
+
+-----
+
+####  Thurston  
+##### 356#       发表于 2020-7-24 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48193110&amp;ptid=1949984" target="_blank">Thurston 发表于 2020-07-23 13:26:21</a></blockquote>day1.又是躁郁的一天
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 357#       发表于 2020-7-24 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48204926&amp;ptid=1949984" target="_blank">xxq1984 发表于 2020-7-24 16:11</a>
+
+老哥你老婆多大你能一天一次这么高的兴致？</blockquote>
+跟老婆没关系，每天早上一柱擎天，我也很烦躁好不好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 358#         楼主| 发表于 2020-7-24 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48206910&amp;ptid=1949984" target="_blank">HGCG2 发表于 2020-7-24 20:34</a>
+我觉得，光这么没意思
+
+楼里应该每天更新点美女的图片
+
+这样才有挑战性</blockquote>
+您请
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 359#       发表于 2020-7-24 22:19
+
+
+
+
+day1，没开始前其实没多少x欲，每天都是日课，开始两天后发现啥都好色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 360#       发表于 2020-7-24 22:29
+
+
+
+
+day3，明天归零！
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  七音骨笛  
+##### 361#       发表于 2020-7-24 22:32
+
+
+
+
+day 3 有点撑不住了
+
+
+
+
+
+
+
+-----
+
+####  exgloris  
+##### 362#       发表于 2020-7-24 22:54
+
+
+
+
+一般来说，连续30天不施法是不是不太正常（笑）。打算明天开始推万华镜，按进度30天内应该能全部推完（苟头
+
+
+
+
+
+
+
+-----
+
+####  亚瑟邓特  
+##### 363#       发表于 2020-7-24 23:03
+
+
+
+<img src="https://p.sda1.dev/0/740f2361b83279cd155369967c52bc34/IMG_D81E7603D103802B8CA10F0829443B18.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  altermaaya  
+##### 364#       发表于 2020-7-24 23:09
+
+
+
+
+失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了失败了
+
+—— 来自 HUAWEI CDY-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  哈金·罗兰  
+##### 365#       发表于 2020-7-24 23:18
+
+
+
+
+主楼日记一天比一天短，怕是开始顶不住了
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 366#         楼主| 发表于 2020-7-24 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48208121&amp;ptid=1949984" target="_blank">哈金·罗兰 发表于 2020-7-24 23:18</a>
+主楼日记一天比一天短，怕是开始顶不住了</blockquote>
+今天在单位值班一天，无聊得一逼。
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  xxq1984  
+##### 367#       发表于 2020-7-24 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 准备失败~
+
+
+
+
+
+                                     
