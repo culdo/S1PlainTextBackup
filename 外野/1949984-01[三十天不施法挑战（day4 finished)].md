@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-25 00:11** 
+> ## **本文件最后更新于2020-07-25 12:11** 
 
 
 
@@ -9,13 +9,16 @@
 
 
 
- 本帖最后由 mixtycomeon 于 2020-7-24 22:59 编辑 
+ 本帖最后由 mixtycomeon 于 2020-7-25 11:29 编辑 
 
     挑战时间：2020.07.21-08.20，如果中途不能自控则视为挑战失败，如果达成挑战，之后考虑再追加二阶段或者遵从欲望。因为并非主观能控制的，所以梦遗不会影响记录。我不是要搞什么戒色，平时性幻想照常不耽误，只是要靠意志力来克制施法行为。         主楼可能会记录一些挑战期间的生活琐事以及发情记录。可能会每天或者每几天更新一次。
 
 
+7月25日：
+         早上下夜班，带着疲惫坐公交回家。过道右侧的妹子穿着淡绿色(靠近葱白的部分的那么淡)带领齐膝连衣裙，黑色尖头系带高跟鞋，大部分时间在低头看手机，她慢慢地把左腿翘起来搭在右腿上，裙子被夹在了中间，因为前后座间距很窄，所以她被迫侧过双腿，而将左脚脚尖勾起，这一瞬间，我感觉xp被戳到了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">。快下车的时候又从正面瞄了她一眼，几绺刘海让人很有拨弄的想法。
+
 7月24日: 
-         去好久没去的兰州牛肉面吃了份孜然牛肉炒面，嗝～。旁边烧烤店的服务员妹子笑起来真甜，脖子上有四颗痣，菱形排布。回去的路上被洒水车给洗了，还挺凉爽的。
+         去好久没去的兰州牛肉面吃了份孜然牛肉炒面，嗝～。旁边烧烤店的服务员妹子笑起来真甜，脖子右侧根部有四颗痣，菱形排布。回去的路上被洒水车给洗了，还挺凉爽的。
 7月23日：         运动量合计：45.7公里骑行+办公室搬家         办公场所重新装修完了，被科长抓走当苦力把东西搬回来，推了一上午的箱子，顺便帮几个大姐把电脑装好，有一个人的显示屏在之前的搬运时磕碎了，她高兴地和科长报了一台新显示器。一点多干完活身上的汗开始变黏，kimo。瞄了一眼我们科长脖子上也是汗，被汗水洇湿了的淡粉T恤背后透露出浅色的胸罩背带，好像和她像泥鳅一样黏在一起啊，想想她和别人聊天时说过最近在备孕就更兴奋了！啊不能再继续yy下去了，不然就要在公共场所勃起了。我要找个地方躺会。
 
          下班之后去看彗星(用双筒)，骑车去城郊的路上看到西北低空有薄云和水雾，略感担忧，好在今天彗星的高度较高，等云飘开还是有机会的，天黑前还得买瓶花露水，要不然会被虫子吃了。
@@ -2208,7 +2211,7 @@ day0
 
 
 BTraphen - 翔鶴(アズールレーン) (83088521) .jpg
-(719.44 KB, 下载次数: 3)
+(719.44 KB, 下载次数: 4)
 
 
 
@@ -6596,6 +6599,26 @@ day 3 有点撑不住了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Smile_D_up| + 1||
+| nexus1| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -6666,4 +6689,537 @@ day 3 有点撑不住了
 
 
 
-                                     
+
+
+-----
+
+####  暗示我7酱  
+##### 368#       发表于 2020-7-25 00:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/25/002201x2x9sn88t14ba9n1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-9lddQ5-fnvnZdT3cSk3-sg.jpg</strong> (124.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-25 00:22 上传
+
+
+
+
+
+
+啊啊啊啊啊啊，有点难顶
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 369#       发表于 2020-7-25 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48201126&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-24 09:14</a>
+
+day1√ 
+
+day2 ing</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202007/25/002325dp9g3puptvg9d4u4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>006SJccCly1g95x14np49j30xc0ir42i (1).jpg</strong> (156.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-25 00:23 上传
+
+
+
+
+
+
+day2 ok  
+
+day3 start。。。。
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 370#         楼主| 发表于 2020-7-25 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48208562&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-25 00:22</a>
+啊啊啊啊啊啊，有点难顶</blockquote>
+这图好怪，我第一眼看成这人有4瓣屁股了。
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  a479281660  
+##### 371#       发表于 2020-7-25 00:38
+
+
+
+
+D0-D1
+FAILED
+D0
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  masakahaha  
+##### 372#       发表于 2020-7-25 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48200053&amp;ptid=1949984" target="_blank">masakahaha 发表于 2020-7-24 02:00</a>
+
+day2
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.3.0-alpha</blockquote>
+day0 <img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+感觉这个帖子可以冲击一万楼
+
+
+
+
+
+
+
+-----
+
+####  Illidan  
+##### 373#       发表于 2020-7-25 01:32
+
+
+
+
+坚持了4天，day0<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">话说我不需要坚持30天的来证明什么，就觉得无所谓了。
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 374#       发表于 2020-7-25 03:17
+
+
+
+
+嗯...我只戒了一天
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之异热同心| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 375#       发表于 2020-7-25 04:21
+
+
+
+
+天天都想日老婆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 376#       发表于 2020-7-25 04:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">开始重新开始，这次目标7天！
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 377#       发表于 2020-7-25 07:10
+
+
+
+
+day0
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 378#       发表于 2020-7-25 07:19
+
+
+
+
+day4 感觉快不行了
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 379#       发表于 2020-7-25 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48208593&amp;ptid=1949984" target="_blank">mixtycomeon 发表于 2020-7-25 00:29</a>
+这图好怪，我第一眼看成这人有4瓣屁股了。
+
+—— 来自 LGE LM-G710, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+那不是更好吗！
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 380#       发表于 2020-7-25 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48209193&amp;ptid=1949984" target="_blank">24k纯帅 发表于 2020-7-25 04:21</a>
+天天都想日老婆</blockquote>
+已婚人士？！
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  朗姆酒hentai  
+##### 381#       发表于 2020-7-25 07:27
+
+
+
+
+day0，我输力<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  幻影长矛手  
+##### 382#       发表于 2020-7-25 07:34
+
+
+
+
+奥里给冲了
+<img src="http://i0.hdslb.com/bfs/album/7227553950b3f572e2008c21be34d177a8768213.gif" referrerpolicy="no-referrer">
+<img src="http://i0.hdslb.com/bfs/album/2a6db3e662b0d46bac13bba06bbdcf92316dd9f0.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿其拉  
+##### 383#       发表于 2020-7-25 08:03
+
+
+
+
+打个卡，day4
+
+
+
+
+
+
+
+-----
+
+####  寿命不过一岁  
+##### 384#       发表于 2020-7-25 08:18
+
+
+
+
+据说虫没害，看片有害？
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 385#         楼主| 发表于 2020-7-25 09:05
+
+
+
+ 本帖最后由 mixtycomeon 于 2020-7-25 09:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48209519&amp;ptid=1949984" target="_blank">寿命不过一岁 发表于 2020-7-25 08:18</a>
+据说虫没害，看片有害？</blockquote>
+虫完易犯困，经常就延误了白天的事，短时间太频繁肯定也有问题，之前一晚上冲三次，勃起时候胀疼的受不了，射的时候也基本没生理快感了。长期过频施法或者撸着撸着快到了停下然后快软了再从头开始对前列腺是有害的。
+看片那种应该是影响大脑对视觉听觉性刺激的敏感度了吧。(大概)
+P.S.女性施法过频、时间过长易患盆腔炎。
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 386#       发表于 2020-7-25 09:29
+
+
+
+
+楼主的日记会不会描述他一个月内见到的所有雌性动物？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mixtycomeon  
+##### 387#         楼主| 发表于 2020-7-25 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48209772&amp;ptid=1949984" target="_blank">iantsai 发表于 2020-7-25 09:29</a>
+楼主的日记会不会描述他一个月内见到的所有雌性动物？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发情门槛没那么低，有时候是在特定的场景下我被诱惑了，对方换了个地方就未必发得起来情了。
+
+—— 来自 LGE LM-G710, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  lucac  
+##### 388#       发表于 2020-7-25 09:49
+
+
+
+
+坚持了5天。。day0
+
+
+
+
+
+
+
+-----
+
+####  苇原雪道  
+##### 389#       发表于 2020-7-25 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48200029&amp;ptid=1949984" target="_blank">苇原雪道 发表于 2020-7-24 01:57</a>
+day1。感觉还好</blockquote>
+day2
+
+
+
+
+
+
+
+-----
+
+####  Channel  
+##### 390#       发表于 2020-7-25 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">本neet开始挑战
+
+day 0，不过暑假大车出dlc了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">等我今天打完先
+
+
+
+
+
+
+
+-----
+
+####  暗示我7酱  
+##### 391#       发表于 2020-7-25 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48208569&amp;ptid=1949984" target="_blank">暗示我7酱 发表于 2020-7-25 00:23</a>
+day2 ok  
+
+day3 start。。。。</blockquote>
+day3 failed...
+day0 ...
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  懒残和尚  
+##### 392#       发表于 2020-7-25 10:47
+
+
+
+
+day1
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1-alpha
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 393#       发表于 2020-7-25 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48209821&amp;ptid=1949984" target="_blank">mixtycomeon 发表于 2020-7-25 09:37</a>
+
+我发情门槛没那么低，有时候是在特定的场景下我被诱惑了，对方换了个地方就未必发得起来情了。
+
+
+ ...</blockquote>
+不要辩解，这30天我们会盯着你的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菟原手兒奈  
+##### 394#       发表于 2020-7-25 12:01
+
+
+
+
+day4 finished
+
+
+
+
+
+                                    
