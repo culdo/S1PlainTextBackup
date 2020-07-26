@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-24 20:10** 
+> ## **本文件最后更新于2020-07-26 20:10** 
 
 
 
@@ -64,7 +64,13 @@
 ####  麻酱是JK  
 ##### 4#       发表于 2020-7-17 23:49
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">夸夸夸
+
+
+
+
 
 
 
@@ -187,7 +193,17 @@
 ####  麻酱是JK  
 ##### 12#       发表于 2020-7-18 08:40
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+ 本帖最后由 麻酱是JK 于 2020-7-18 08:42 编辑 
+
+夸楼是建板后新开的，这应该是第二代
+
+不过M楼本质夸anti楼，所以这个也可以算第14代？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -3101,4 +3117,490 @@ jump king要来了吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                           
+
+
+-----
+
+####  暗心舞踏  
+##### 184#       发表于 2020-7-24 20:14
+
+
+
+
+一般应该是看发行方吧
+
+另外除了那些说了不给播的以外本来应该是默许的，你特意去申请授权人家反而要走一次正规流程，效率低一点的话就一直拖在那了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 185#       发表于 2020-7-24 21:03
+
+
+
+
+jumpking看了看感觉自己玩会很没劲，属于直播游戏（？）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 186#       发表于 2020-7-24 21:07
+
+
+
+
+傻洋葱
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 187#       发表于 2020-7-24 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">剪视频把直播剪没了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 188#       发表于 2020-7-24 21:35
+
+
+
+ 本帖最后由 新磕娘 于 2020-7-24 21:56 编辑 
+
+就是单纯的搞心态游戏呗，跟壶男和I wanna差不多的类型，自己玩肯定玩不下去啊，但直播的话，吃瘪反应好的或者忍耐力好的主播来播应该直播效果不会差，阿夸其实还挺适合
+
+
+哎，剪了一天视频把直播剪没了，悲
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 189#       发表于 2020-7-24 21:42
+
+
+
+
+...
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 190#       发表于 2020-7-24 21:50
+
+
+
+<img src="https://p.sda1.dev/0/2c8cf983e1696607c1faec0a90befb21/IMG_4C4EFF8E1C3575C03805A6E1E6EC2E8F.jpeg" referrerpolicy="no-referrer">可能你楼也有人需要，姑且往这里放一份。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 191#       发表于 2020-7-25 20:39
+
+
+
+
+夸宝头疼 难道今天摸了吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 192#       发表于 2020-7-25 20:59
+
+
+
+
+看小水，此间乐，不直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 193#       发表于 2020-7-25 22:48
+
+
+
+ 本帖最后由 JoelBirch 于 2020-7-25 22:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48206653&amp;ptid=1947500" target="_blank">kata魂 发表于 2020-7-24 19:55</a>
+实际上我现在都没太搞懂游戏版权申请到底怎么算的
+
+找到一家公司谈妥了可以直播他旗下所有游戏这点没问题， ...</blockquote>
+这种情况其实是很普遍的，尤其是日厂，SE啊任天堂啊可乐妹啊都有类似的政策或者规则
+
+话说holo居然还在纠结这个事情吗？这么长时间了不会有人炎上了吧，玩个独立游戏都找作者要授权？就我对大多独立开发者的认识，可能得等一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 194#       发表于 2020-7-26 00:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下推特上#湊あくあ的tag，本土粉好像要撑不住了啊
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 195#       发表于 2020-7-26 00:21
+
+
+
+
+不服换推呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 196#       发表于 2020-7-26 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她可是最喜欢这样折磨粉丝了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 197#       发表于 2020-7-26 01:59
+
+
+
+ 本帖最后由 面具13 于 2020-7-26 02:06 编辑 
+
+带tag发这种推的要么是喜欢表现自己存在感的，要么是想搞心态的。头疼=摸了，这么简单的事情都弄不懂的估计智商也有点感人。
+
+“我休息的时候我的推就得播”，就很想把他们安利成百鬼众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（对holo失望了的可以推荐gbr）
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 198#       发表于 2020-7-26 03:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">湊阿夸已经失去了事业心，目前处于爱播不播的状态，受不了得事业民建议早日转推，不要把着这个小坏蛋了。哦养猫了以后生活重心也会更偏向猫猫，出道时候说的一周直播1-2次大约快实现了。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 199#       发表于 2020-7-26 04:44
+
+
+
+
+不是前段时间回来的时候说了就算最近开始直播，要准备演唱会所以还是会很忙吗
+
+
+
+
+
+
+
+-----
+
+####  kesoi  
+##### 200#       发表于 2020-7-26 12:24
+
+
+
+
+拧干了的抹布还有使用的必要吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 201#       发表于 2020-7-26 12:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我就等sololive过了以后，这小坏蛋要找什么新理由敷衍我。
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 202#         楼主| 发表于 2020-7-26 12:41
+
+
+
+
+动了，晚上麻将联动和歌回
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 203#       发表于 2020-7-26 12:42
+
+
+
+
+麻将 我没了；歌回，我好了。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 204#       发表于 2020-7-26 12:50
+
+
+
+
+该猜猜和谁联动了，猜一个紫宝
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 205#       发表于 2020-7-26 12:58
+
+
+
+ 本帖最后由 面具13 于 2020-7-26 13:00 编辑 
+
+老相好或者holo最新最in的麻将联动对象的可能性也是有的
+
+
+歌回不一定有的，得看麻将有没有上头，精力还够不够
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 206#       发表于 2020-7-26 13:07
+
+
+
+
+麻了 jk耐久估计要下星期了 
+希望夸宝能把牌谱链接放出来 直播挺不好分析的
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 207#       发表于 2020-7-26 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">夸宝的人气就像这栋楼，十天只刷了七页
+
+
+ライブ之后就可以进入养老生活了，向狗狗学习先进摸鱼经验。说不定发推说要带猫咪去时精屋修行然后摸个十天半个月，开直播那天crew们边感恩戴德边夸赞猫猫可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+syl，holo里看了一圈没人说晚上要打麻将的样子，难道要外联吗
+
+
+
+
+
+
+
+-----
+
+####  第七惑星  
+##### 208#       发表于 2020-7-26 13:53
+
+
+
+
+难道是六字母恶心人麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+不要<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 209#       发表于 2020-7-26 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到猫代替凑阿库娅直播
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 210#       发表于 2020-7-26 14:50
+
+
+
+
+呵，洋葱
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 211#       发表于 2020-7-26 18:52
+
+
+
+
+晚上傻紫船长coco四人麻将，这四人不知道谁更菜
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 212#         楼主| 发表于 2020-7-26 19:11
+
+
+
+
+9点联动，11点歌回
+
+
+
+
+
+                                          
