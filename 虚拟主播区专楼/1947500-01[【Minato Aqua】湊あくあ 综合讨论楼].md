@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-26 20:10** 
+> ## **本文件最后更新于2020-07-27 22:13** 
 
 
 
@@ -3529,16 +3529,7 @@ syl，holo里看了一圈没人说晚上要打麻将的样子，难道要外联�
 ####  第七惑星  
 ##### 208#       发表于 2020-7-26 13:53
 
-
-
-
-难道是六字母恶心人麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-不要<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3603,4 +3594,507 @@ syl，holo里看了一圈没人说晚上要打麻将的样子，难道要外联�
 
 
 
-                                          
+
+
+-----
+
+####  kata魂  
+##### 213#       发表于 2020-7-26 20:56
+
+
+
+
+得  本来还纠结忍界大战还是四人血压麻将，现在好了，感谢369和阿水提前下班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 214#       发表于 2020-7-26 21:13
+
+
+
+
+血压升高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 215#       发表于 2020-7-26 21:38
+
+
+
+
+看不懂，就觉得这洋葱好傻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 216#       发表于 2020-7-26 21:58
+
+
+
+
+这就是菜鸡互啄吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 217#       发表于 2020-7-26 23:07
+
+
+
+
+夸宝来了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 218#         楼主| 发表于 2020-7-26 23:13
+
+
+
+
+刻意rp没那味
+
+草刚说完就不装了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 219#       发表于 2020-7-26 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经没有办法掐萌音了，一直清嗓子
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 220#       发表于 2020-7-26 23:16
+
+
+
+
+嗓子还是有点哑， 没有恢复好阿
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 221#       发表于 2020-7-26 23:16
+
+
+
+
+这病怎么这么难好？😣
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 222#       发表于 2020-7-26 23:17
+
+
+
+
+哦，赶上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 223#         楼主| 发表于 2020-7-26 23:30
+
+
+
+ 本帖最后由 sky5 于 2020-7-26 23:38 编辑 
+
+夜驱挑战safe，气还是有点不足。等一个哨戒班再挑战
+
+唱了10次了，这次能safe吗
+
+要断气了啊，肺活量还得练
+
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 224#       发表于 2020-7-26 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好听 我又是歌迷了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 225#       发表于 2020-7-26 23:33
+
+
+
+ 本帖最后由 erer 于 2020-7-26 23:34 编辑 
+
+这状态来烧鸡班，真有你的啊。折磨自己草
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 226#       发表于 2020-7-26 23:34
+
+
+
+
+刚来，唱的啥玩意儿
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 227#       发表于 2020-7-26 23:37
+
+
+
+
+夸宝唱到最后我还以为要咳口痰出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 228#       发表于 2020-7-26 23:41
+
+
+
+
+合理猜测，夸宝现在只有一个鼻孔通气
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 229#         楼主| 发表于 2020-7-26 23:42
+
+
+
+
+红莲华还是封印了吧，听得难受
+
+
+
+
+
+
+
+-----
+
+####  空帽子  
+##### 230#       发表于 2020-7-26 23:56
+
+
+
+
+惊了，阿夸居然是四人组里麻将玩的最好的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 231#       发表于 2020-7-26 23:59
+
+
+
+
+据说麻将是船长配合，会长实力比阿夸强？反正我看不懂。
+
+今晚唱得凑合，能听下来的。
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 232#       发表于 2020-7-26 23:59
+
+
+
+
+终于唱天气之子了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+祝祭来一个
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 233#       发表于 2020-7-27 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">就这还开live？唱啥啥不行，搞怪第一名
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 234#       发表于 2020-7-27 00:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">原来不是伴眠歌回啊，开开心心迎周一，也不错
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 235#       发表于 2020-7-27 00:51
+
+
+
+ 本帖最后由 米酒马路 于 2020-7-27 16:44 编辑 
+
+木耳表示唱挺好的，除了红莲华<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+顺便，这档被版权了，莫得了
+
+草，又回来了，好评
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 236#         楼主| 发表于 2020-7-27 10:17
+
+
+
+
+晚上9点在本社播幽灵列车
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 237#       发表于 2020-7-27 10:26
+
+
+
+
+为什么是本社？ 练完舞直接在本社播，省一笔买游戏的钱吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 238#       发表于 2020-7-27 10:28
+
+
+
+
+昨天提到了今天要去本社收录
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 239#       发表于 2020-7-27 10:28
+
+
+
+
+VR？那玩下来要掉半条命
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 240#       发表于 2020-7-27 16:47
+
+
+
+
+思来想去还是决定给夸宝送本漫画，致郁一下孩子，让孩子见识一下弹药包和煲仔饭<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/cd66c4a5fedc56e6c6338ca5783023c6/QQ图片20200727164049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 241#       发表于 2020-7-27 21:26
+
+
+
+ 本帖最后由 面具13 于 2020-7-27 21:46 编辑 
+
+一般爆音凑阿夸，本社的麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不是，你知道会爆音，就少吼两句啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+听见她喊papa了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 242#       发表于 2020-7-27 21:33
+
+
+
+
+夸宝捉蝉的时候大喊咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
