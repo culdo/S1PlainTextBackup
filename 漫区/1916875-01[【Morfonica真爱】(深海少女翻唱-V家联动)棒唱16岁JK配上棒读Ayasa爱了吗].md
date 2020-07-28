@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-28 18:01** 
+> ## **本文件最后更新于2020-07-28 22:02** 
 
 
 
@@ -6921,4 +6921,243 @@ m4打碟那位hmr也不错的鸭<img src="https://static.saraba1st.com/image/smi
 
 
 
-                                      
+
+
+-----
+
+####  すぴぱら  
+##### 358#       发表于 2020-7-28 18:42
+
+
+
+[https://b23.tv/SuTC3p](https://b23.tv/SuTC3p)
+
+深海少女的mv出了，不得不说天音妹妹唱功还是有改善的，虽然还是降了key
+
+
+
+
+
+
+
+-----
+
+####  Goisdust  
+##### 359#       发表于 2020-7-28 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231260&amp;ptid=1916875" target="_blank">yevvet 发表于 2020-7-27 18:16</a>
+
+可感觉这几个妹妹们全是照骗啊。颜值比那些个姐姐差多了
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户 ...</blockquote>
+这企划就是主角队的颜带两倍滤镜我都看不下去，外加纺木和佐藤，其他还是可以的
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 360#       发表于 2020-7-28 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48241656&amp;ptid=1916875" target="_blank">Goisdust 发表于 2020-07-28 18:57:59</a>
+这企划就是主角队的颜带两倍滤镜我都看不下去，外加纺木和佐藤，其他还是可以的 ...</blockquote>什么，我心目中纺木一直是超级大美女啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  inflation  
+##### 361#       发表于 2020-7-28 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48239367&amp;ptid=1916875" target="_blank">t222 发表于 2020-7-28 02:08</a>
+ 就那手势，整个企划真的能打碟的估计不超过3个人，其他都是瞎几把按几下卖卖萌就领工资 ...</blockquote>
+其实现实里DJ的工作大部分都是在演出前做的，找歌、对BPM、打好断点、保持音乐不断等等才是业务核心，上去搓碟只能算是添头。还有打碟部分也吃现场，很多都是即兴的，不同场次观众的嗨点不一样，这也是CD流被诟病的原因之一。
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 362#       发表于 2020-7-28 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231260&amp;ptid=1916875" target="_blank">yevvet 发表于 2020-07-27 18:16:55</a>
+可感觉这几个妹妹们全是照骗啊。颜值比那些个姐姐差多了</blockquote>食言一下，站中间的反田叶月真好看（
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 363#       发表于 2020-7-28 21:17
+
+
+
+
+d4dj我最感到奇妙的是主角团的叫各務華梨的这位....live上没有美颜修图就更觉得奇妙了
+
+
+
+
+
+
+E4F7EAB8-651E-4796-876A-FAF9A8B430A2.jpeg
+(43.24 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-28 21:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/28/211501uqxov5ts9hjeinvp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+592251A8-31D0-4211-AAD7-7211982AC5A8.jpeg
+(34.25 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-28 21:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/28/211636o540647r7mz4nwp7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  すぴぱら  
+##### 364#       发表于 2020-7-28 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242810&amp;ptid=1916875" target="_blank">yevvet 发表于 2020-7-28 21:17</a>
+d4dj我最感到奇妙的是主角团的叫各務華梨的这位....live上没有美颜修图就更觉得奇妙了 ...</blockquote>
+这妹子长得有点大桥彩香的神韵
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 365#       发表于 2020-7-28 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242891&amp;ptid=1916875" target="_blank">すぴぱら 发表于 2020-07-28 21:25:48</a>
+这妹子长得有点大桥彩香的神韵</blockquote>你这么一说是有点。这妹子live上有种松冈的神韵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">特别出戏
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  泥潭办证先锋  
+##### 366#         楼主| 发表于 2020-7-28 21:44
+
+
+
+
+Morfonica真爱楼 X
+进藤天音真爱楼 X
+武士道黑屁楼✓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  inflation  
+##### 367#       发表于 2020-7-28 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48243070&amp;ptid=1916875" target="_blank">泥潭办证先锋 发表于 2020-7-28 08:44</a>
+ Morfonica真爱楼 X 进藤天音真爱楼 X 武士道黑屁楼✓</blockquote>
+箱推Bushiroad的天天来顶<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
