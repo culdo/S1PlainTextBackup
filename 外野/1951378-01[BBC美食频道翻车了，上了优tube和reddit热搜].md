@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-27 12:11** 
+> ## **本文件最后更新于2020-07-28 10:11** 
 
 
 
@@ -735,10 +735,13 @@ b站有个英国做中国料理的美食主播倒是不错，叫小马逛吃
 
 
 
- 参与人数 17战斗力 -13
+ 参与人数 20战斗力 -17
 
 |昵称|战斗力|理由|
 |----|---|---|
+| banrendacha|-1|欢乐多|
+| 本异末同|-2|欢乐多|
+| 一剪平四狼|-1||
 | Hchan|-1||
 | Tissuesea|-1||
 | yakumorin|-1||
@@ -883,10 +886,11 @@ bbc: 胡扯，中式炒饭我会不懂? 早就好好研究过。我看过中国�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| wangxywd| + 1|笑死了|
 | loxker| + 1|珍珠奶茶也是蛋炒饭|
 
 
@@ -1725,10 +1729,11 @@ BBC这视频炒完鸡蛋盛出来是为了拿那 ...</blockquote>
 
 
 
- 参与人数 14战斗力 -18
+ 参与人数 15战斗力 -19
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Oasis绿洲|-1||
 | Tissuesea|-1||
 | fireflies|-1|啥玩意，爬|
 | xxren1|-1||
@@ -1848,10 +1853,11 @@ bbc: 胡扯，中式炒饭我会不懂? 早就好好研究过。我看过中国�
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Oasis绿洲| + 1|2020年了还有人信韩国是无辜的白莲花？.|
 | 重名的mufasa| + 1||
 | ballban|-1|都0202年了 怎么还有人信韩国申遗的.|
 
@@ -1977,10 +1983,11 @@ bbc: 胡扯，中式炒饭我会不懂? 早就好好研究过。我看过中国�
 
 
 
- 参与人数 6战斗力 -8
+ 参与人数 7战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| banrendacha|-1|我还记得没电饭锅的时候我们家是怎么蒸饭的.|
 | sudo_free|-1||
 | walawa|-1|80年代末并不这么煮饭|
 | 不和谐音|-1|不会做沥饭可以先百度再来大放厥词装外宾.|
@@ -2553,10 +2560,11 @@ bbc: 胡扯，中式炒饭我会不懂? 早就好好研究过。我看过中国�
 
 
 
- 参与人数 13战斗力 -18
+ 参与人数 14战斗力 -19
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 无夜不眠|-1||
 | Diabolosis|-2||
 | MaxFOrder|-1|你在教我做事？？|
 | xxren1|-1||
@@ -3462,10 +3470,11 @@ Basmati跟Milch Reis按照一比三混合，使用IH电饭锅的精煮，是我�
 
 
 
- 参与人数 11战斗力 -15
+ 参与人数 12战斗力 -16
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 无夜不眠|-1||
 | MaxFOrder|-1|你在教我做事？|
 | Tissuesea|-1||
 | エマシ—ン|-1|说话不过眼睛，说话不过脑子|
@@ -3612,10 +3621,11 @@ BBC食谱第一段原文， ...</blockquote>
 
 
 
- 参与人数 6战斗力 -6
+ 参与人数 7战斗力 -7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 无夜不眠|-1||
 | 这就是奇迹|-2||
 | エマシ—ン|-1|就硬杠，往死里杠|
 | eflni|-1|谢谢，有被笑到|
@@ -5459,4 +5469,542 @@ https://youtu.be/S2d0T5TjylM
 
 
 
-                                        
+
+
+-----
+
+####  死亡確認  
+##### 274#       发表于 2020-7-27 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226183&amp;ptid=1951378" target="_blank">smy20011 发表于 2020-7-27 09:27</a>
+
+就因为加八角，所以就“傻逼”了？</blockquote>
+加八角胡椒粉不傻逼，但是饭上面熟下面全是稀的能直接拌开，你说这是个大厨做出来的米饭？他地狱厨房里还骂过别人说稀的米饭怎么可能做出好吃的东西呢
+
+
+
+
+
+
+
+-----
+
+####  死亡確認  
+##### 275#       发表于 2020-7-27 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226558&amp;ptid=1951378" target="_blank">转生的上将 发表于 2020-7-27 10:31</a>
+
+怀疑是地方做法，放过量的水煮饭再过凉水，潮汕是有这种蒸饭方法的，没有推广开可能是因为大多数社畜没这个 ...</blockquote>
+我是潮汕人我也没见过这种做法，就算是再老家农村，比较接近的是一种煮粥的方式，但单纯是把第一次煮了的汤倒掉再加一次水煮，这样可以煮出很浓的粥来，和这个完全不一样啊
+
+
+
+
+
+
+
+-----
+
+####  kokolo  
+##### 276#       发表于 2020-7-27 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">英国人做美食节目，感觉这就是个悖论啊
+
+
+
+
+
+
+
+-----
+
+####  苏合香  
+##### 277#       发表于 2020-7-27 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226645&amp;ptid=1951378" target="_blank">dongdongdongxu 发表于 2020-7-27 10:39</a>
+我觉得可能性很大，我吃面条一定要熟透。但有些上海人吃面，面里面要极小一部分是生的，不然说是煮太烂。 ...</blockquote>
+原来这是普遍现象吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我还以为这是我常去的那家面馆的问题，不过价格便宜还离得近就没管了
+
+
+
+
+
+
+
+-----
+
+####  利物浦  
+##### 278#       发表于 2020-7-27 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48230889&amp;ptid=1951378" target="_blank">苏合香 发表于 2020-7-27 17:39</a>
+原来这是普遍现象吗我还以为这是我常去的那家面馆的问题，不过价格便宜还离得近就没管了 ...</blockquote>
+一般都能和老板说的，“面烂一点”、“面硬一点”，都可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  废话  
+##### 279#       发表于 2020-7-27 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218275&amp;ptid=1951378" target="_blank">naclken. 发表于 2020-7-26 10:27</a>
+还是炒一起嘛
+
+和分开炒不一样</blockquote>
+需要葱炝锅的。
+
+—— 来自 HUAWEI GLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SaaB35  
+##### 280#       发表于 2020-7-27 18:03
+
+
+
+ 本帖最后由 SaaB35 于 2020-7-27 19:14 编辑 
+
+roger叔叔这就约到厨师姐姐了，还拍了视频，“看起来”这姐姐是会做饭的，不知道后续怎么解释。
+
+
+可能是BBC的菜谱有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我看完整原视频只觉得，这是糟蹋饭啊，这样做饭会好吃吗……就算你是发明新的做法，但这表现出来的样子就是这个饭不好吃啊
+
+
+
+
+------
+
+
+OMG我知道这大姐是怎么学做饭的了。她几年前做过一个“如何煮印度米”的视频，印度米很长，所以煮起来需要的水就比较多。看来她就按这个米水一比二的标准做任何米了……
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 281#       发表于 2020-7-27 18:22
+
+
+
+
+大料属于合理创新，原理跟做米饭前加香油和把米饭跟灌肠一起放进电饭煲一样，无可厚非
+
+
+
+
+
+
+
+-----
+
+####  saya1892  
+##### 282#       发表于 2020-7-27 18:24
+
+
+
+
+我能接受酱油炒饭、味精炒饭、豌豆蛋炒饭，甚至如果好吃的话加八角也不介意
+
+但是沥水冲米实在是嗨呀
+
+
+
+
+
+
+
+-----
+
+####  6847651  
+##### 283#       发表于 2020-7-27 18:39
+
+
+
+
+想起了黑暗料理界对做的难吃的厨师的做法  要么死要么耻辱地过一生<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anubis_s08  
+##### 284#       发表于 2020-7-28 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231458&amp;ptid=1951378" target="_blank">6847651 发表于 2020-7-27 18:39</a>
+想起了黑暗料理界对做的难吃的厨师的做法  要么死要么耻辱地过一生</blockquote>
+洛克只是输了，顶汤又不是真的难吃，这个只出现过一次，怀疑是向恩的私刑
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  疵毛撅腚  
+##### 285#       发表于 2020-7-28 01:45
+
+
+
+
+回忆起我在大英食堂吃到过的炒饭怎么觉得bbc这女的算是正常发挥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 286#       发表于 2020-7-28 01:55
+
+
+
+ 本帖最后由 blackjeo1 于 2020-7-28 01:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226558&amp;ptid=1951378" target="_blank">转生的上将 发表于 2020-7-27 10:31</a>
+
+怀疑是地方做法，放过量的水煮饭再过凉水，潮汕是有这种蒸饭方法的，没有推广开可能是因为大多数社畜没这个 ...</blockquote>
+      你理解错了，你说的应该是潮州粥并不是蒸饭，做法也和楼主的视频是两回事
+
+
+
+
+
+
+
+-----
+
+####  你知道我的  
+##### 287#       发表于 2020-7-28 02:00
+
+
+
+
+BBC 变着法子恶心人又不是第一次了，
+
+为什么还能想着法子洗……
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 288#       发表于 2020-7-28 02:03
+
+
+
+<blockquote>远阪士郎 发表于 2020-7-26 10:25
+我炒蛋炒饭也喜欢先炒鸡蛋成形了再放饭</blockquote>
+我也是，喜欢大块大块的鸡蛋。
+
+
+
+
+
+
+
+-----
+
+####  gzwind  
+##### 289#       发表于 2020-7-28 02:16
+
+
+
+
+bbc？英国人的美食节目？那不奇怪了。
+
+
+
+
+
+
+
+-----
+
+####  banrendacha  
+##### 290#       发表于 2020-7-28 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218323&amp;ptid=1951378" target="_blank">狂河冰不烈 发表于 2020-7-26 10:32</a>
+
+一样食物，做法并不是最重要的，关键要看做出来好不好吃，然而隔着屏幕别人也不可能知道味道到底如何。 ...</blockquote>
+那您就照着做一回尝尝味道，然后评价一下
+
+
+
+
+
+
+
+-----
+
+####  磐越西线  
+##### 291#       发表于 2020-7-28 04:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226460&amp;ptid=1951378" target="_blank">茗夜雨 发表于 2020-7-27 10:19</a>
+
+人家主播回应了，自己还是会做饭的，之所以这么做是因为BBC给的菜谱就这样，就只能按这个菜谱做</blockquote>
+link？
+
+
+
+
+
+
+
+-----
+
+####  xz_04  
+##### 292#       发表于 2020-7-28 05:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234900&amp;ptid=1951378" target="_blank">磐越西线 发表于 2020-7-28 04:10</a>
+
+link？</blockquote>
+[https://twitter.com/i/status/1286794759982522370](https://twitter.com/i/status/1286794759982522370)
+
+
+
+
+
+
+
+-----
+
+####  荡寇将军张嶷  
+##### 293#       发表于 2020-7-28 05:57
+
+
+
+<blockquote>xz_04 发表于 2020-7-28 05:48
+https://twitter.com/i/status/1286794759982522370</blockquote>
+看了一眼推文回复，大部分人都在嘲笑，相当一部分还是亚裔，倒是有个自称是chinese的在洗地说这是improvise。。。。
+
+
+
+
+
+
+
+-----
+
+####  女神アイギス  
+##### 294#       发表于 2020-7-28 06:18
+
+
+
+<blockquote>各凭本事！ 发表于 2020-7-26 13:09
+我觉得这个视频需要有几个前提：
+
+
+1.你家没有专门的电饭煲。并且用煮锅煮出不夹生不糊底的米饭这种高端操作 ...</blockquote>
+不是，粘糊糊的蛋炒饭你说破大天去他也是黑暗料理啊
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 295#       发表于 2020-7-28 08:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218405&amp;ptid=1951378" target="_blank">amachi333 发表于 2020-7-26 10:43</a>
+bbc: 胡扯，中式炒饭我会不懂? 早就好好研究过。我看过中国炒饭的分类，一共九大类（九宫格），右下角那个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果是九宫图，右下角肯定是东方馅挂炒饭
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  涛哥吃上校鸡块  
+##### 296#       发表于 2020-7-28 09:06
+
+
+
+
+借地儿问个问题 那种脆脆的米是怎么做出来的啊 去饭店经常迟到那种脆米和普通米饭放在一起炒的炒饭 还挺好吃的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  杏仁小圆饼  
+##### 297#       发表于 2020-7-28 09:28
+
+
+
+<blockquote>涛哥吃上校鸡块 发表于 2020-7-28 09:06
+借地儿问个问题 那种脆脆的米是怎么做出来的啊 去饭店经常迟到那种脆米和普通米饭放在一起炒的炒饭 还挺好 ...</blockquote>
+如果指炒米，用糯米浸泡沥干炒熟，太费力所以我选择去马云买湖南炒米
+
+
+
+
+
+
+
+-----
+
+####  beckuse  
+##### 298#       发表于 2020-7-28 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48226558&amp;ptid=1951378" target="_blank">转生的上将 发表于 2020-7-27 10:31</a>
+
+怀疑是地方做法，放过量的水煮饭再过凉水，潮汕是有这种蒸饭方法的，没有推广开可能是因为大多数社畜没这个 ...</blockquote>
+潮汕人估计都没见过你说的这种做法
+
+
+
+
+
+
+
+-----
+
+####  py_250  
+##### 299#       发表于 2020-7-28 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48218267&amp;ptid=1951378" target="_blank">桐名 发表于 2020-7-26 10:26</a>
+
+用大量水煮米然后滤掉水，到这一步我都还能勉强说这是南亚做法
+
+但是煮熟了还用清水冲？？？ ...</blockquote>
+木须炖饭
+
+
+
+
+
+
+
+-----
+
+####  品味有问题  
+##### 300#       发表于 2020-7-28 09:44
+
+
+
+
+总觉得这煮米方法很眼熟，终于想起来这是西米的煮法
+
+
+
+
+
+
+
+-----
+
+####  燕子希姆  
+##### 301#       发表于 2020-7-28 09:50
+
+
+
+
+这波是稀饭冲水炒蛋，看得我食欲全无
+
+
+
+
+
+
+
+-----
+
+####  belichick  
+##### 302#       发表于 2020-7-28 09:50
+
+
+
+
+我只见过福建人做闽南咸饭是炒夹生米的。不过人家炒完还会再去电饭锅蒸一下，很香很香
+
+
+
+
+
+
+
+-----
+
+####  卡爹  
+##### 303#       发表于 2020-7-28 10:07
+
+
+
+
+完全符合英国对于厨艺的理解
+
+
+
+
+
+                                       
