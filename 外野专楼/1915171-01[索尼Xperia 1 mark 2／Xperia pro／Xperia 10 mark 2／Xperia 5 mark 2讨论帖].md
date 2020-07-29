@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-04 00:10** 
+> ## **本文件最后更新于2020-07-30 00:03** 
 
 
 
@@ -107,16 +107,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 ####  firimp-L  
 ##### 6#       发表于 2020-2-22 19:47
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46492785&amp;ptid=1915171" target="_blank">阿虚家的三味 发表于 2020-2-22 19:38</a>
-
-所以那个水滴+大下巴是不是成品？</blockquote>
-那个是骗欧洲人的低端机，真正旗舰是下周一的这个发布会发布
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -157,18 +148,7 @@ Xperia 1 Ⅱ搭载了后置三摄像头，都是12MP，对应不同焦段，还�
 ####  firimp-L  
 ##### 9#       发表于 2020-2-22 19:54
 
-
-
- 本帖最后由 firimp-L 于 2020-2-22 20:02 编辑 
-
-瀑布屏+侧面指纹？骗谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-我还是信onleaks的渲染，看起来是近几年最香的一次
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -301,7 +281,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 52)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 70)
 
 下载附件
 
@@ -368,14 +348,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 ####  行星减速器mk4  
 ##### 19#       发表于 2020-2-23 11:03
 
-
-
-
-不是说耳机孔回归，搭载全新音频技术？那样的话和其他厂商相比是真的特别先进了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -542,19 +515,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 ####  firimp-L  
 ##### 28#       发表于 2020-2-23 19:49
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46501280&amp;ptid=1915171" target="_blank">Cray 发表于 2020-2-23 19:13</a>
-
-如果渲染图没做错的话就是6.8的屏幕  反之6.6
-
-
-168.2 x 71.6 x 8.1mm</blockquote>
-忘了从哪看的了，可能是渣大big说的，一台6.8一台6.6
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -758,14 +719,7 @@ Xperia Zeta
 ####  行星减速器mk4  
 ##### 39#       发表于 2020-2-23 23:30
 
-
-
-
-x1 mk2这配置已经是我心目中的完全体了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，就是4000mah配合4k总感觉不够用
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1171,14 +1125,7 @@ Colours: +Red, Yellow 买爆
 ####  firimp-L  
 ##### 60#       发表于 2020-2-24 07:29
 
-
-
-
-索移，你好强大！
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1384,14 +1331,7 @@ Colours: +Red, Yellow 买爆
 ####  3500  
 ##### 71#       发表于 2020-2-24 11:57
 
-
-
-
-上京东看了眼索移连自营店都没了草 这就是鞋拔子和4k的战斗力吗
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1671,19 +1611,7 @@ Colours: +Red, Yellow 买爆
 ####  firimp-L  
 ##### 84#       发表于 2020-2-24 15:30
 
-、
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46509688&amp;ptid=1915171" target="_blank">临界点 发表于 2020-2-24 15:28</a>
-
-国内有没有不用翻就能看的？</blockquote>
-b站有zack在转播，不过被超管警告了，不知道还能不能播
-[https://live.bilibili.com/788425?visit_id=2ejqc3udpnb4](https://live.bilibili.com/788425?visit_id=2ejqc3udpnb4)
-
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1711,14 +1639,7 @@ b站有zack在转播，不过被超管警告了，不知道还能不能播
 ####  firimp-L  
 ##### 86#       发表于 2020-2-24 15:33
 
-
-
-
-回 顾 历 史
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1747,14 +1668,7 @@ https://live.bilibili.com/788425?visit_id=2ejqc ...</blockquote>
 ####  firimp-L  
 ##### 88#       发表于 2020-2-24 15:38
 
-
-
-
-跟泄露的差不多，牛逼
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1763,14 +1677,7 @@ https://live.bilibili.com/788425?visit_id=2ejqc ...</blockquote>
 ####  firimp-L  
 ##### 89#       发表于 2020-2-24 15:39
 
-
-
-
-耳机孔石锤
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1892,14 +1799,7 @@ MUSIC！
 ####  firimp-L  
 ##### 96#       发表于 2020-2-24 15:49
 
-
-
-
-cod?
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1938,14 +1838,7 @@ cod?
 ####  firimp-L  
 ##### 99#       发表于 2020-2-24 15:51
 
-
-
-
-黑色 紫色 白色
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2239,14 +2132,7 @@ https://m.douyu.com/452628
 ####  firimp-L  
 ##### 115#       发表于 2020-2-24 15:56
 
-
-
-
-谁知道最后的短片bgm是什么
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2415,19 +2301,7 @@ xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
 ####  firimp-L  
 ##### 125#       发表于 2020-2-24 16:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46510012&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-2-24 15:58</a>
-
-就是xperia 1 mark II还是4g版本，pri才是5g么？
-
-
-—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2 ...</blockquote>
-pro支持的是毫米波，原版应该也有5g的吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2560,14 +2434,7 @@ L这种贴牌系列本来就不会提的
 ####  伊可费斯  
 ##### 132#       发表于 2020-2-24 16:02
 
-
-
-
-糟糕是心动的感觉
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2680,14 +2547,7 @@ L这种贴牌系列本来就不会提的
 ####  firimp-L  
 ##### 139#       发表于 2020-2-24 16:07
 
-
-
-
-表示4+64完全够用
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2942,15 +2802,7 @@ sony用了几部，说说感想。
 ####  伊可费斯  
 ##### 153#       发表于 2020-2-24 16:16
 
-
-
- 本帖最后由 伊可费斯 于 2020-2-24 16:22 编辑 
-
-pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这东西支持sub6和mmw的5g？？那还可以啊，监视器+直播编码器
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3766,14 +3618,7 @@ xperia Pro因为加厚了机身来放HDMI口，好像连摄像头都不突出了
 ####  伊可费斯  
 ##### 197#       发表于 2020-2-24 16:49
 
-
-
-
-pro一定支持下，今年世界不灭亡的话<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3993,14 +3838,7 @@ mark ii~命名听着像相机~</blockquote>
 ####  firimp-L  
 ##### 209#       发表于 2020-2-24 17:05
 
-
-
-
-紫色太深了，我觉得不好看，买白色了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4126,14 +3964,7 @@ xperia 1同时代也有过pro，售价比1多3k，你们真的愿意为了专业
 ####  香月诗浓  
 ##### 216#       发表于 2020-2-24 17:28
 
-
-
-
-话放这里，如果今年一加拿不出好东西，就买
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5391,17 +5222,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 ####  香月诗浓  
 ##### 281#       发表于 2020-2-24 20:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46512785&amp;ptid=1915171" target="_blank">rahicis 发表于 2020-2-24 20:30</a>
-B站视频里面已经写了是UFS2.1和LPDDR4X了</blockquote>
-索尼不会写这些spec的，要等实机测试，那个傻屌leak视频一堆错误
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5473,16 +5294,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了</blockquote>
 ####  firimp-L  
 ##### 284#       发表于 2020-2-24 21:24
 
-
-
-
-zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-你索说pro那就真的是专业人士才用得到，普通人买民用版就好
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5500,7 +5312,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_kqOTz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_LiZ2i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -5534,16 +5346,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 ####  香月诗浓  
 ##### 287#       发表于 2020-2-24 21:28
 
-
-
-
-骚就骚咯，反正5g现在就一个证明自己跟上潮流的无用spec罢了
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6191,14 +5994,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 ####  行星减速器mk4  
 ##### 319#       发表于 2020-2-25 03:46
 
-
-
-
-还是国内厂商的堆料太可怕了，lddr4x和ufs2.1在酷安被抓着喷，甚至以为ufs2.1开软件都要十八年一样，固有成见真可怕。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6313,15 +6109,7 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 ####  rbf1993  
 ##### 325#       发表于 2020-2-25 09:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516566&amp;ptid=1915171" target="_blank">行星减速器mk4 发表于 2020-2-25 03:46</a>
-还是国内厂商的堆料太可怕了，lddr4x和ufs2.1在酷安被抓着喷，甚至以为ufs2.1开软件都要十八年一样，固有成 ...</blockquote>
-不是国内厂商堆料太可怕，而是脑残小学生和水军太多，在他们嘴里，如果他们手上的手机是4500mah，你的是4490mah，他们也会说你的手机续航尿崩，他们的续航两天无压力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7702,14 +7490,7 @@ Zack去问了台湾拿到真机的同行
 ####  行星减速器mk4  
 ##### 392#       发表于 2020-2-27 15:53
 
-
-
-
-买索尼的还怕这个...后续双卡5g肯定能开的，毕竟基带原生就支持的东西。我觉得软件屏蔽主要原因应该还是耗电的问题
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8083,14 +7864,7 @@ Xperia 1 II ・・・4月下旬本体価格は12万3552円
 ####  香月诗浓  
 ##### 412#       发表于 2020-3-18 13:27
 
-
-
-
-看来是7X99了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8966,16 +8740,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 ####  香月诗浓  
 ##### 454#       发表于 2020-4-3 11:40
 
-
-
-
-延期一个月很有可能，延期半年我是不太信
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9049,15 +8814,7 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 ####  ziyo  
 ##### 458#       发表于 2020-4-3 13:03
 
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">祖宗用上安卓10了
-
-—— 来自 Sony Xperia Z1, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9087,19 +8844,7 @@ z3和xzp呢
 ####  ziyo  
 ##### 460#       发表于 2020-4-3 15:35
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46966216&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-4-3 13:24</a>
-
-z3和xzp呢
-
-
-— from HUAWEI HDL-W09, Android 8.0.0 of S1 Next Goose v2.1.0-play</blockquote>
-没找到
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9702,16 +9447,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 ####  香月诗浓  
 ##### 491#       发表于 2020-5-2 00:01
 
-
-
-[https://www.youtube.com/watch?v=xoAJHNQ4fXw](https://www.youtube.com/watch?v=xoAJHNQ4fXw)
-
-
-光头发了个xperia 1 II相机的预吹视频，但还是没有任何进一步信息，看来测评还没解禁
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9736,18 +9472,7 @@ NTTドコモは「Xperia 1 II」の発売日を、当初予定の4月下旬以�
 ####  香月诗浓  
 ##### 493#       发表于 2020-5-3 01:13
 
-
-
-
-索尼新专业相机app演示
-
-https://b23.tv/BV1tf4y1m7VE/p1
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10249,16 +9974,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 ####  ziyo  
 ##### 518#       发表于 2020-5-22 02:27
 
-
-
-[https://www.bilibili.com/video/B ... 533596b7857493863.6](https://www.bilibili.com/video/BV1UE411E7vH?spm_id_from=888.12024.b_4d3533596b7857493863.6)
-
-
-当年你大法
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -18942,4 +18658,578 @@ pp拍的会触发叠图和hdr拍的比较好，就急了。
 
 
 
-                  
+
+
+-----
+
+####  藤原亮政  
+##### 932#       发表于 2020-7-4 15:41
+
+
+
+
+用了五天
+
+指紋識別率比1的提升太多了
+
+1的指紋識別甚至拇指連錄5個都很差
+
+1M2錄一個識別率也不錯,其他手指識別率也很好
+
+
+
+
+
+
+
+-----
+
+####  mhss  
+##### 933#       发表于 2020-7-5 12:23
+
+
+
+
+索尼前几天更新了“支持”这一app，在设备概述下面新加了一个“优化”功能，抱着试试看的心态点击了优化，结果告诉我清除了2.1G的垃圾文件（但是看不到详情），心里特别慌可是翻了翻目录又找不出到底删了些啥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c67394241a02772cee4c74b1dd9519fd/IMG_2F83EBC3E8AD9EF0BCAECFE3D0B50D8E.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 934#       发表于 2020-7-5 13:07
+
+
+
+<blockquote>mhss 发表于 2020-7-5 12:23
+索尼前几天更新了“支持”这一app，在设备概述下面新加了一个“优化”功能，抱着试试看的心态点击了优化， ...</blockquote>
+我只清了 16M。
+
+盲猜是各个 App 的缓存文件。虽然根据 App 不同，有些缓存也许会是你想要留下的… 比如音乐和视频的缓存
+
+
+
+
+
+
+
+-----
+
+####  红茶提督  
+##### 935#       发表于 2020-7-9 14:21
+
+
+
+
+买的的说说这代能原生支持应用双开嘛
+
+
+
+
+
+
+
+-----
+
+####  fishmanzero  
+##### 936#       发表于 2020-7-9 14:29
+
+
+
+
+865+还是要来，大法9月才上行货是要继续给LOGO提价吧，分分钟从1000提到2000
+
+—— 来自 Sony E6653, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 937#       发表于 2020-7-19 01:59
+
+
+
+
+下单了一个月的终于扣款，但等了几天还不见发货
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  eureka9  
+##### 938#       发表于 2020-7-19 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48148329&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-7-18 12:59</a>
+
+下单了一个月的终于扣款，但等了几天还不见发货
+
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 S1Next-鹅 ...</blockquote>
+你人在加拿大还是美国？我在美国最后还是没敢在这个店冒险买紫色，我天天安慰自己黑色也挺好看，还白送个耳机，如果坏了修也方便。。。
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 939#       发表于 2020-7-20 09:23
+
+
+
+
+艹，昨天无意中用食指和手掌的关节处给mk2解了指纹锁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 940#       发表于 2020-7-22 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149853&amp;ptid=1915171" target="_blank">eureka9 发表于 2020-7-19 11:04</a>
+你人在加拿大还是美国？我在美国最后还是没敢在这个店冒险买紫色，我天天安慰自己黑色也挺好看，还白送个 ...</blockquote>
+有本地行货还是本地吧，
+大家拿来说全是水货，那就没得选。
+刚发邮件来说下个星期发货，拜托，已经下单超过一个月。
+当初听说美版没5g，其实只是不支持美国厘米波而已。
+其他地区的5g一样支持
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 941#       发表于 2020-7-27 16:34
+
+
+
+
+想在闲鱼上收一台二手X5，但是感觉好像出手的量很少啊，都是X1比较多。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+现在全新港版的X5大概是什么价格比较合理
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 942#         楼主| 发表于 2020-7-27 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48230282&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-07-27 16:34:03</a>
+想在闲鱼上收一台二手X5，但是感觉好像出手的量很少啊，都是X1比较多。
+
+现在全新港版的X5大概是什么价格比 ...</blockquote>正品菌家是4200多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 943#       发表于 2020-7-27 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48230282&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-7-27 16:34</a>
+想在闲鱼上收一台二手X5，但是感觉好像出手的量很少啊，都是X1比较多。
+
+现在全新港版的X5大概是什么 ...</blockquote>
+现在香港封关，港行不好买吧……
+
+全新基本都在4k多点，国港价格差不了太多。但是X5M2真的快来了，X5真的值吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 944#       发表于 2020-7-27 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231846&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-27 19:32</a>
+ 现在香港封关，港行不好买吧……  全新基本都在4k多点，国港价格差不了太多。但是X5M2真的快来了，X5真的 ...</blockquote>
+说不定x5m2能有100w快冲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 945#       发表于 2020-7-27 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231846&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-27 19:32</a>
+
+现在香港封关，港行不好买吧……
+
+
+全新基本都在4k多点，国港价格差不了太多。但是X5M2真的快来了，X5真的 ...</blockquote>
+年纪大了也不追求什么最新了，主要是现在手头的XZ1c实在是有点扛不住，经常开网易云听歌再开支付宝扫描共享单车都卡个半天。。然后内存也很小，又不能把APP转移到卡里面去。
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 946#       发表于 2020-7-27 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48230899&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-7-27 17:40</a>
+
+正品菌家是4200多
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+我看搜出一些价格再3600上下的商家，这是把耳机还是什么给换了降低价格的吧，其实最理想的是在闲鱼收一台。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 947#       发表于 2020-7-28 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233541&amp;ptid=1915171" target="_blank">zhongjie 发表于 2020-7-27 22:47</a>
+说不定x5m2能有100w快冲</blockquote>
+那就不可能了，阿通虽然说下半年的865也支持qc5.0
+
+但翔移肯定不是那个最快跟进新特性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 948#       发表于 2020-7-28 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234022&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-7-27 23:45</a>
+我看搜出一些价格再3600上下的商家，这是把耳机还是什么给换了降低价格的吧，其实最理想的是在闲鱼收一台 ...</blockquote>
+给你个参考……我手上这台9.5新带保国行二手X5，花了3600收的，只有机器+盒子，没有充电没有耳机，这是四月份的价格。
+
+（然后还因为屏幕问题丢去官方售后维修了，维修回来疑似导致了散热严重缩水，游戏只能当5分钟真男人，日常使用倒是没有任何压力）
+
+能等等我觉得等X5M2挺好的，我自己也有换X5M2的冲动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，手上这台X5游戏表现太差劲实属难受。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 949#       发表于 2020-7-28 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48130245&amp;ptid=1915171" target="_blank">红茶提督 发表于 2020-7-9 14:21</a>
+买的的说说这代能原生支持应用双开嘛</blockquote>
+虽然我没买，但是双开应用可以利用工作空间，是个Android都支持
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 950#         楼主| 发表于 2020-7-28 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234438&amp;ptid=1915171" target="_blank">cleaner 发表于 2020-07-28 00:49:33</a>
+虽然我没买，但是双开应用可以利用工作空间，是个Android都支持
+
+—— 来自 Sony J9110, Android 10上的  ...</blockquote>用这个两个空间的文件不互通啊，挺费劲
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 951#       发表于 2020-7-28 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234409&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-28 00:43</a>
+
+给你个参考……我手上这台9.5新带保国行二手X5，花了3600收的，只有机器+盒子，没有充电没有耳机，这是四 ...</blockquote>
+这是严重影响使用了吧，我怀疑还有没有X5M2，而且从目前X1M2的上市速度来看，不想继续等了，而且新机上市价格肯定很高，也不想花超过4K去买一部手机。我看现在淘宝一些卖3500上下的店也不少，不过不大敢下手。
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 952#       发表于 2020-7-28 12:23
+
+
+
+
+国行的9月靠谱不靠谱啊…我的XZ快撑不住了…
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  月神侠  
+##### 953#       发表于 2020-7-28 13:08
+
+
+
+
+据说要10月<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tsounaiq  
+##### 954#       发表于 2020-7-28 15:04
+
+
+
+
+港版xz1，配了个32G内存卡感觉良好，准备再战2年！
+
+另，港版的google框架怎么才能关停，平时开着（gmail的刷新啥的都关了）有多耗电？谢谢。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 955#       发表于 2020-7-28 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48235407&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-7-28 08:30</a>
+
+这是严重影响使用了吧，我怀疑还有没有X5M2，而且从目前X1M2的上市速度来看，不想继续等了，而且新机上市 ...</blockquote>
+日常真不影响，855一代神U，日常应用根本没压力，触发不了温度墙。但是我玩崩三那种优化不行画质压力又大的游戏，玩着玩着就撞着温度墙强制降频了。单纯日常使用我倒是没啥不便的，但是上班通勤总需要玩会儿游戏，就有点憋屈。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 956#       发表于 2020-7-28 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234471&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-7-28 00:58</a>
+
+用这个两个空间的文件不互通啊，挺费劲
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+炼妖壶是有一些办法互通文件的，虽然互通的办法也挺麻烦，要ADB配合，确实用起来不大自然，步骤繁琐一点。
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 957#         楼主| 发表于 2020-7-28 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48240468&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-28 16:52</a>
+
+炼妖壶是有一些办法互通文件的，虽然互通的办法也挺麻烦，要ADB配合，确实用起来不大自然，步骤繁琐一点 ...</blockquote>
+我用xz2的时候，就没弄明白怎么才能弄到跟小米的双开一样的体验，文件相互传就很费劲
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 958#         楼主| 发表于 2020-7-28 17:50
+
+
+
+
+索尼 Xperia 1 II 获系统更新：已支持 RAW 格式拍照
+
+
+
+
+
+
+
+-----
+
+####  喷气式纸飞机  
+##### 959#       发表于 2020-7-28 20:20
+
+
+
+
+xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，平时本来就不玩游戏轻度使用，几天下来，估了一下应该可以达成两天一冲<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AU52,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 960#       发表于 2020-7-29 19:57
+
+
+
+
+需要算个数发现居然没有自带计算器…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 961#       发表于 2020-7-29 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48240432&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-28 16:49</a>
+
+日常真不影响，855一代神U，日常应用根本没压力，触发不了温度墙。但是我玩崩三那种优化不行画质压力又大 ...</blockquote>
+好吧，我看能不能蹲到一个合适的二手。
+
+
+
+
+
+                 
