@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-30 10:09** 
+> ## **本文件最后更新于2020-07-30 16:11** 
 
 
 
@@ -4434,10 +4434,11 @@ VR？那玩下来要掉半条命
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ylssb10438| + 1|双难也不难其实|
 | LightersFAN| + 1||
 | 米酒马路| + 1||
 
@@ -4791,4 +4792,461 @@ syl，这一波最受影响估计就是兔子和夸了，兔子那边合金装�
 
 
 
-                                        
+
+
+-----
+
+####  米酒马路  
+##### 278#       发表于 2020-7-30 10:11
+
+
+
+ 本帖最后由 米酒马路 于 2020-7-30 13:45 编辑 
+
+这波删档令人扼腕，抢救计划绝赞进行中。先放一份血源，阿b熟肉也存了，以防万一。
+
+
+链接：[https://pan.baidu.com/s/1ktTvoH5Qln_ByhJkFIgTsg](https://pan.baidu.com/s/1ktTvoH5Qln_ByhJkFIgTsg)
+
+
+提取码：53lh
+
+
+（阿b的不带弹幕，魂系的弹幕...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mengnvpu| + 1||
+| ylssb10438| + 1|阿b的带弹幕吗|
+| kolu33| + 1|好评加鹅|
+| yuezhi| + 1||
+| JoelBirch| + 1|牛批！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 279#       发表于 2020-7-30 10:39
+
+
+
+
+尼尔也没了？f**k
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 280#       发表于 2020-7-30 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">妈的，这对游戏主播湊阿夸实在太残忍了吧。
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 281#       发表于 2020-7-30 10:47
+
+
+
+ 本帖最后由 kolu33 于 2020-7-30 10:50 编辑 
+
+尼尔不是se的么？ syl,任天堂、SE、FS、卡普空......都是耳熟能详的名字，你们说游戏主播还剩几年？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 282#       发表于 2020-7-30 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这。。。。我去年的回忆全没了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 283#       发表于 2020-7-30 11:15
+
+
+
+
+给她规划好了，以后就单人玩玩apex，多人玩玩mc，杂谈+唱歌混混日子算了
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 284#       发表于 2020-7-30 11:16
+
+
+
+
+游戏主播游戏主播
+真的两年回忆啊
+洋葱，洋葱
+唉
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 285#       发表于 2020-7-30 11:24
+
+
+
+
+“空阿库娅，我是hololive所属的虚拟偶像凑阿库娅，最喜欢玩游戏了，生于**，成长于**，和大家最emo的回忆是**的三周目E结局。”
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 286#       发表于 2020-7-30 11:25
+
+
+
+
+想当年还是看洋葱打黑魂入坑的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 287#       发表于 2020-7-30 11:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">净土宗烦死了。运营亲儿子。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 288#       发表于 2020-7-30 12:17
+
+
+
+
+其实可以考虑一下回去玩LOL，世界赛也快要开始了
+
+
+
+
+
+
+
+-----
+
+####  kesoi  
+##### 289#       发表于 2020-7-30 12:58
+
+
+
+
+尼姑庵大家庭楼一群人什么样子也不是不知道，没必要去那里找气
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 290#       发表于 2020-7-30 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48257765&amp;ptid=1947500" target="_blank">kolu33 发表于 2020-7-30 10:47</a>
+
+尼尔不是se的么？ syl,任天堂、SE、FS、卡普空......都是耳熟能详的名字，你们说游戏主播还剩几年？ ...</blockquote>
+只有一直有新游戏，不犯啥大错，干个十几年真没啥问题，就是在holo的这段时间比较难顶
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 291#       发表于 2020-7-30 13:07
+
+
+
+
+玩游戏死路一条  成为偶像吧！
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 292#         楼主| 发表于 2020-7-30 14:58
+
+
+
+
+6点一班，晚上可能还有
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 293#       发表于 2020-7-30 15:02
+
+
+
+
+一天两动，呜呜呜。我不管，一定是为了安抚躁动的小crew。
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 294#       发表于 2020-7-30 15:08
+
+
+
+
+又来一轮私享，频道都快清空了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 295#       发表于 2020-7-30 15:18
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-7-30 15:21 编辑 
+
+又好气又好笑，杂谈都能没了，隔壁空妈连原创曲都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 296#       发表于 2020-7-30 15:25
+
+
+
+
+夸夸以后要做虚拟idol了吗🤔
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 297#       发表于 2020-7-30 15:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这尼玛，全没了，holo赶紧倒闭吧
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 298#       发表于 2020-7-30 15:29
+
+
+
+
+@rin_co_co  现在切大号还来得及
+
+此时不禁想到黑宝名言，挺受用的
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 299#       发表于 2020-7-30 15:31
+
+
+
+
+看了一眼，没剩几个了，初代目自我介绍也没了，差不多可以毕业了
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 300#       发表于 2020-7-30 15:32
+
+
+
+<img src="https://i.imgur.com/2vioDKk.png" referrerpolicy="no-referrer">
+
+
+等一个twitch玩流浪的妹子
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 301#         楼主| 发表于 2020-7-30 15:52
+
+
+
+
+油管目前只剩下最近一个月的直播存档
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 302#       发表于 2020-7-30 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 303#       发表于 2020-7-30 16:08
+
+
+
+
+没了，没了，都没了。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
