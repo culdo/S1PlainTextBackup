@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-28 20:13** 
+> ## **本文件最后更新于2020-07-30 22:12** 
 
 
 
@@ -2170,4 +2170,571 @@ sg造谣成功
 
 
 
-                                             
+
+
+-----
+
+####  刻刻帝  
+##### 123#       发表于 2020-7-28 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48241780&amp;ptid=1951401" target="_blank">屠夫 发表于 2020-7-28 19:10</a>
+要么把出狱的赵洁再娶回来吧，正好孩子也有了</blockquote>
+赵洁出狱是有啥说法吗
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  iceplatinum  
+##### 124#       发表于 2020-7-28 20:31
+
+
+
+
+面8被绿了2次了啊...
+
+面8还是名声太显了，小天鹅人尽所知，女方肯定会底线也低些啊
+
+
+
+
+
+
+
+-----
+
+####  三千珈蓝  
+##### 125#       发表于 2020-7-28 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242365&amp;ptid=1951401" target="_blank">刻刻帝 发表于 2020-7-28 20:20</a>
+
+赵洁出狱是有啥说法吗
+
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+小道消息说是之前和人合伙搞p2p进去了，真假存疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mkii量产型  
+##### 126#       发表于 2020-7-28 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八师傅以身作则确定了女人不能娶到互联网真理
+
+
+
+
+
+
+
+-----
+
+####  mamc06  
+##### 127#       发表于 2020-7-28 20:49
+
+
+
+
+意思是“好帽子，八王戴？”
+
+
+
+
+
+
+
+-----
+
+####  C男  
+##### 128#       发表于 2020-7-28 20:59
+
+
+
+
+火锅店买通8老板老婆搞事转移话题
+
+
+
+
+
+
+
+-----
+
+####  loli炮  
+##### 129#       发表于 2020-7-28 21:35
+
+
+
+
+下面8找那些女人能长久才怪了  何况本身就不是啥好鸟
+
+
+
+
+
+
+
+-----
+
+####  野王明凯  
+##### 130#       发表于 2020-7-29 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48219832&amp;ptid=1951401" target="_blank">toyassb 发表于 2020-7-26 14:17</a>
+
+你们刀狗没有自己的论坛么</blockquote>
+唯一电竞给你面子你别不知好歹
+
+
+
+
+
+
+
+-----
+
+####  ishikawa_k  
+##### 131#       发表于 2020-7-29 17:08
+
+
+
+
+直播平台买的热搜吧，自家还是对家就不好说了
+
+
+
+
+
+
+
+-----
+
+####  枯风瘦雪  
+##### 132#       发表于 2020-7-29 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48250615&amp;ptid=1951401" target="_blank">ishikawa_k 发表于 2020-7-29 17:08</a>
+
+直播平台买的热搜吧，自家还是对家就不好说了</blockquote>
+斗鱼虎牙不是一直在传合并，没准是腾讯买的。。。
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 133#       发表于 2020-7-29 21:00
+
+
+
+
+原来这事在s1也这么热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 134#       发表于 2020-7-30 12:37
+
+
+
+
+看了下带节奏的截的rep分析
+
+优势局鳖鳖TB17分钟出个点金手
+
+我钢针，3000分玩家都没这么智障的了吧...
+
+
+
+
+
+
+
+-----
+
+####  枯风瘦雪  
+##### 135#       发表于 2020-7-30 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259191&amp;ptid=1951401" target="_blank">何然 发表于 2020-07-30 12:37:16</a>
+看了下带节奏的截的rep分析
+
+优势局鳖鳖TB17分钟出个点金手
+
+我钢针，3000分玩家都没这么智障的了吧... ...</blockquote>burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的时候才发现他开始钻野的时候所有大哥经济都差不多……
+当然，玩个tb为啥觉得自己崩了要补的时候出的是点金那就是burning的神之理解了……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 136#       发表于 2020-7-30 12:46
+
+
+
+<blockquote>枯风瘦雪 发表于 2020-7-30 12:45
+burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的时候才发现他开始钻野的时候所有大哥经济都差不 ...</blockquote>
+被杀两次就觉得自己崩了？不看经济面板的？还是说退役选手连多少分钟多少经济都没b数的吗…
+
+
+
+
+
+
+
+-----
+
+####  枯风瘦雪  
+##### 137#       发表于 2020-7-30 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259301&amp;ptid=1951401" target="_blank">何然 发表于 2020-07-30 12:46:19</a>
+被杀两次就觉得自己崩了？不看经济面板的？还是说退役选手连多少分钟多少经济都没b数的吗… ...</blockquote>这个谁知道他临场怎么想的，这个“我崩了”的话还是他被何雍正吐槽打法心态爆炸才吐出来的……其实按我看法，一个TB，5级双系带假腿进野开始刷，这发育情况简直不要太正常……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 138#       发表于 2020-7-30 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事好像鳖不过去了呀，互联网的记忆这次不止三天，以后如果鳖鳖还出来解说，满屏都是这些吧
+
+
+
+
+
+
+
+-----
+
+####  ♂藤冈豆腐店♂  
+##### 139#       发表于 2020-7-30 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259975&amp;ptid=1951401" target="_blank">nerugigannte 发表于 2020-7-30 13:38</a>
+
+这事好像鳖不过去了呀，互联网的记忆这次不止三天，以后如果鳖鳖还出来解说，满屏都是这些吧 ...</blockquote>
+以后解说比赛的时候估计满屏弹幕都是要求XZ雷和嘉宾的MA连麦了
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 140#       发表于 2020-7-30 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259661&amp;ptid=1951401" target="_blank">枯风瘦雪 发表于 2020-7-30 13:13</a>
+
+这个谁知道他临场怎么想的，这个“我崩了”的话还是他被何雍正吐槽打法心态爆炸才吐出来的……其实按我看法 ...</blockquote>
+不是正常
+
+一般来说我是这个状态的话，判定是“这把还挺顺”
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 141#       发表于 2020-7-30 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖式刀塔是这样的啊
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 142#       发表于 2020-7-30 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48259975&amp;ptid=1951401" target="_blank">nerugigannte 发表于 2020-7-30 13:38</a>
+
+这事好像鳖不过去了呀，互联网的记忆这次不止三天，以后如果鳖鳖还出来解说，满屏都是这些吧 ...</blockquote>
+今天好像直播间都是在17分钟点金手了
+
+说实话我是真的觉得...
+
+如果他是想赢的话，出装思路真的配不上“退役职业选手”这个称号...
+
+
+
+
+
+
+
+-----
+
+####  FateAlter  
+##### 143#       发表于 2020-7-30 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48233329&amp;ptid=1951401" target="_blank">白色的120 发表于 2020-7-27 22:19</a>
+
+小糯米一开始搞直播的，max有人说直播那会儿，搞过商务5000一晚</blockquote>
+放一开始我肯定还怀疑下，不过MAX这个爆出来之前我就听同学的朋友说以前和小糯米是**，再加上这手机号的支付宝还真是陈彤，我感觉八九不离十好吧
+
+
+
+
+
+
+
+-----
+
+####  白色的120  
+##### 144#       发表于 2020-7-30 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48260299&amp;ptid=1951401" target="_blank">♂藤冈豆腐店♂ 发表于 2020-7-30 14:03</a>
+以后解说比赛的时候估计满屏弹幕都是要求XZ雷和嘉宾的MA连麦了</blockquote>
+刀斯林的妈🐴真的需要保护，练马🐴船，杀马🐴刀，黏马🐴眼，连马🐴麦
+
+— from Xiaomi MI 8, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  TheOccuria  
+##### 145#       发表于 2020-7-30 16:01
+
+
+
+
+憋憋那把不算顺吧，不过问题是对面巨魔更不顺。憋点金没看懂，我是觉得tb光靠分身刷的就很快了，哪怕真崩了也没有单刀后补个点金的道理
+
+巨魔也是野区王子偶尔找轮子要个buff混日子，不过出装挺正常的
+
+
+真要说崩，上路那波队友去追残血，留tb被巨魔把鳖壳都搂碎了弄得心态崩了吧
+
+
+
+
+
+
+
+-----
+
+####  43453  
+##### 146#       发表于 2020-7-30 17:02
+
+
+
+
+鳖式打发真是让我粉转黑了，本来IG那段时间治好病了又复发，鳖加黑脸真活该没成绩
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 147#       发表于 2020-7-30 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48261767&amp;ptid=1951401" target="_blank">TheOccuria 发表于 2020-7-30 16:01</a>
+
+憋憋那把不算顺吧，不过问题是对面巨魔更不顺。憋点金没看懂，我是觉得tb光靠分身刷的就很快了，哪怕真崩了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算挺顺了
+
+也就自己加了个1技能有点坑，5级有个3级分身钻野再正常不过了
+
+这年头除了蓝胖子和放对面召唤速推，我是真搞不懂出点金的意义
+
+可能这就是第一C的理解吧..
+
+
+
+
+
+
+
+-----
+
+####  fr0stzer0  
+##### 148#       发表于 2020-7-30 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48261598&amp;ptid=1951401" target="_blank">白色的120 发表于 2020-7-30 15:48</a>
+刀斯林的妈🐴真的需要保护，练马🐴船，杀马🐴刀，黏马🐴眼，连马🐴麦
+
+— from Xiaomi MI 8, Android 10  ...</blockquote>
+舔马/眼是什么事？这个我不清楚啊，能说说嘛
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 149#       发表于 2020-7-30 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48262992&amp;ptid=1951401" target="_blank">fr0stzer0 发表于 2020-7-30 17:32</a>
+舔马/眼是什么事？这个我不清楚啊，能说说嘛</blockquote>
+黏🐴眼是指冰眼吧
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 150#       发表于 2020-7-30 18:38
+
+
+
+ 本帖最后由 Keynes 于 2020-7-30 18:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48262992&amp;ptid=1951401" target="_blank">fr0stzer0 发表于 2020-7-30 17:32</a>
+
+舔马/眼是什么事？这个我不清楚啊，能说说嘛</blockquote>
+善良泽宇经典语录，有一把比赛出了冰眼然后没输出，被人wb质疑为什么要出冰眼
+
+另外补充一下：还有一个耗🐎hao<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+5ead1a087bf40ad16795550a5a2c11dfa8ecce38.jpg
+(157.81 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-7-30 18:38 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/30/183819jns6aeoxtmdazz0z.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fr0stzer0  
+##### 151#       发表于 2020-7-30 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48263620&amp;ptid=1951401" target="_blank">Keynes 发表于 2020-7-30 18:38</a>
+
+善良泽宇经典语录，有一把比赛出了冰眼然后没输出，被人wb质疑为什么要出冰眼
+
+另外补充一下：还有一个耗🐎 ...</blockquote>
+你一放这张图我就想起来了，还是泽宇人气不大，不怎么被提起。
+
+
+
+
+
+                                            
