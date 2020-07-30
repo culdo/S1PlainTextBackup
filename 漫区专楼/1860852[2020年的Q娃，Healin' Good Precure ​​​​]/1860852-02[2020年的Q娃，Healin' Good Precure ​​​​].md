@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-20 20:00** 
+> ## **本文件最后更新于2020-07-30 20:00** 
 
 
 
@@ -3333,7 +3333,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_e23sr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_gLn77" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5098,7 +5098,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_R24h7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_QuwUQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -13477,4 +13477,560 @@ doremi的联动就这个 还不如不官宣 当一个小彩蛋德了 反对dorem
 
 
 
-                         
+
+
+-----
+
+####  最强惠酱  
+##### 2223#       发表于 2020-7-20 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48165847&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-7-20 19:53</a></blockquote>
+好好看
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 2224#       发表于 2020-7-20 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48155903&amp;ptid=1860852" target="_blank">kirimori 发表于 2020-7-19 23:00</a>
+上周兔子回感觉和佳和兔子的关系比和其他两个人还亲，让我觉得兔子之后人形变追加都不奇怪，可惜偷跑情报是 ...</blockquote>
+剧场版期待下？
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2225#       发表于 2020-7-20 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48166437&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-7-20 20:40</a>
+
+好好看</blockquote>
+
+<img src="http://wx4.sinaimg.cn/large/005YX8J2ly1ggt0sr2995j30hs0lwadj.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/005YX8J2ly1ggt0st8n2sj30lt0zkx6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/005YX8J2ly1ggt0srbumrj30hs0uqtcm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/005YX8J2ly1ggt0srhsqsj30hs0ixju2.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/005YX8J2ly1ggt0srnbnvj30hs0jawh3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2226#       发表于 2020-7-20 22:49
+
+
+
+
+嘛 今年也就能口嗨一下 人类之间大概率是真·友情 
+
+从前面的集数来看 今年淫 兽戏份很高 我猜今年结局重点在和淫 兽的告别 
+
+
+哦对了还有个古代人要告别 再想想这集…………<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 2227#       发表于 2020-7-20 23:30
+
+
+
+
+越看越像是长熟了的九条光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2228#       发表于 2020-7-21 06:44
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggy6n76cufj20u00u0akm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2229#       发表于 2020-7-21 07:30
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-7-21 07:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169001&amp;ptid=1860852" target="_blank">rxrx 发表于 2020-7-20 23:30</a>
+
+越看越像是长熟了的九条光</blockquote>
+OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202007/21/073346ybjp6lhw4oov6poo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[FLsnow][Healin'Good_Precure][05][CHS].mp4_snapshot_02.05_[2020.07.21_07.29.36].jpg</strong> (71.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-21 07:33 上传
+
+
+
+
+
+
+
+（怎么突然没法直接插入外链的图片了）
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2230#       发表于 2020-7-24 20:19
+
+
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gh2bmyqp10j20ez17xjx3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2231#       发表于 2020-7-25 12:22
+
+
+
+
+明天是蓝毛回了吧
+
+上次蓝毛回是什么时候？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2232#       发表于 2020-7-25 15:39
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-7-25 19:54 编辑 
+
+今年的vocal album和character single有无损资源了，后者居然只有三首歌，而且四人版的OP1的合唱质量很一般，可能因为疫情而取消了不少排练吧
+
+森森森的歌不错
+
+
+北川理恵 &amp; 宮本佳那子 不愧是专业歌手，在 かえりたい場所 里飙高音玩<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2233#       发表于 2020-7-25 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿妈Q娃好好看！
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2234#       发表于 2020-7-26 07:59
+
+
+
+
+传统艺能 ​​​​
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gh41hkldu3j21400mihdt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wilkyway  
+##### 2235#       发表于 2020-7-26 19:00
+
+
+
+
+春剧场版变秋剧场版了海星
+
+秋天自家的不知道延期到多会..总不能明年的女人出来再放吧
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2236#       发表于 2020-7-26 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下集预告，流石妈q
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2237#       发表于 2020-7-26 21:28
+
+
+
+ 本帖最后由 JustW 于 2020-7-26 21:30 编辑 
+
+这集啊，温泉小女管家？下集预告有点意思，又喜欢上人类了，还是大妈
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2238#       发表于 2020-7-26 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48221491&amp;ptid=1860852" target="_blank">wilkyway 发表于 2020-7-26 19:00</a>
+
+春剧场版变秋剧场版了海星
+
+秋天自家的不知道延期到多会..总不能明年的女人出来再放吧 ...</blockquote>
+说不定明年的女人也会被推迟
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2239#       发表于 2020-7-26 22:26
+
+
+
+
+现在最好的办法 治愈和初代战队有两年 假如明年奥运会能正常开办 还是会影响明年女人总体集数 还不如变通一下
+
+剧场版这一下变动把春季变成独立剧场版 秋季变成全明星 这一变动是永久还是临时的不得而知 影响主要还是追加战士地位
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2240#       发表于 2020-7-26 23:13
+
+
+
+
+怪不得知优有股姐姐味，原来真的有个弟弟
+
+掌柜全是女性，有点怀疑这个爹是不是入赘的。话说以后知优是不是该叫蓝掌柜了
+
+严重谴责没有泡脚特写画面，亏我还期待了一下<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+熟女q娃，best q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2241#       发表于 2020-7-27 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48224085&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-7-26 23:13</a>
+
+怪不得知优有股姐姐味，原来真的有个弟弟
+
+掌柜全是女性，有点怀疑这个爹是不是入赘的。话说以后知优是不是 ...</blockquote>
+不应该叫蓝若女将么<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+这集的外国小萝莉……标准日本小孩……哎算了 反正是给小友看的 
+
+
+真来个整天玩手机平板的难道让知优和萝莉玩堡垒之夜么……
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2242#       发表于 2020-7-27 20:54
+
+
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gh5f3ilfvxj20jb0ij7wh.jpg" referrerpolicy="no-referrer">
+
+这第四人一伤心就会变透明吗……？
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2243#       发表于 2020-7-27 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48231718&amp;ptid=1860852" target="_blank">leleq 发表于 2020-7-27 19:12</a>
+
+不应该叫蓝若女将么
+
+
+这集的外国小萝莉……标准日本小孩……哎算了 反正是给小友看的 </blockquote>
+不要代入现在的小孩，被电子设备毒害太深了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2244#       发表于 2020-7-27 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48232512&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-7-27 20:54</a>
+
+这第四人一伤心就会变透明吗……？</blockquote>
+这么个玩意 打完该怎么办？送回过去？那不就死了么 
+
+
+
+
+
+
+
+-----
+
+####  上坂莲华  
+##### 2245#       发表于 2020-7-28 00:23
+
+
+
+ 本帖最后由 上坂莲华 于 2020-7-28 00:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48232837&amp;ptid=1860852" target="_blank">leleq 发表于 2020-7-27 21:30</a>
+这么个玩意 打完该怎么办？送回过去？那不就死了么</blockquote>
+住和佳家了啊，过个童养媳判定<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2246#       发表于 2020-7-28 12:50
+
+
+
+ 本帖最后由 猫爪挠玻璃 于 2020-7-28 12:51 编辑 
+
+<img src="https://s1.ax1x.com/2020/07/28/aAumsx.png" referrerpolicy="no-referrer">编辑了，我看成横的了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2247#       发表于 2020-7-28 15:41
+
+
+
+ 本帖最后由 leleq 于 2020-7-28 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234294&amp;ptid=1860852" target="_blank">上坂莲华 发表于 2020-7-28 00:23</a>
+
+住和佳家了啊，过个童养媳判定</blockquote>
+留下来 那比月光姐还惨了 月光姐至少还留了个妈啊……<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+另外我很好奇staff会怎么描写当其他3人再憧憬未来时的女鬼（黑户没文凭找工作困难啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2248#       发表于 2020-7-28 15:47
+
+
+
+
+对了 从抱Q以来额外： 机器人 外星兽人 女鬼 不知道明年会搞出什么呢 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2249#       发表于 2020-7-28 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48141945&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-7-18 12:14</a>
+
+还有宫本生孩子了 问题是她是2月宣布结婚的 现在7月生孩子 难道是奉子成婚
+
+今年ed1是齐藤唱 而ed2又换成了 ...</blockquote>
+时间上像是奉子成婚，不过不排除早领证晚宣发的可能，隐婚了一段时间。
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2250#       发表于 2020-7-29 09:15
+
+
+
+
+奉子成婚？
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2251#       发表于 2020-7-30 18:50
+
+
+
+
+8月9日，森森森登场！
+<img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gh8tr9sr6aj21cr0ir7fl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
