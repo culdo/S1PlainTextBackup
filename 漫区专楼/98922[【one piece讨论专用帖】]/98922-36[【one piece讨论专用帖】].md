@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-30 18:01** 
+> ## **本文件最后更新于2020-07-31 22:01** 
 
 
 
@@ -11783,4 +11783,700 @@ Laugh Tale能用永久指针达到……从这个设定上看我就觉得狂热�
 
 
 
-                            
+
+
+-----
+
+####  svmkty  
+##### 53132#       发表于 2020-7-30 18:14
+
+
+
+ 本帖最后由 svmkty 于 2020-7-30 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48260180&amp;ptid=98922" target="_blank">武男 发表于 2020-7-30 13:52</a>
+
+凯多这个偷袭王当初是怎么从海军和其他四皇那跑出来的，不会是真的谋划好了去碰瓷吧 ...</blockquote>
+大概是宣发文案做的好，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不过凯多大妈这两四皇目前表现的确不尽如人意，不说巅峰罗杰白胡子卡普，似乎还不如顶上的赤犬，难道是为了五年内结束海贼王加快进度？？
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53133#       发表于 2020-7-30 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48263420&amp;ptid=98922" target="_blank">svmkty 发表于 2020-7-30 18:14</a>
+
+大概是宣发文案做的好，不过凯多大妈这两四皇目前表现的确不尽如人意，不说巅峰罗杰白胡子卡普，似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我觉得凯多大概是真的就是靠面板硬吃对面了，他这样的力量也不比其他的高哪去啊，我就不信狗哥和卡普一起上抓不了他。当初白团被黑得多惨，现在看凯多去估计也就是C个锤子。白团一个队长正面偷袭掉对面的武器，K能踢下去，小马哥也能踢。
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 53134#       发表于 2020-7-30 19:04
+
+
+
+
+有什么用，最后还不是得哭着喊“五皇帮帮我”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ 来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 53135#       发表于 2020-7-30 19:21
+
+
+
+
+传统不能丢啊，谁先回忆谁上船<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+罗：上你大爷啊！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53136#       发表于 2020-7-30 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48260180&amp;ptid=98922" target="_blank">武男 发表于 2020-7-30 13:52</a>
+
+凯多这个偷袭王当初是怎么从海军和其他四皇那跑出来的，不会是真的谋划好了去碰瓷吧 ...</blockquote>
+
+
+都能偷袭御田，偷袭个大将和四皇又如何
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53137#       发表于 2020-7-30 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48264759&amp;ptid=98922" target="_blank">evangelina 发表于 2020-7-30 20:32</a>
+
+都能偷袭御田，偷袭个大将和四皇又如何</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想了下，偷袭王本身也是个面板怪，出现这种情况其实也不奇怪，下一话说不定就反杀了。但会不会是白胡子的套路再演，大战前先削弱一波呢。
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 53138#       发表于 2020-7-30 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48263999&amp;ptid=98922" target="_blank">hagane 发表于 2020-7-30 19:21</a>
+传统不能丢啊，谁先回忆谁上船
+
+罗：上你大爷啊！</blockquote>
+凯多：我先回忆了，你们看着办
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 53139#       发表于 2020-7-31 01:02
+
+
+
+
+传次郎就算了，但是连锦卫门都破防的话，是因为凯多被回忆中的御田吓一跳，把自己的防御力降低了吗。
+要知道旁白钦定凯多刀枪不入的，路飞的四挡也就醒酒而已。
+锦卫门和雷藏，小菊一行可是比传次郎，阿修罗童子和猫狗、以藏少了20年经验
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53140#       发表于 2020-7-31 06:16
+
+
+
+ 本帖最后由 灰狼 于 2020-7-31 06:18 编辑 
+
+大蛇要是后面起来给凯多一刀我就承认他是高配明哥
+
+
+这次计划倒是完美无缺地实行了，本身宴会期间戒备松懈，路飞基德和两个船副吸引了全场目光，联军几乎全员进入理想位置，获得了巨大先手优势
+
+
+“您说的这些都很美好，但是对面有两个四皇欸”
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 53141#       发表于 2020-7-31 09:39
+
+
+
+
+大和的手铐这么简单就拿掉了？
+
+
+
+
+
+
+
+-----
+
+####  斯卡哈  
+##### 53142#       发表于 2020-7-31 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48268892&amp;ptid=98922" target="_blank">584520184 发表于 2020-7-31 09:39</a>
+
+大和的手铐这么简单就拿掉了？</blockquote>
+兔碗那里取项圈就展示了五皇已经有这个能力了，流樱练了这么久肯定能熟练摘环了。打凯多估计也要靠这个
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53143#       发表于 2020-7-31 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48267889&amp;ptid=98922" target="_blank">灰狼 发表于 2020-7-31 06:16</a>
+
+大蛇要是后面起来给凯多一刀我就承认他是高配明哥
+
+
+这次计划倒是完美无缺地实行了，本身宴会期间戒备松懈， ...</blockquote>
+虽然有白团残党的支援可以解决凯多的手下们了，但是两个四皇，我觉得还是得加新变数才能成功，这次会不会是新大将登场来加码呢。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53144#       发表于 2020-7-31 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48269176&amp;ptid=98922" target="_blank">武男 发表于 2020-7-31 10:02</a>
+
+虽然有白团残党的支援可以解决凯多的手下们了，但是两个四皇，我觉得还是得加新变数才能成功，这次会不会 ...</blockquote>
+我觉得白团残党可能主要工作还是拖大妈手下
+
+
+至少小马哥和长子还有得玩
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53145#       发表于 2020-7-31 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48269176&amp;ptid=98922" target="_blank">武男 发表于 2020-7-31 10:02</a>
+
+虽然有白团残党的支援可以解决凯多的手下们了，但是两个四皇，我觉得还是得加新变数才能成功，这次会不会 ...</blockquote>
+我觉得白团残党可能主要工作还是拖大妈手下
+
+
+至少小马哥和长子还有得玩
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53146#       发表于 2020-7-31 10:30
+
+
+
+ 本帖最后由 武男 于 2020-7-31 10:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48269368&amp;ptid=98922" target="_blank">灰狼 发表于 2020-7-31 10:21</a>
+
+我觉得白团残党可能主要工作还是拖大妈手下
+
+
+至少小马哥和长子还有得玩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">已经一脚定江山了啊，再上来的时候局势就会天翻地覆了。但是两个四皇还是太难打，除非加入新的变数吧，不然还是难顶。从凯多的话里来看他觉得四皇+2，集合古代兵器才能C，那么看看海军的动向吧。除非捡漏王黑胡子再登场。
+
+
+
+
+
+
+
+-----
+
+####  亚瑟姆·明日野  
+##### 53147#       发表于 2020-7-31 10:40
+
+
+
+
+让青稚过来吧
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53148#       发表于 2020-7-31 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48269567&amp;ptid=98922" target="_blank">亚瑟姆·明日野 发表于 2020-7-31 10:40</a>
+
+让青稚过来吧</blockquote>
+鸡哥来倒也可以，算是帮黑胡子舔包嘛
+
+
+
+
+
+
+
+-----
+
+####  亚瑟姆·明日野  
+##### 53149#       发表于 2020-7-31 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48269911&amp;ptid=98922" target="_blank">武男 发表于 2020-7-31 11:09</a>
+
+鸡哥来倒也可以，算是帮黑胡子舔包嘛</blockquote>
+如果让青稚过来的话其实想让红发那边也派个人过来。很刺激
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53150#       发表于 2020-7-31 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48270095&amp;ptid=98922" target="_blank">亚瑟姆·明日野 发表于 2020-7-31 11:25</a>
+
+如果让青稚过来的话其实想让红发那边也派个人过来。很刺激</blockquote>
+贝克曼大王来也就行了，反正和红发五五开
+
+
+
+
+
+
+
+-----
+
+####  亚瑟姆·明日野  
+##### 53151#       发表于 2020-7-31 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48270214&amp;ptid=98922" target="_blank">武男 发表于 2020-7-31 11:37</a>
+
+贝克曼大王来也就行了，反正和红发五五开</blockquote>
+主要是四皇势力现在算上白胡子残党都有3个了,如果青稚也过来的话就差红发了。不派个人来搅局好像有点被排挤的感觉。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53152#       发表于 2020-7-31 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48270498&amp;ptid=98922" target="_blank">亚瑟姆·明日野 发表于 2020-7-31 12:04</a>
+
+主要是四皇势力现在算上白胡子残党都有3个了,如果青稚也过来的话就差红发了。不派个人来搅局好像有点被排 ...</blockquote>
+就是不知道鸡哥残了以后，战斗力会如何，单单从对线火鸡那来说应该没变弱
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 53153#       发表于 2020-7-31 12:23
+
+
+
+
+堪十郎死的也太没排面了。。。
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53154#       发表于 2020-7-31 13:10
+
+
+
+
+我发现我已经很难从海贼情报里提取关键信息了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 53155#       发表于 2020-7-31 17:01
+
+
+
+ 本帖最后由 gs2-d2up 于 2020-7-31 17:06 编辑 
+
+看完986了，我嗷嗷大哭。
+
+第一页非常有意境——明明是决战前夕，却有静谧之感，再加上回忆，日式美学拉满了，有昭和时期的武士电影的味道了。
+
+最后一页左边的大图也是，冲击感十足，要是出原画复刻我买爆。
+
+凯多：[你的名字叫什么]虽然让我短暂跳戏到君の名前は，但在看到下一页的时候就被及时拉回来了。
+
+个人觉得这一话是近期数一数二的了，从意境到分镜，满分，有看电影的感觉。
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 53156#       发表于 2020-7-31 17:27
+
+
+
+
+感觉凯多很看重大和应该不是对她没有感情，但可能更无法容忍大和崇拜御田所以宁愿给她戴上炸弹手环也一定要把她囚禁在岛上看管。大和这性格还是太纯了点，完全就像是不谙世事的大家闺秀，感觉凯多可能对她也很头疼
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 53157#       发表于 2020-7-31 17:53
+
+
+
+
+堪十郎被传次郎他们干死了？
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 53158#       发表于 2020-7-31 18:38
+
+
+
+
+虽然最后九人合力一击，但总觉得凯多老大能靠六围硬吃这一发，顶多一起从楼上掉下来
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 53159#       发表于 2020-7-31 19:56
+
+
+
+
+我怎么觉得这合击对凯多不痛不痒呢，毕竟是不死之身，又是幻兽种，路飞说流樱能破凯多的防也只是自己一厢情愿的想法而已，另外，其他势力要怎么加入呢，目前保密工作做得挺好的吧，消息应该没传出去这么快。
+
+
+
+
+
+
+
+-----
+
+####  牧濑紅莉栖  
+##### 53160#       发表于 2020-7-31 19:57
+
+
+
+
+这一话感觉是今年以来最好的一话了
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 53161#       发表于 2020-7-31 20:22
+
+
+
+
+大和他妈什么时候出来啊，突然发现四皇就红发膝下无子了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 53162#       发表于 2020-7-31 20:24
+
+
+
+
+最后赤鞘九侠和凯多同框，御天存在回忆中，似乎是凯多的回忆？难道以前凯多被御天打败赶出了和之国？？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53163#       发表于 2020-7-31 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48275875&amp;ptid=98922" target="_blank">灌水机 发表于 2020-7-31 20:24</a>
+
+最后赤鞘九侠和凯多同框，御天存在回忆中，似乎是凯多的回忆？难道以前凯多被御天打败赶出了和之国？？
+
+
+— ...</blockquote>
+“你们那些破刀伤不了我。。。”然后马上想起了20年前被御田用刀砍伤的事。
+
+
+这里是表达凯多心有余悸，“难道这帮人和御田一样能砍伤我？”
+
+
+当然看了最后一页就知道是不可能的，不带霸气的普通刀剑扎进去滴血不出，这要能伤到它尾田还是别画了。
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 53164#       发表于 2020-7-31 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48275849&amp;ptid=98922" target="_blank">灌水机 发表于 2020-7-31 20:22</a>
+大和他妈什么时候出来啊，突然发现四皇就红发膝下无子了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition ...</blockquote>
+风车村那个玛琪诺有孩子，可能是红发的
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 53165#       发表于 2020-7-31 21:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48275875&amp;ptid=98922" target="_blank">灌水机 发表于 2020-7-31 20:24</a>
+
+最后赤鞘九侠和凯多同框，御天存在回忆中，似乎是凯多的回忆？难道以前凯多被御天打败赶出了和之国？？
+
+
+— ...</blockquote>
+凯多没有被御田打出过和之国。我猜可能是赤鞘九侠那种视死如归的男子汉气势让他想起了御田，同时侧面强调赤鞘九侠和御田斩不断的主仆羁绊、虽然御田身死但他们依然继承了御田遗愿的那么个传承。
+
+
+
+
+
+
+
+-----
+
+####  烦恼寺  
+##### 53166#       发表于 2020-7-31 21:20
+
+
+
+
+和之国是倒数第二章了？？？
+
+五皇🐮逼啊，修炼两年然后联盟罗加武士配几个白胡团队长就可以把凯多、大妈联盟打倒。。。。
+
+
+
+
+
+
+
+-----
+
+####  Eric_方歌阙  
+##### 53167#       发表于 2020-7-31 21:38
+
+
+
+ 本帖最后由 Eric_方歌阙 于 2020-7-31 21:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48276718&amp;ptid=98922" target="_blank">烦恼寺 发表于 2020-7-31 21:20</a>
+
+和之国是倒数第二章了？？？
+
+五皇🐮逼啊，修炼两年然后联盟罗加武士配几个白胡团队长就可以把凯多、大妈联 ...</blockquote>
+啊！？情报有说吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+剩下的伏笔多如牛毛，如果真只有一章如何不烂尾。。。
+
+
+草看到了，还真就“终章突入”，WT估计支撑不住了，尼玛这一波主角团战力必然要膨胀啊。剩下巨人国、Onepiece、玛丽乔亚、空白的一百年这么多东西如何讲得完。。。
+
+
+
+
+
+
+
+-----
+
+####  zhrs456  
+##### 53168#       发表于 2020-7-31 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">朝着烂尾的大道狂奔不止啊 还好漫画只买到顶上后 德岛蛋糕岛2连成功让我失去追连载的动力了
+
+
+
+
+
+                           
