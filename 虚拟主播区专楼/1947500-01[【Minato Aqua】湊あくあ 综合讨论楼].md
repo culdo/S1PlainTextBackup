@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-01 10:07** 
+> ## **本文件最后更新于2020-08-01 12:08** 
 
 
 
@@ -7554,4 +7554,479 @@ syl 看老任和holo谈好了，奶一口过几天的24h耐久大乱斗复活
 
 
 
-                                   
+
+
+-----
+
+####  cvql  
+##### 440#       发表于 2020-8-1 10:09
+
+
+
+
+昏迷到油管10点续播都忘记取消了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 441#       发表于 2020-8-1 10:18
+
+
+
+
+10点半继续
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 442#       发表于 2020-8-1 10:23
+
+
+
+
+这是不要命了么<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 443#       发表于 2020-8-1 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这、这、这、这可还好。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 444#       发表于 2020-8-1 10:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">头铁起来了
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 445#       发表于 2020-8-1 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">垃圾游戏滚出夸宝的电脑啊 啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 446#       发表于 2020-8-1 10:52
+
+
+
+
+别播这阴间游戏了，抱紧任任大腿乖乖做任任女孩不好吗？什么观众参与型大乱斗马车动森烟火大会马造纸马整起来啊
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 447#       发表于 2020-8-1 11:16
+
+
+
+
+比黄金时段人还多了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 448#       发表于 2020-8-1 11:44
+
+
+
+
+话说万代南梦宫有版权警告吗
+
+想看夸玩EXVS<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 449#       发表于 2020-8-1 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48281621&amp;ptid=1947500" target="_blank">Mikumiku831 发表于 2020-08-01 11:44:13</a>
+话说万代南梦宫有版权警告吗
+
+想看夸玩EXVS</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有，蘑菇人在B站都直能播个mbon的声音听
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 450#       发表于 2020-8-1 11:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">昨晚在夸宝的惨叫声中睡着了，起来她还在播
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 451#       发表于 2020-8-1 11:52
+
+
+
+
+夸夸昏迷了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 452#       发表于 2020-8-1 11:52
+
+
+
+
+湊阿夸正在闭麦，怕不是在破口大骂这阴间游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 453#       发表于 2020-8-1 11:53
+
+
+
+
+真·播到昏迷
+
+明天就上1818黄金眼，一neet通宵打游戏玩到贫血症发作
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 454#       发表于 2020-8-1 11:58
+
+
+
+
+为什么不动了，同接反而变高了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简直了。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 455#       发表于 2020-8-1 12:00
+
+
+
+
+展现铁夸团长人设时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 456#       发表于 2020-8-1 12:01
+
+
+
+
+挂着后台突然没声了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 457#       发表于 2020-8-1 12:01
+
+
+
+
+夸宝把discord关了，staff桑联系不到了，要遭。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 458#       发表于 2020-8-1 12:01
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-1 12:03 编辑 
+
+不是突然，说了恶心头晕，然后缓一缓去了
+
+苦战再开！
+
+これは、湊あくあじゃい！
+
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 459#       发表于 2020-8-1 12:03
+
+
+
+
+夸之苏醒
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 460#       发表于 2020-8-1 12:04
+
+
+
+
+这声音，一听就是呕过.....要不咱还是等livr过后再来挑战吧。
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 461#       发表于 2020-8-1 12:05
+
+
+
+
+耐久直播真是折磨自己折磨观众，唉，夸哥放过自己吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 462#       发表于 2020-8-1 12:05
+
+
+
+
+哎，都打到吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这垃圾游戏丢了吧
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 463#       发表于 2020-8-1 12:06
+
+
+
+
+为什么这女人撒娇是为了继续耐久？咱能不能不逞强了，呜呜呜。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 464#       发表于 2020-8-1 12:06
+
+
+
+
+不要放弃啊 湊阿夸！！
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 465#       发表于 2020-8-1 12:07
+
+
+
+
+希望这人别这么忠于人设包袱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 466#       发表于 2020-8-1 12:07
+
+
+
+
+啊，还是要先睡一觉，夜里再开，不丢人
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 467#       发表于 2020-8-1 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时精屋就完事了，阿夸又梗了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 468#       发表于 2020-8-1 12:08
+
+
+
+
+换个游戏不香么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非要玩这个
+
+
+
+
+
+                                  
