@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-01 00:08** 
+> ## **本文件最后更新于2020-08-01 10:07** 
 
 
 
@@ -6764,4 +6764,794 @@ syl 看老任和holo谈好了，奶一口过几天的24h耐久大乱斗复活
 
 
 
-                                    
+
+
+-----
+
+####  erer  
+##### 393#       发表于 2020-8-1 00:12
+
+
+
+
+熟练的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 394#       发表于 2020-8-1 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">这一波掉下来以后操作变形了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 395#       发表于 2020-8-1 00:31
+
+
+
+
+夸宝加油啊 别等我宗教胜利了还没结束
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 396#       发表于 2020-8-1 01:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">看了下别人的速通 感觉好难
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 397#       发表于 2020-8-1 01:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">现在都不neeeemoooo了替代是fq，omg有梁木了，功利人
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 398#       发表于 2020-8-1 01:53
+
+
+
+
+心态竟然还没崩，要不送个dlc
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 399#       发表于 2020-8-1 01:57
+
+
+
+
+怎么更新下口癖也能梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 400#       发表于 2020-8-1 02:17
+
+
+
+
+果然回来了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 401#       发表于 2020-8-1 02:18
+
+
+
+
+期待已久的回到地面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 402#       发表于 2020-8-1 02:21
+
+
+
+
+一朝回到解放前，可怜兮兮🥺
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 403#       发表于 2020-8-1 02:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">回家吧，回到最初的美好
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 404#       发表于 2020-8-1 02:23
+
+
+
+
+这游戏乐趣就是一落到底
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 405#       发表于 2020-8-1 02:35
+
+
+
+
+8月1号缴费就可以播老任了，问题解决了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 406#       发表于 2020-8-1 02:45
+
+
+
+
+四个小时，全部木大<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 407#       发表于 2020-8-1 03:43
+
+
+
+
+不是，根本听不到小麦声音啊，是它哑巴了，还是定向🎤不收杂音啊
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 408#       发表于 2020-8-1 03:54
+
+
+
+
+哑巴，被吵醒不想说话
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 409#       发表于 2020-8-1 04:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">睡醒一觉还在熟悉的地方。
+
+
+
+
+
+
+
+-----
+
+####  Map-2  
+##### 410#       发表于 2020-8-1 04:44
+
+
+
+
+别跳了别跳了，耐久APEX都比这香啊，赶紧快进到大乱斗吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 411#       发表于 2020-8-1 04:47
+
+
+
+
+感觉有点崩了，这游戏真搞心态。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 412#       发表于 2020-8-1 05:05
+
+
+
+
+夸宝…
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 413#       发表于 2020-8-1 05:43
+
+
+
+
+夸宝的手指又遭受了摧残，太可怜了😭
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 414#       发表于 2020-8-1 06:38
+
+
+
+
+说真的，通完这个摸几天吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 415#       发表于 2020-8-1 07:07
+
+
+
+
+后面每个点都是肌肉记忆了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 416#       发表于 2020-8-1 07:34
+
+
+
+
+一觉醒来，阿夸还在播，没玩过这游戏，有懂的人知道她还要播多久吗。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 417#       发表于 2020-8-1 07:37
+
+
+
+
+我只知道叶师通关花了24小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 418#       发表于 2020-8-1 07:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这阴间游戏比壶恶心多了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 419#       发表于 2020-8-1 07:56
+
+
+
+
+还好有保底，上面风力关都是阴间点。
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 420#       发表于 2020-8-1 08:15
+
+
+
+
+看了速通和一些初见录像，雪山借风真的阴间，不过只要过了雪山就到教堂，就有保底新家了，我看了叶师的录像，大概是19个小时到了教堂，后面的部分5小时通了
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 421#       发表于 2020-8-1 08:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">冰面关太难了
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 422#       发表于 2020-8-1 08:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上面还有雪山，阴间点多了去了，不到教堂的保底点，一失误就是回旗杆这边。就阿夸这靠脊椎打游戏至少明天这会吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 423#       发表于 2020-8-1 08:38
+
+
+
+
+这玩意还有dlc<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">比原版恶意更多
+
+才发完就回家的诱惑了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 424#       发表于 2020-8-1 08:39
+
+
+
+
+全部木大！
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 425#       发表于 2020-8-1 09:04
+
+
+
+
+我艹
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 426#       发表于 2020-8-1 09:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她以为自己行了，前面可以随便跳，实际上跳不准该怎么样还是怎么样
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 427#       发表于 2020-8-1 09:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我怕了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 428#       发表于 2020-8-1 09:11
+
+
+
+
+每个点都是要感受手感的。。。这个恶心的学习机制堪比黑魂
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">作为一个通过2个dlc的表示回家的诱惑是常事...
+
+基本要把跳段分成5-10个感应程度完全肌肉记忆分析出感觉才好跳
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 429#       发表于 2020-8-1 09:24
+
+
+
+
+其实更担心她通了之后会不会来个rta耐久
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 430#       发表于 2020-8-1 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">夸哥加油啊
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 431#       发表于 2020-8-1 09:27
+
+
+
+
+好惨一女的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 432#       发表于 2020-8-1 09:28
+
+
+
+
+一觉醒来，回到了昨天播一小时的位置。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 433#       发表于 2020-8-1 09:31
+
+
+
+
+集中力不行了，这游戏脑死状态更加没戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 434#       发表于 2020-8-1 09:32
+
+
+
+
+算了算了 睡一觉再搞吧
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 435#       发表于 2020-8-1 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">不能存档可太难受了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 436#       发表于 2020-8-1 09:58
+
+
+
+
+任任女孩的快乐我感受到了。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 437#       发表于 2020-8-1 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">败了
+
+
+
+
+
+
+10.png
+(9.68 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-1 10:03 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/01/100303ad9683xma367q2b3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 438#       发表于 2020-8-1 10:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">乖乖时精屋吧，jk全靠熟练度，不知道怎么跳全靠运气是没法上去的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 439#       发表于 2020-8-1 10:06
+
+
+
+
+夸哥是昏迷了吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
