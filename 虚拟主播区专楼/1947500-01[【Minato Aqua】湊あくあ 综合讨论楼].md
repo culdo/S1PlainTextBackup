@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-01 14:11** 
+> ## **本文件最后更新于2020-08-01 20:09** 
 
 
 
@@ -8490,4 +8490,244 @@ syl 看老任和holo谈好了，奶一口过几天的24h耐久大乱斗复活
 
 
 
-                                 
+
+
+-----
+
+####  sky5  
+##### 497#         楼主| 发表于 2020-8-1 17:58
+
+
+
+ 本帖最后由 sky5 于 2020-8-1 18:00 编辑 
+
+发推了，晚上继续
+为什么不在白天播，非要熬夜通宵整呢
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 498#       发表于 2020-8-1 17:58
+
+
+
+
+草，晚上再开。求求孩子对自己好点吧。
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 499#       发表于 2020-8-1 17:58
+
+
+
+
+她还要继续。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 500#       发表于 2020-8-1 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">只能希望她把握好自己的身体情况吧
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 501#       发表于 2020-8-1 18:16
+
+
+
+
+不胜利毋宁死<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 502#       发表于 2020-8-1 18:16
+
+
+
+
+太坚强了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 503#       发表于 2020-8-1 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">头铁啊，太铁了
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 504#       发表于 2020-8-1 18:19
+
+
+
+
+不愧是洋葱
+还是那个味
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 505#       发表于 2020-8-1 18:34
+
+
+
+
+湊あくあ⚓JUMPKING絶対クリアする人
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 506#       发表于 2020-8-1 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟我想的一样
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 507#       发表于 2020-8-1 18:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">应该是第一款让她感受到耻辱的游戏吧，别的顶多就算了，这个觉得丢人就杠上了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 508#       发表于 2020-8-1 18:41
+
+
+
+
+这是何等的自尊心和意志力。
+
+
+
+
+
+
+
+-----
+
+####  Joshua64  
+##### 509#       发表于 2020-8-1 19:58
+
+
+
+
+其实有一点有那么不太理解……为什么在B站劝阿夸不要太累了或者该休息一下了之类的评论会被很多人骂（虽然我不会发这种话，但是同样不能理解指着这种话骂的）
+
+
+
+
+
+
+
+-----
+
+####  無能狂怒人  
+##### 510#       发表于 2020-8-1 20:01
+
+
+
+
+耐久直播是坏文明
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 511#       发表于 2020-8-1 20:06
+
+
+
+
+上封面了 孩子很开心
+
+
+
+
+
+                                
