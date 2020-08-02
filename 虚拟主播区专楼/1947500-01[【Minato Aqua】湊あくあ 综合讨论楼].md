@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-01 20:09** 
+> ## **本文件最后更新于2020-08-02 14:07** 
 
 
 
@@ -250,7 +250,7 @@
 <img src="https://img.saraba1st.com/forum/202007/18/115518c99cctz8w5xcxx5u.png" referrerpolicy="no-referrer">
 
 
-<strong>立ってね.png</strong> (589.13 KB, 下载次数: 0)
+<strong>立ってね.png</strong> (589.13 KB, 下载次数: 1)
 
 下载附件
 
@@ -8730,4 +8730,656 @@ syl 看老任和holo谈好了，奶一口过几天的24h耐久大乱斗复活
 
 
 
-                                
+
+
+-----
+
+####  JoelBirch  
+##### 512#       发表于 2020-8-1 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48285986&amp;ptid=1947500" target="_blank">Joshua64 发表于 2020-8-1 19:58</a>
+其实有一点有那么不太理解……为什么在B站劝阿夸不要太累了或者该休息一下了之类的评论会被很多人骂（虽然 ...</blockquote>
+因为大量刷影响观感，而且除了带节奏（出警反出警）之外毫无用处
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 513#       发表于 2020-8-1 20:51
+
+
+
+
+b站劝给谁看？
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 514#       发表于 2020-8-1 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48286740&amp;ptid=1947500" target="_blank">ylssb10438 发表于 2020-8-1 20:51</a>
+b站劝给谁看？</blockquote>
+他们是发出来给自己看的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 515#       发表于 2020-8-1 21:02
+
+
+
+
+虽然我也希望她抛弃这个垃圾游戏，但要有一堆人在我耳边唧唧歪歪我也烦
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 516#       发表于 2020-8-1 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 517#       发表于 2020-8-1 23:13
+
+
+
+
+“老娘我可是什么鬼畜游戏都能通关的女人啊！！！”——这货发出如此宣言
+
+
+
+
+
+
+
+-----
+
+####  LightersFAN  
+##### 518#       发表于 2020-8-1 23:18
+
+
+
+
+这真的是个栽种游戏
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 519#       发表于 2020-8-1 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今晚也跟不下去了，夸哥加油
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 520#       发表于 2020-8-1 23:50
+
+
+
+
+感觉她这两天声线又有点不一样了，也不是以前凛子的那种
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 521#       发表于 2020-8-2 00:07
+
+
+
+
+看着手感还行 感觉明天12点前有机会
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 522#       发表于 2020-8-2 00:13
+
+
+
+
+到教堂了啊 那大概还差个四五小时就能通了
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 523#       发表于 2020-8-2 00:13
+
+
+
+ 本帖最后由 单推贝伦 于 2020-8-2 00:55 编辑 
+
+草，洋葱状态好了感觉这游戏都没那么难了
+
+溜了，希望早起已经通关了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 524#       发表于 2020-8-2 00:15
+
+
+
+
+一觉醒来，状态好多了，旗杆那里几乎都没怎么失误过，准确率很高
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 525#       发表于 2020-8-2 00:49
+
+
+
+
+睡眠学习是真的。
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 526#       发表于 2020-8-2 01:40
+
+
+
+
+阿夸这种游戏整个耐久真的有意义吗。。。
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 527#       发表于 2020-8-2 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48289645&amp;ptid=1947500" target="_blank">拉萨乌姆 发表于 2020-8-2 01:40</a>
+阿夸这种游戏整个耐久真的有意义吗。。。</blockquote>
+追求什么意义，他自己爱玩
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 528#       发表于 2020-8-2 02:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">这游戏是这样的，状态好坏差距很大的，越气急败坏越容易出失误
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 529#       发表于 2020-8-2 02:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">耻辱下播，笑死了哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 530#       发表于 2020-8-2 02:16
+
+
+
+
+临下播前看到了最后一关 不亏
+
+
+
+
+
+
+
+-----
+
+####  vassiliev  
+##### 531#       发表于 2020-8-2 02:17
+
+
+
+
+Rage quit了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 532#       发表于 2020-8-2 02:17
+
+
+
+
+望见最后一关的瞬间坠落，这是什么欧亨利式结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后3关看熟练度问题不大，睡饱了起来就刷刷通关了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 533#       发表于 2020-8-2 02:17
+
+
+
+
+2.15 见到了最后一关的面 因为脚滑又回到了教堂 愤而下播
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 534#       发表于 2020-8-2 02:30
+
+
+
+
+可恶的洋葱，昨天把我的作息熬乱，今天三点就跑了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 535#       发表于 2020-8-2 02:32
+
+
+
+
+睡一觉起来rta<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 536#       发表于 2020-8-2 07:21
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-2 07:26 编辑 
+
+我艹，这洋葱3小时就跑了
+
+有没有统计自己在某一个频道打了多少钱的工具或者网站的？自己算太闹心
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 537#       发表于 2020-8-2 09:53
+
+
+
+
+睡醒继续补夸宝吃瘪。拔棋女王是什么新称呼...
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 538#       发表于 2020-8-2 11:42
+
+
+
+
+看到塔就手抖。。。跳起来了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 539#       发表于 2020-8-2 12:04
+
+
+
+
+总觉得她会掉下去，超紧张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 540#       发表于 2020-8-2 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我不能呼吸了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 541#       发表于 2020-8-2 12:13
+
+
+
+ 本帖最后由 nevp 于 2020-8-2 12:15 编辑 
+
+看了一眼阿b，这转播有100多万人气有点夸张吧，记得有时候b限也没这么多人的
+
+状态确实一天比一天好，这就是成长系游戏主播吗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 542#       发表于 2020-8-2 12:14
+
+
+
+
+这配乐太激昂了，很有决战感。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 543#       发表于 2020-8-2 12:17
+
+
+
+
+阴间游戏整活效果好。
+
+忘了告诉你这个游戏的恶意。。。最后第二个点失误95%概率回到过去。
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 544#       发表于 2020-8-2 12:23
+
+
+
+
+夸宝腿法又乱了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 545#       发表于 2020-8-2 12:33
+
+
+
+
+这么爱玩鬼畜游戏的话，楼友们谁给她推荐一下几何冲刺，反正脊髓玩家玩这个一定很余裕的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 546#       发表于 2020-8-2 13:05
+
+
+
+
+夸玩过流血像素或蔚蓝吗？
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 547#       发表于 2020-8-2 13:11
+
+
+
+
+这游戏阴间的问题是会回家，实际有几次雪山已经很危险了，那个位置下去就会回到第二关
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 548#       发表于 2020-8-2 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48292342&amp;ptid=1947500" target="_blank">兔耳僵尸 发表于 2020-8-2 13:05</a>
+
+夸玩过流血像素或蔚蓝吗？
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+蔚蓝肯定是没有，不过蔚蓝A面不追求收集品确实简单，BC才真正开始
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 549#       发表于 2020-8-2 13:16
+
+
+
+
+蔚蓝实际试错安全度很高，你可以放心大胆试。。。
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 550#       发表于 2020-8-2 13:31
+
+
+
+
+鬼畜区落夸坡动画估计已经在搞了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+                               
