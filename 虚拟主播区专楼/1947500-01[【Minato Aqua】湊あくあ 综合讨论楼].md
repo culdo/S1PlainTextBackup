@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-02 14:07** 
+> ## **本文件最后更新于2020-08-02 22:10** 
 
 
 
@@ -9382,4 +9382,370 @@ Rage quit了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 
 
-                               
+
+
+-----
+
+####  离魂仙  
+##### 551#       发表于 2020-8-2 14:10
+
+
+
+
+辛苦了，夸宝也是，观众也是
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 552#       发表于 2020-8-2 14:10
+
+
+
+
+过了过了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 553#       发表于 2020-8-2 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">夸宝太强了
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 554#       发表于 2020-8-2 14:12
+
+
+
+
+太难了，总算成了
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 555#       发表于 2020-8-2 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">阴间游戏，没办法跟她共情，走了走了
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 556#       发表于 2020-8-2 14:15
+
+
+
+
+终于可以删掉这垃圾游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 557#       发表于 2020-8-2 14:16
+
+
+
+ 本帖最后由 yuezhi 于 2020-8-2 14:20 编辑 
+
+草，这人终于想起来自己还有live了
+
+RTA..DLC..这就是抖M吗
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 558#       发表于 2020-8-2 14:19
+
+
+
+
+草，还要玩，你是想成为永世JK吗
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 559#       发表于 2020-8-2 14:20
+
+
+
+
+RTA  <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 560#       发表于 2020-8-2 14:20
+
+
+
+
+RTA 好起来了 DLC 也好起来了
+身体 坏起来了
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 561#         楼主| 发表于 2020-8-2 14:20
+
+
+
+ 本帖最后由 sky5 于 2020-8-2 14:22 编辑 
+
+别rta了吧
+还想搞dlc? 溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 562#       发表于 2020-8-2 14:20
+
+
+
+
+DLC就是找死啊
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 563#       发表于 2020-8-2 14:21
+
+
+
+
+RTA也还勉强能接受，DLC算了吧
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 564#       发表于 2020-8-2 14:23
+
+
+
+
+求求别了<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">快忘了这个游戏吧
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 565#       发表于 2020-8-2 14:30
+
+
+
+ 本帖最后由 新磕娘 于 2020-8-2 14:38 编辑 
+
+我觉得dlc的难度能把她劝退掉，毕竟本体就让她玩吐了
+
+不过我还是信阿夸能头铁过了dlc的
+
+
+各位懂日语的大哥大姐可以去推特劝劝
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 566#       发表于 2020-8-2 14:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是抖M啊
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 567#       发表于 2020-8-2 14:42
+
+
+
+
+推不了的。。。人家有志气
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 568#       发表于 2020-8-2 14:43
+
+
+
+
+不是说得等live结束吗，而且要是像今天这样一段一段的不追求耐久一口气去打实际上也还行
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 569#         楼主| 发表于 2020-8-2 18:07
+
+
+
+
+直播间开了，晚上10点
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 570#       发表于 2020-8-2 20:23
+
+
+
+
+Jump king过了？这两天忙成狗，通关瞬间没看到，好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 571#       发表于 2020-8-2 21:02
+
+
+
+
+草，最后那个小台阶，即使是录播都看得心跳
+夸哥nb
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 572#       发表于 2020-8-2 22:10
+
+
+
+
+老任居然可以在b站转播，难道holo谈判条款有这条？
+
+
+
+
+
+                              
