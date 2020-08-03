@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-21 14:47** 
+> ## **本文件最后更新于2020-08-03 18:06** 
 
 
 
@@ -614,16 +614,7 @@ C位的原因是她的武器是双剑这样比较对称吧？
 ####  亚瑟邓特  
 ##### 4535#       发表于 2020-6-10 13:01
 
-
-
-
-求个全服装攻略，老婆衣服太色了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2359,17 +2350,7 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ####  亚瑟邓特  
 ##### 4620#       发表于 2020-6-11 00:01
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755139&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-10 21:53</a>
-草，白色face不会是卡露娜的那谁吧</blockquote>
-这么色情的外形不会真有人猜错吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2378,17 +2359,7 @@ C位的原因是她的武器是双剑这样比较对称吧？</blockquote>
 ####  亚瑟邓特  
 ##### 4621#       发表于 2020-6-11 00:04
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47755139&amp;ptid=1856998" target="_blank">名守居 发表于 2020-6-10 21:53</a>
-草，白色face不会是卡露娜的那谁吧</blockquote>
-顺便求头像
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2835,17 +2806,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ####  亚瑟邓特  
 ##### 4645#       发表于 2020-6-11 09:28
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758342&amp;ptid=1856998" target="_blank">蓝雉 发表于 2020-6-11 08:34</a>
-官方小说有解释</blockquote>
-淦，有翻译吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2929,17 +2890,7 @@ link一下半血+敏捷，半血+防御……稳得一批
 ####  亚瑟邓特  
 ##### 4650#       发表于 2020-6-11 09:55
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758929&amp;ptid=1856998" target="_blank">蓝雉 发表于 2020-6-11 09:31</a>
-贴吧有，搜一下就好了</blockquote>
-搜啥关键词，我异度之刃/神剑+小说啥都没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3760,7 +3711,7 @@ https://www.youtube.com/watch?v=pd-a_yYPoiY
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
 
 XBDE1_CY双语.srt
-(428.02 KB, 下载次数: 17)
+(428.02 KB, 下载次数: 18)
 
 
 
@@ -9175,23 +9126,7 @@ Gay本看画风应该都是同一个人画的，还有你别说雷老板那开�
 ####  ww-stl  
 ##### 4979#       发表于 2020-6-15 19:17
 
-
-
-
-关于一个情节：
-
-
-最后Zanza爆料，其实他在休眠于Monado之前看到了未来视，会有个叫修尔克的正太来到封印塔并被自己附身，因此他就一直等在那里，虽然之前说是谁都可以并且也有人来过，但其实还是只有修克尔作为指定附体对象，非他不可。
-
-
-为什么当时Zanza没有看到修克尔反水的未来视？关于这个情节是怎么解释的？
-
-
-不剧透的话这个详细解释的情节是发生在哪里？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10226,17 +10161,7 @@ https://b23.tv/BV1e54y1Q73W 练珠可以看这个，最重点的就是菲奥雷�
 ####  亚瑟邓特  
 ##### 5034#       发表于 2020-6-16 13:46
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47813456&amp;ptid=1856998" target="_blank">RUANHYC 发表于 2020-6-15 15:36</a>
-EH上的XB1本子好像没多少啊，就找到几本梅利亚的还有就是为什么雷老板和齐格的gay本这么多？ ...</blockquote>
-有没有菲奥伦的，图也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20381,36 +20306,7 @@ https://youtu.be/vR9tuMawptQ
 ####  亚瑟邓特  
 ##### 5564#       发表于 2020-6-29 08:58
 
-
-
- 本帖最后由 亚瑟邓特 于 2020-6-29 09:00 编辑 
-
-[https://ecchi.iwara.tv/videos/89epecqzaeslvzqep](https://ecchi.iwara.tv/videos/89epecqzaeslvzqep)<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +2
-
-|昵称|战斗力|理由|
-|----|---|---|
-| 鷹書たかしょ| + 2|Such a sweetie|
-
-
-
-查看全部评分
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -20594,17 +20490,7 @@ https://ecchi.iwara.tv/videos/89epecqzaeslvzqep
 ####  亚瑟邓特  
 ##### 5575#       发表于 2020-6-29 13:01
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996047&amp;ptid=1856998" target="_blank">sandro 发表于 2020-6-29 12:28</a>
-我草，感觉1的角色比2骚好多啊，光焰绿都比不过机娘</blockquote>
-就是就是<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -24242,7 +24128,7 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 
 
 
-123.9 KB, 下载次数: 40
+123.9 KB, 下载次数: 50
 
 
 
@@ -24989,7 +24875,7 @@ Xenoblade de 全任务.xlsx
 
 
 
-96.17 KB, 下载次数: 11
+96.17 KB, 下载次数: 17
 
 
 
@@ -26122,4 +26008,350 @@ https://b23.tv/BV1AC4y1h7rH/p1
 
 
 
-     
+
+
+-----
+
+####  zjoi  
+##### 5837#       发表于 2020-7-24 16:16
+
+
+
+[https://tieba.baidu.com/p/6834657031](https://tieba.baidu.com/p/6834657031)
+
+又有同志开发出新战术了
+
+
+
+
+
+
+
+-----
+
+####  jackyhuang  
+##### 5838#       发表于 2020-7-24 16:44
+
+
+
+
+卡露娜应该是所有同伴里被低估最厉害的了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 5839#       发表于 2020-7-24 18:13
+
+
+
+
+有了武技gacha之后已经没有弱角色了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a526428377  
+##### 5840#       发表于 2020-7-25 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48149688&amp;ptid=1856998" target="_blank">HGCG2 发表于 2020-7-19 10:41</a>
+打到第二次进巨神胎内后，能去诺鹏大仙人那里换所有素材</blockquote>
+打到第二次进胎内了，大仙人那里没有素材换啊，还是只有装备宝石，难道需要先通相连未来？
+
+
+
+
+
+
+
+-----
+
+####  nanakufa  
+##### 5841#       发表于 2020-7-25 08:30
+
+
+
+
+通关了，相连的未来如何？听说剧情有点无聊
+
+
+
+
+
+
+
+-----
+
+####  瑕在瑾中  
+##### 5842#       发表于 2020-7-25 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48150274&amp;ptid=1856998" target="_blank">a526428377 发表于 2020-7-19 11:58</a>
+话说这游戏真的能17章前城镇发展5星吗，我9号殖民地和边境村对话按到手软了还是四星，没新的任务出现[f:097 ...</blockquote>
+边境村和九号殖民地有几个支线任务要在特定时间和几个npc对话触发牵绊才能接，很蛋疼，可以对照支线攻略看下自己哪个支线没做。
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 5843#       发表于 2020-7-25 12:14
+
+
+
+ 本帖最后由 Arccueid 于 2020-7-25 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48205229&amp;ptid=1856998" target="_blank">jackyhuang 发表于 2020-7-24 16:44</a>
+
+卡露娜应该是所有同伴里被低估最厉害的了</blockquote>
+不算，局限性太大了。
+
+主要还是天赋技的问题，超速光环大量甩技能本身能成型时期就挺晚了，技能甩多了还必须要降热片处理，上限就更低了，如果改成装备能用都还好，武器宝石位太紧张了。
+
+
+
+
+
+
+
+
+-----
+
+####  suituski  
+##### 5844#       发表于 2020-7-28 00:44
+
+
+
+
+原来十五章前就能全五星了，是真滴肝
+
+
+
+
+
+
+B581906B-9C51-4D81-961C-DB096E704463.jpeg
+(93.42 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-28 00:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/28/004303vjjw7wa87bxbf5n5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
+(86.33 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-28 00:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/28/004322pxfzazxsy5adpli2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 5845#       发表于 2020-7-28 00:47
+
+
+
+
+看到顶上来了顺便问问，相连的未来 迈向未来者这个最后的支线没接到是不是真的没救了？
+
+这不让开二周目，重打实在是.....
+
+
+
+
+
+
+
+-----
+
+####  BigLittle1999  
+##### 5846#       发表于 2020-7-28 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234431&amp;ptid=1856998" target="_blank">苍蓝之枪 发表于 2020-7-28 00:47</a>
+
+看到顶上来了顺便问问，相连的未来 迈向未来者这个最后的支线没接到是不是真的没救了？
+
+这不让开二周目，重 ...</blockquote>
+为什么会接不到<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">通关完之后就再读档不可以么
+
+
+
+
+
+
+
+-----
+
+####  苍蓝之枪  
+##### 5847#       发表于 2020-7-28 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48234664&amp;ptid=1856998" target="_blank">BigLittle1999 发表于 2020-7-28 01:52</a>
+
+为什么会接不到通关完之后就再读档不可以么</blockquote>
+黑龙任务做掉后那NPC在哪我都找不到了
+
+
+
+
+
+
+
+-----
+
+####  我王  
+##### 5848#       发表于 2020-7-28 20:11
+
+
+
+
+刚进第八章皇女离队了，啥时候回来？逛皇都把支线全接完，不想把皇女的apsp浪费掉(指不在队伍里)
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 5849#       发表于 2020-7-28 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242297&amp;ptid=1856998" target="_blank">我王 发表于 2020-7-28 20:11</a>
+
+刚进第八章皇女离队了，啥时候回来？逛皇都把支线全接完，不想把皇女的apsp浪费掉(指不在队伍里)
+
+
+—— 来 ...</blockquote>
+皇女通过试炼就回来了,继续推主线吧
+
+
+
+
+
+
+
+-----
+
+####  暗黑の命运  
+##### 5850#       发表于 2020-7-31 18:51
+
+
+
+
+我感觉第七人开高速以后平砍没有wii版快，而且双重攻击有一个抽搐的动作，我记得WII版是一直砍不停的，比决定版强很多，是我记错了么？
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 5851#       发表于 2020-8-3 17:04
+
+
+
+
+问一下，我知道dot伤害是每个人分开叠加的，那么debuff是怎么算的？特别是武器上带的能力下降类的宝石，是三个人都带敏捷下降宝石还是其实只要有其中一个人带了就够了？
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 5852#       发表于 2020-8-3 17:46
+
+
+
+
+楼太高吞帖了？
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+    
