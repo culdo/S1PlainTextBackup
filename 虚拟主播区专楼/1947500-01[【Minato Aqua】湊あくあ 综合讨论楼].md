@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-02 22:10** 
+> ## **本文件最后更新于2020-08-05 06:06** 
 
 
 
@@ -9741,11 +9741,516 @@ Jump king过了？这两天忙成狗，通关瞬间没看到，好气啊<img src
 
 
 
+ 本帖最后由 面具13 于 2020-8-2 22:15 编辑 
 
 老任居然可以在b站转播，难道holo谈判条款有这条？
 
+读空气就硬装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
 
-                              
+
+
+
+-----
+
+####  离魂仙  
+##### 573#       发表于 2020-8-2 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48298356&amp;ptid=1947500" target="_blank">面具13 发表于 2020-8-2 22:10</a>
+
+老任居然可以在b站转播，难道holo谈判条款有这条？
+
+读空气就硬装</blockquote>
+看了一眼狐组没转啊
+
+还是说夸？
+
+读空气不是任天堂游戏来着吧，也管不到NS这个硬件啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 574#       发表于 2020-8-2 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48298497&amp;ptid=1947500" target="_blank">离魂仙 发表于 2020-8-2 22:21</a>
+
+看了一眼狐组没转啊
+
+还是说夸？
+
+读空气不是任天堂游戏来着吧，也管不到NS这个硬件啊 ...</blockquote>
+哦，一直以为这游戏是老任的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 575#       发表于 2020-8-2 22:48
+
+
+
+
+我觉得这次读空气的节目效果好好啊。跟之前相比进步很大。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 576#       发表于 2020-8-2 22:55
+
+
+
+
+嗯？还有舞蹈课？明天推特更新，生存确认（也就是不播）
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 577#       发表于 2020-8-2 22:56
+
+
+
+
+快叻快叻，距离live只剩下19天不到了。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 578#       发表于 2020-8-2 23:02
+
+
+
+
+离24h耐久还有六天！
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 579#       发表于 2020-8-2 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">夸宝努力，我也要努力
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 580#       发表于 2020-8-2 23:08
+
+
+
+
+想起来我明天特别有空啊，闲的不行，岂可休，苦呀西。出去转转吧
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 581#       发表于 2020-8-4 08:42
+
+
+
+
+最后一跳107w日元 sc估计可以躺几天了
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 582#       发表于 2020-8-4 09:29
+
+
+
+
+只和自己比这数据还是挺爽的
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 583#       发表于 2020-8-4 12:07
+
+
+
+
+湊あくあ チー牛
+
+这几天暴涨20w播放量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 584#       发表于 2020-8-4 12:27
+
+
+
+
+太可爱了大家都爱看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 585#       发表于 2020-8-4 12:54
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-4 17:44 编辑 
+
+确实可爱的不行
+又要被脑控了
+
+傻屌任天堂
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 586#       发表于 2020-8-4 13:22
+
+
+
+
+啊😫好想尝尝小凛的奶油面包()
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 587#       发表于 2020-8-4 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任地狱来了
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 588#       发表于 2020-8-4 17:35
+
+
+
+ 本帖最后由 lightsuger 于 2020-8-4 17:40 编辑 
+
+不能转播，可惜了
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 589#       发表于 2020-8-4 17:51
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-4 20:22 编辑 
+
+<img src="https://p.sda1.dev/0/b51f2c509475a6dd6fe09368118c4d3f/-4141bfe09c30dd3c.jpg" referrerpolicy="no-referrer">
+不知道出处在哪
+
+感谢
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 590#       发表于 2020-8-4 18:16
+
+
+
+
+↑
+<img src="https://p.sda1.dev/0/70ae1ba9ae6a3d81d12a0797408dfaf5/IMG_D92018164BB8CC5AC609F739957E1085.png" referrerpolicy="no-referrer">
+链接 [url=]https://twitter.com/uepom_hiko/status/1277087804376272897?s=19[/url]
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 591#       发表于 2020-8-4 18:16
+
+
+
+ 本帖最后由 cvql 于 2020-8-4 18:26 编辑 
+
+[https://www.bilibili.com/video/B ... 1424896236560666725](https://www.bilibili.com/video/BV14f4y1174d?from=search&amp;seid=1424896236560666725)
+
+这个6.27被吐槽三人组笑话这段
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 592#       发表于 2020-8-4 20:48
+
+
+
+
+我耳机音量没开大啊，差点聋了
+洋葱嗓子的问题还是麦问题的？
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 593#       发表于 2020-8-4 21:21
+
+
+
+
+嗓子太疲劳了。等之后养一养吧。
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 594#         楼主| 发表于 2020-8-4 21:38
+
+
+
+
+脑死了还要讲骚话，词穷了还要讲，今天这直播从头高强度讲到现在没停过，少说两句认真玩可好？
+
+
+
+
+
+
+
+-----
+
+####  アビスこん  
+##### 595#       发表于 2020-8-4 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48318712&amp;ptid=1947500" target="_blank">sky5 发表于 2020-8-4 21:38</a>
+
+脑死了还要讲骚话，词穷了还要讲，今天这直播从头高强度讲到现在没停过，少说两句认真玩可好？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看后面进来的几个ガチ势，是洋葱认真就能赢得嘛
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 596#       发表于 2020-8-4 23:05
+
+
+
+
+吃瘪吃到饱，嗓子嚎到劈。傻瓜女人。
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 597#       发表于 2020-8-4 23:24
+
+
+
+
+耐久制酱+dd大战 许久不见的风景
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 598#       发表于 2020-8-5 01:33
+
+
+
+
+草，谁把奶油面包传油管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+补录播中，那个捏了辐射小子脸的真的笑死个洋葱，还不是比喻
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 599#       发表于 2020-8-5 02:21
+
+
+
+
+那个奶油面包就离谱，上午看才20多w，现在都30w点击了，按理说他们那边不是都早知道了吗，怎么冲起塔还跟mmr似的
+
+其实我感觉那个蹦蹦跳跳的开箱更有杀伤力，太可爱了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 600#       发表于 2020-8-5 02:36
+
+
+
+
+突然间就冒出来一堆肉体厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一千多条评论。。。
+
+我先看把奶油面包听了一下，然后补录播的时候听到“补多巴士左”的时候满脑子都是“苦栗木胖”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 601#       发表于 2020-8-5 05:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想买同款熊卫衣 不过搜了半天只有类似的 没有真同款
+
+
+
+
+
+                             
