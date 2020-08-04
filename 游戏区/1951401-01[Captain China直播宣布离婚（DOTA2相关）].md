@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-30 22:12** 
+> ## **本文件最后更新于2020-08-04 18:11** 
 
 
 
@@ -2688,7 +2688,7 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 
 
 5ead1a087bf40ad16795550a5a2c11dfa8ecce38.jpg
-(157.81 KB, 下载次数: 1)
+(157.81 KB, 下载次数: 3)
 
 
 
@@ -2737,4 +2737,584 @@ burning自己线上被强杀两次觉得自己崩了要补刷钱装，复盘的�
 
 
 
-                                            
+
+
+-----
+
+####  恶搞之王  
+##### 152#       发表于 2020-7-31 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48265032&amp;ptid=1951401" target="_blank">fr0stzer0 发表于 2020-07-30 20:53:34</a>
+你一放这张图我就想起来了，还是泽宇人气不大，不怎么被提起。</blockquote>善良泽宇还是没盘，他要有盘之前直播的时候怕不是也是被喷的亲🐎粉碎
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  山下野人  
+##### 153#       发表于 2020-7-31 13:56
+
+
+
+<blockquote>何然 发表于 2020-7-30 17:07
+算挺顺了
+
+也就自己加了个1技能有点坑，5级有个3级分身钻野再正常不过了
+
+这年头除了蓝胖子和放对面 ...</blockquote>
+末日点金不怎么补经济都能把自己的经济稳定在第一梯队
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 154#       发表于 2020-8-3 00:20
+
+
+
+
+一般来说dota2论坛不会想到泥潭
+但是这是我亲历的事情还是想要在这里倒一下屎
+<img src="https://p.sda1.dev/0/ec6c9bd523f63a1548038fbe2fc09d82/IMG_F25D46B0DEC2D2775D4D5AA381404621.png" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  莉拉厨  
+##### 155#       发表于 2020-8-3 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299826&amp;ptid=1951401" target="_blank">absaki 发表于 2020-08-03 00:20:08</a>
+一般来说dota2论坛不会想到泥潭
+但是这是我亲历的事情还是想要在这里倒一下屎
+ v2.2.2.1 ...</blockquote>fy说不用退了 已经叫boa收回来再发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太搞笑了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 156#       发表于 2020-8-3 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299850&amp;ptid=1951401" target="_blank">莉拉厨 发表于 2020-8-3 00:23</a>
+fy说不用退了 已经叫boa收回来再发了太搞笑了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://p.sda1.dev/0/39438c21498a5efe8b1bfcd1e81550c4/IMG_EB8BBAD9971E646434C4B41384187964.jpeg" referrerpolicy="no-referrer">
+女人误国不是说笑的
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 157#       发表于 2020-8-3 00:27
+
+
+
+
+我今天生气了 哼
+不是说max不准发吗 我今天就环sg发个透
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zievod  
+##### 158#       发表于 2020-8-3 04:59
+
+
+
+
+面八的事情一点不同情 一个愿打一个愿挨
+每次都找点什么女人
+正经点的看不上 非得上赶着找小姐接盘当老实人
+女朋友照着网红脸找算增加生活乐趣 老婆找这些不就是脑瘫 
+均贫卡爽不爽
+电竞圈有这毛病的还不是一个两个 
+黄想这种结婚就老夫老妻的简直生活典范 
+
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  树洞专用  
+##### 159#       发表于 2020-8-3 05:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我的粉丝我的狗，发错红包了收回来怎么了？我就是要一个个私聊，领了不还的直接踢出粉丝群
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 160#       发表于 2020-8-3 07:57
+
+
+
+
+我真是杀了雪菜的妈了，昨天晚上傻狗发的帖子今天早上还在审核
+而且我在贴吧和max看不到类似帖子，这两个地方什么成分卜用我多说了8<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 强袭目田| + 1|白丝拳王跪了就是跪了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 161#       发表于 2020-8-3 08:33
+
+
+
+
+草，烟花神还是有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 162#       发表于 2020-8-3 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48299826&amp;ptid=1951401" target="_blank">absaki 发表于 2020-8-3 00:20</a>
+
+一般来说dota2论坛不会想到泥潭
+
+但是这是我亲历的事情还是想要在这里倒一下屎</blockquote>
+红包还能要回来的
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 163#       发表于 2020-8-3 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300658&amp;ptid=1951401" target="_blank">zievod 发表于 2020-8-3 04:59</a>
+
+面八的事情一点不同情 一个愿打一个愿挨
+
+每次都找点什么女人
+
+正经点的看不上 非得上赶着找小姐接盘当老实人 ...</blockquote>
+刀juan还有哪几个老婆很危险的？我就觉得瞎抖女朋友肯定是个雷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DK.BurNIng  
+##### 164#       发表于 2020-8-3 09:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小气鬼
+
+
+
+
+
+
+
+-----
+
+####  Pebble  
+##### 165#       发表于 2020-8-3 09:04
+
+
+
+<blockquote>jy000129 发表于 2020-8-3 08:56
+刀juan还有哪几个老婆很危险的？我就觉得瞎抖女朋友肯定是个雷</blockquote>
+你应该问哪个不危险
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 166#       发表于 2020-8-3 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
+
+你应该问哪个不危险</blockquote>
+枫哥的大概还好   吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 167#       发表于 2020-8-3 09:13
+
+
+
+
+大早上的fy粉丝群管理还在装死，昨天答应的再发红包一点消息都没<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  absaki  
+##### 168#       发表于 2020-8-3 11:09
+
+
+
+<img src="https://p.sda1.dev/0/b938828622155142c0ee93b262acd8a7/IMG_FDCB2244AA98A6371815ADF42761BAE6.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/10290734cca6b61898265f6b6d6acde9/IMG_D20D8A002679B083FE7CB75E27F584D7.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3611580e284c8c46e688453344829b28/IMG_FA754C8845EC4910FAE34310CE3E2BE4.jpeg" referrerpolicy="no-referrer">
+红包来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 169#       发表于 2020-8-3 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
+
+你应该问哪个不危险</blockquote>
+永不怀孕susuq，吧
+
+
+
+
+
+
+
+-----
+
+####  夜游的树  
+##### 170#       发表于 2020-8-3 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300658&amp;ptid=1951401" target="_blank">zievod 发表于 2020-08-03 04:59:56</a>
+面八的事情一点不同情 一个愿打一个愿挨
+每次都找点什么女人
+正经点的看不上 非得上赶着找小姐接盘当老实人 ...</blockquote>黄翔老婆淘宝店卖的那个牛肉和耳机不也把黄翔坑了个大的，他老婆和丈人拿水货卖正品价格搞的当时也是风评爆炸，从那之后黄翔他老婆就再没在微博和直播中出现过，熬到现在才算是把节奏混过去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zievod  
+##### 171#       发表于 2020-8-3 15:06
+
+
+
+ 本帖最后由 zievod 于 2020-8-3 15:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48303129&amp;ptid=1951401" target="_blank">夜游的树 发表于 2020-8-3 12:04</a>
+
+黄翔老婆淘宝店卖的那个牛肉和耳机不也把黄翔坑了个大的，他老婆和丈人拿水货卖正品价格搞的当时也是风评爆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">啥时候的事就记得没多久就生了个儿子 峰哥喜气洋洋全款海景房 然后不怎么看了 回头再看的时候胖头已经离婚了 
+
+不过这个事情就正常做生意也挺常见的 
+
+女人还是帮忙干活就行 做生意主要还是得自己搞
+
+以前老逼龙只是心情不好了yyqg 现在已经是一个彻彻底底的阴阳人了 怕不是那会儿给心态喷炸了
+
+
+所以现在模范老婆只剩ssq了吗
+
+昨天阿雕头铁 ssq还过来问夜宵吃啥 半夜吃狗粮
+
+
+
+
+
+
+
+
+-----
+
+####  色中饿鬼  
+##### 172#       发表于 2020-8-3 15:13
+
+
+
+
+你们刀狗非要和我抢粪坑吗
+
+
+
+
+
+
+
+-----
+
+####  恶搞之王  
+##### 173#       发表于 2020-8-4 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48301310&amp;ptid=1951401" target="_blank">Pebble 发表于 2020-8-3 09:04</a>
+
+你应该问哪个不危险</blockquote>
+宝哥啊，说实话我就知道宝哥老婆是他邻居，其他啥都不知道，理论上这种最安全，因为跟圈子根本没交集
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 174#       发表于 2020-8-4 17:00
+
+
+
+
+fy这事要是鳖鳖什么的来干
+
+节奏估计能真的上热搜（
+
+
+
+
+
+
+
+-----
+
+####  TheOccuria  
+##### 175#       发表于 2020-8-4 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚好像巨龙拉憋憋对黑，虎牙这么急吗，这就给黄翔下任务了
+
+
+
+
+
+
+
+-----
+
+####  TheOccuria  
+##### 176#       发表于 2020-8-4 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48316155&amp;ptid=1951401" target="_blank">何然 发表于 2020-8-4 17:00</a>
+
+fy这事要是鳖鳖什么的来干
+
+节奏估计能真的上热搜（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">甚至不用憋憋，你让黄翔干点这事那贴吧max轮番轰炸了
+
+不过以后fy变菜了这事迟早得当个梗，刀狗的记性还是挺好的
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 177#       发表于 2020-8-4 17:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看今晚徐志雷来巨龙major能多多少节奏
+
+
+
+
+
+
+
+-----
+
+####  桐道悠  
+##### 178#       发表于 2020-8-4 17:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等着看今晚杀鳖大会了
+
+
+
+
+
+
+
+-----
+
+####  脑袋砸核桃  
+##### 179#       发表于 2020-8-4 17:37
+
+
+
+
+难得看见fg开粉丝发言，硬是要带鳖，看来虎牙也急了
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 180#       发表于 2020-8-4 17:47
+
+
+
+
+峰哥毕竟情商哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新庄運切  
+##### 181#       发表于 2020-8-4 17:50
+
+
+
+
+好像开了没啥用啊，我没牌子也能说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
