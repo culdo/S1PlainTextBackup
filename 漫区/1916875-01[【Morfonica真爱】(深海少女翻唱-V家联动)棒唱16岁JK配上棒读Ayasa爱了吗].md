@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-28 22:02** 
+> ## **本文件最后更新于2020-08-04 22:01** 
 
 
 
@@ -1678,7 +1678,7 @@ ras组人气还没上来，怎么就又开新团了
 <img src="https://img.saraba1st.com/forum/202003/04/101333fgt4ghzyg76g2iyu.jpg" referrerpolicy="no-referrer">
 
 
-<strong>%(9U@P09QO6966WKWKKO~MA.jpg</strong> (80.89 KB, 下载次数: 0)
+<strong>%(9U@P09QO6966WKWKKO~MA.jpg</strong> (80.89 KB, 下载次数: 1)
 
 下载附件
 
@@ -1961,7 +1961,7 @@ ras组人气还没上来，怎么就又开新团了
 <img src="https://img.saraba1st.com/forum/202003/05/222611s88arlel2kwj3qzd.jpg" referrerpolicy="no-referrer">
 
 
-<strong>ESWgabyUUAEpcGZ.jpg</strong> (152.48 KB, 下载次数: 2)
+<strong>ESWgabyUUAEpcGZ.jpg</strong> (152.48 KB, 下载次数: 3)
 
 下载附件
 
@@ -3329,7 +3329,7 @@ bang男人手游几时开啊，想玩
 <img src="https://img.saraba1st.com/forum/202003/10/124802nkakkq9end2k2khn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
-<strong>DD6FC52C-5D5D-43FE-B886-49BACB0ED82E.jpeg</strong> (315.43 KB, 下载次数: 0)
+<strong>DD6FC52C-5D5D-43FE-B886-49BACB0ED82E.jpeg</strong> (315.43 KB, 下载次数: 1)
 
 下载附件
 
@@ -3688,7 +3688,7 @@ https://t.bilibili.com/363299210422447259?share_source=copy_link&amp;share_mediu
 <img src="https://img.saraba1st.com/forum/202003/14/150204wr7zoo7jv4kzofts.jpg" referrerpolicy="no-referrer">
 
 
-<strong>006LXK5gly1gcnjtyhe9sj30l21ms798.jpg</strong> (130.36 KB, 下载次数: 1)
+<strong>006LXK5gly1gcnjtyhe9sj30l21ms798.jpg</strong> (130.36 KB, 下载次数: 2)
 
 下载附件
 
@@ -4105,7 +4105,7 @@ m团现在剧情就是个路人团水平，唱歌再垫个底，棒读再不改�
 <img src="https://img.saraba1st.com/forum/202003/16/203855bwoc38q28i82frpr.jpg" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20200316203548.jpg</strong> (51.49 KB, 下载次数: 0)
+<strong>QQ图片20200316203548.jpg</strong> (51.49 KB, 下载次数: 1)
 
 下载附件
 
@@ -4387,7 +4387,7 @@ https://www.bilibili.com/video/av67969038
 
 
 225607BE-ED4F-4B7C-A13E-2E1D34AC1745.jpeg
-(31.02 KB, 下载次数: 1)
+(31.02 KB, 下载次数: 2)
 
 
 
@@ -4480,7 +4480,7 @@ https://www.bilibili.com/video/av67969038
 <img src="https://img.saraba1st.com/forum/202003/21/101237qjjujhp1jjh1fu7p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
-<strong>90719B03-41BE-46D1-8741-6A3A6148BDB8.jpeg</strong> (687.41 KB, 下载次数: 0)
+<strong>90719B03-41BE-46D1-8741-6A3A6148BDB8.jpeg</strong> (687.41 KB, 下载次数: 1)
 
 下载附件
 
@@ -5006,7 +5006,7 @@ U1S1，西尾夕香更有一姐的气质，你一直当被大家宠爱的小妹�
 
 
 0B030C3B-850F-4A10-B422-8C2F7C827A20.jpeg
-(42.66 KB, 下载次数: 0)
+(42.66 KB, 下载次数: 1)
 
 
 
@@ -5035,7 +5035,7 @@ U1S1，西尾夕香更有一姐的气质，你一直当被大家宠爱的小妹�
 
 
 1706EF0D-0EC3-4509-A01F-4DFE87F9A63C.jpeg
-(61.1 KB, 下载次数: 0)
+(61.1 KB, 下载次数: 1)
 
 
 
@@ -5064,7 +5064,7 @@ U1S1，西尾夕香更有一姐的气质，你一直当被大家宠爱的小妹�
 
 
 E04326E5-DAFE-488A-AEF3-0F19FD3A56A5.jpeg
-(58.15 KB, 下载次数: 0)
+(58.15 KB, 下载次数: 1)
 
 
 
@@ -5226,7 +5226,7 @@ Ayasa最近好像已经瘦点了，之前看少歌的live或者舞台剧的时�
 
 
 39ED75DB-5956-4F13-BFB6-A8D6CD56CD23.jpeg
-(52.16 KB, 下载次数: 0)
+(52.16 KB, 下载次数: 1)
 
 
 
@@ -5255,7 +5255,7 @@ Ayasa最近好像已经瘦点了，之前看少歌的live或者舞台剧的时�
 
 
 51A81DE3-BBA2-4851-90E6-3BE7CD0CFE7F.jpeg
-(38.56 KB, 下载次数: 0)
+(38.56 KB, 下载次数: 1)
 
 
 
@@ -5284,7 +5284,7 @@ Ayasa最近好像已经瘦点了，之前看少歌的live或者舞台剧的时�
 
 
 7F5779F8-F103-4A1C-8112-65E88ECE4E2D.jpeg
-(51.28 KB, 下载次数: 1)
+(51.28 KB, 下载次数: 2)
 
 
 
@@ -5313,7 +5313,7 @@ Ayasa最近好像已经瘦点了，之前看少歌的live或者舞台剧的时�
 
 
 FBFA6E39-8910-49C6-8E25-EB04FA17E908.jpeg
-(36.7 KB, 下载次数: 1)
+(36.7 KB, 下载次数: 2)
 
 
 
@@ -7030,7 +7030,7 @@ d4dj我最感到奇妙的是主角团的叫各務華梨的这位....live上没�
 
 
 E4F7EAB8-651E-4796-876A-FAF9A8B430A2.jpeg
-(43.24 KB, 下载次数: 0)
+(43.24 KB, 下载次数: 1)
 
 
 
@@ -7059,7 +7059,7 @@ E4F7EAB8-651E-4796-876A-FAF9A8B430A2.jpeg
 
 
 592251A8-31D0-4211-AAD7-7211982AC5A8.jpeg
-(34.25 KB, 下载次数: 0)
+(34.25 KB, 下载次数: 1)
 
 
 
@@ -7160,4 +7160,489 @@ Morfonica真爱楼 X
 
 
 
-                                     
+
+
+-----
+
+####  有机QP  
+##### 368#       发表于 2020-7-28 22:53
+
+
+
+
+既然变成武士道黑屁楼了有人可以给我科普下男邦a团那个主唱为什么前几天的Live唱得那么劈吗，他不是传闻以前稳如CD来着？
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 369#       发表于 2020-7-28 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主角团就西尾一个能看，去m4的c换掉就是完美团队
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 370#       发表于 2020-7-29 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">越看西尾唇上的那颗痣越在意
+hibiki style之类的视频看不出来就感觉好可爱，但**或者杂志图那颗痣很显眼就气质都变了
+
+
+
+
+
+
+
+-----
+
+####  lunaticfear  
+##### 371#       发表于 2020-7-29 00:47
+
+
+
+
+这次的歌两个R组都不错，M团一人拉跨全队
+
+
+
+
+
+
+
+-----
+
+####  t222  
+##### 372#       发表于 2020-7-29 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48242717&amp;ptid=1916875" target="_blank">inflation 发表于 2020-7-28 21:04</a>
+
+其实现实里DJ的工作大部分都是在演出前做的，找歌、对BPM、打好断点、保持音乐不断等等才是业务核心，上 ...</blockquote>
+主打DJ的企划到live碟不打就只能站那摆来摆去，高台上跳舞也没人看得清楚，倒是amita那队走女团风格，跳舞跳到设备掉出来鼻孔插麦<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  t222  
+##### 373#       发表于 2020-7-29 09:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48239912&amp;ptid=1916875" target="_blank">权志龙 发表于 2020-7-28 16:00</a>
+
+m4打碟那位hmr也不错的鸭莉莉莉莉的反田小姐营业笑容有四川社长的影子了 ...</blockquote>
+打碟那我没怎么注意，都在看腰了
+
+
+
+
+
+
+
+-----
+
+####  inflation  
+##### 374#       发表于 2020-7-29 09:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48245682&amp;ptid=1916875" target="_blank">t222 发表于 2020-7-28 20:03</a>
+
+主打DJ的企划到live碟不打就只能站那摆来摆去，高台上跳舞也没人看得清楚，倒是amita那队走女团风格，跳 ...</blockquote>
+那队简直翻车现场<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  t222  
+##### 375#       发表于 2020-7-29 10:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48245979&amp;ptid=1916875" target="_blank">inflation 发表于 2020-7-29 09:36</a>
+
+那队简直翻车现场虽然能感受到要走未来风，但衣服内廉价感都要飞出来了，再加上疯狂喷麦实在是令 ...</blockquote>
+适合关声音看跳舞，进化的丸山彩ai了ai了
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 376#       发表于 2020-7-29 11:04
+
+
+
+ 本帖最后由 unnilennium 于 2020-7-29 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48245979&amp;ptid=1916875" target="_blank">inflation 发表于 2020-7-29 09:36</a>
+
+那队简直翻车现场虽然能感受到要走未来风，但衣服内廉价感都要飞出来了，再加上疯狂喷麦实在是令 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">吃个鱼钩。
+
+衣服材质吧选了那种类似塑料的，穿在身上特别贴特别热。个人审美不同，有些人觉得“很动画还原”有些人觉得“廉价”，这个倒也正常。
+
+
+你说喷麦，那我倒要说pkpk高木念白、rondo的つんこ喊麦的时候，有几句手持麦克也有呼麦和喷麦的情况。只不过效果没有耳挂麦克那么明显。
+
+如果有人愿意科普一下麦克的区别就好了，但我听着是两种麦克都有出现过类似的问题。问就是武士道不行，这场各种小事故不断，天音妹妹那组还有一个人把头饰的发卡弄掉了，趁着灯黑下去走位过去捡起来（
+
+
+至于翻车，7.26这场从what are you开始岩田的麦克脱落一次、这首歌后半段她一直用右手扶着麦克、跳舞只用一边胳膊也没有对表演的观感特别减分。岩田坚持到sakura跑来一个staff过来修整，一次没修好到后面下台调整。
+
+她下台的时候前岛和日向对着镜头的特写增加了很多，机位导播倒是紧张很多，变得只会给前岛和日向上半身，但是她们也没有特别乱了阵脚。
+
+另外日向还几次调整那个松松垮垮要掉下来的麦克。
+
+
+我倒觉得这队的事故处理全是专业素质，不知道你有什么好笑的
+
+
+
+
+
+
+
+-----
+
+####  zhc016  
+##### 377#       发表于 2020-7-29 19:20
+
+
+
+
+听完full
+天音妹妹有进步了
+加油呀我滴中田真优<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 378#       发表于 2020-7-29 19:57
+
+
+
+
+JK，你好強大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shamanda  
+##### 379#       发表于 2020-7-29 20:23
+
+
+
+
+各務華梨好像是在美国住过，一口英文不错，估计是拿来骗鬼佬钱的，反正他们的审美也说不清。
+
+
+虽然我是hrk单推，不过pm部分光记得amt的裙底了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  inflation  
+##### 380#       发表于 2020-7-29 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48246931&amp;ptid=1916875" target="_blank">unnilennium 发表于 2020-7-28 22:04</a>
+ 吃个鱼钩。 衣服材质吧选了那种类似塑料的，穿在身上特别贴特别热。个人审美不同，有些人觉得“很 ...</blockquote>
+啊这<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">我一直笑的是武士道，对声优本人没有任何意见。只是前面提到了就拎出来说说，包括其他组合整场表演都充斥着不和谐感，比如燐舞曲中间翻唱曲目的autotune一开只能令人感到尴尬。
+
+至于两种麦克风的区别，手持麦体积大可以做更多的防风处理，而且收音不用离的很近，因此喷麦现象会少很多。而佩戴式体积小必须靠近声源，属于喷麦重灾区，所以需要更多的后期处理。本来作为电音企划就留下了很多处理的空间，既然必须用到佩戴麦，那提前做一个低切既能预防喷麦又能加电，岂不美哉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 381#       发表于 2020-7-29 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254055&amp;ptid=1916875" target="_blank">inflation 发表于 2020-7-29 22:17</a>
+
+啊这我一直笑的是武士道，对声优本人没有任何意见。只是前面提到了就拎出来说说，包括其他组合整 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">不和谐是正常的，讲小了就是这场确实不少意外，讲大了就是武士道现在强推这个DJ企划，
+
+很多意义上都挺好笑的，木谷之前在推特上隔空回应万代电音部的消息，我也不明白哪来的底气
+给面子说是没什么可比性面对目标都不一样，说难听就....
+
+
+
+
+
+
+
+-----
+
+####  超法拉  
+##### 382#       发表于 2020-7-29 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254238&amp;ptid=1916875" target="_blank">unnilennium 发表于 2020-7-29 22:43</a>
+
+不和谐是正常的，讲小了就是这场确实不少意外，讲大了就是武士道现在强推这个DJ企划，
+
+很多意义上 ...</blockquote>
+电音部那个企划不了解，只知道staff挺猛的
+
+这样看野心还挺大？
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 383#       发表于 2020-7-29 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254273&amp;ptid=1916875" target="_blank">超法拉 发表于 2020-7-29 22:47</a>
+
+电音部那个企划不了解，只知道staff挺猛的
+
+这样看野心还挺大？</blockquote>
+木董自己出新产品王婆卖瓜是正常的，硬要说野心，回回都有
+而且毕竟武士道去年开始上市，多少给股民做点样子
+
+具体DJ是骡子是马，等动画和手游出来纸片人形象立起来再看看呗，现在虽然是铺了不少（比如搞了电视台综艺、ASL送上去两组、外派参加live等），但还是以卖中之人为主，依靠原有的作品（邦邦少歌）借力打力的多一点
+
+
+
+
+
+
+
+-----
+
+####  unnilennium  
+##### 384#       发表于 2020-7-29 23:33
+
+
+
+
+顺便，楼里基本都是提天音唱歌的，既然说到D4DJ这种唱唱跳跳的了，就给大家再提供一个天音唱跳的素材<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+武士道去年发布的新TCG Reバース for you（卡牌游戏、有卡牌原创角色为主人公的衍生动画）发布会，
+
+CV12人唱动画主题歌，28分10秒开始，身高最高的是天音妹妹，跳舞也还是再练练吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1SJ41137VT](https://www.bilibili.com/video/BV1SJ41137VT)
+
+
+
+
+
+
+
+-----
+
+####  すぴぱら  
+##### 385#       发表于 2020-7-29 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254238&amp;ptid=1916875" target="_blank">unnilennium 发表于 2020-7-29 22:43</a>
+不和谐是正常的，讲小了就是这场确实不少意外，讲大了就是武士道现在强推这个DJ企划，
+
+很多意义上 ...</blockquote>
+DDDDJ的开局就很尴尬，可以说是武士道卖相最差的企划了，那个手游从UI到立绘到操作手感都一股怪味。要说木谷要猛推一波总得再拨点经费好好包装一下卖相吧，然而并没有什么变化。三次元女团live也是复刻炸梦，还靠老人疯狂打工推新人，可惜还是撑不住场面，包括之前的一些视频，网络关注度都不是很高。
+
+等到友商出电音部，现在推上不少评价都是：终于等到竞品了...
+
+
+
+
+
+
+
+-----
+
+####  inflation  
+##### 386#       发表于 2020-7-29 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254650&amp;ptid=1916875" target="_blank">unnilennium 发表于 2020-7-29 10:33</a>
+
+顺便，楼里基本都是提天音唱歌的，既然说到D4DJ这种唱唱跳跳的了，就给大家再提供一个天音唱跳的素材[f:053 ...</blockquote>
+绝了，都从哪儿挖出来这些视频的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 387#       发表于 2020-7-29 23:57
+
+
+
+<blockquote>unnilennium 发表于 2020-7-29 23:33
+顺便，楼里基本都是提天音唱歌的，既然说到D4DJ这种唱唱跳跳的了，就给大家再提供一个天音唱跳的素材[f:053 ...</blockquote>
+一眼就看到了……怎么又是你——打工战士！
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 388#       发表于 2020-8-1 21:22
+
+
+
+
+刚发现好几年前看过的这个视频除了得第一的是yurika外，这不是西尾吗
+
+
+
+
+
+
+53C8BCF5-BD13-41F5-A233-C37B739AA165.png
+(213.27 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-1 21:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/01/212159ew1h45b2q091y5zb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  勇者仁杰  
+##### 389#       发表于 2020-8-2 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48254650&amp;ptid=1916875" target="_blank">unnilennium 发表于 2020-7-29 23:33</a>
+顺便，楼里基本都是提天音唱歌的，既然说到D4DJ这种唱唱跳跳的了，就给大家再提供一个天音唱跳的素材[f:053 ...</blockquote>
+原作是！西阿斯卡！吓得我赶紧看了几眼，确认是不是那个哈哈哈哈哈哈。
+
+
+
+
+
+
+
+-----
+
+####  li463900160  
+##### 390#       发表于 2020-8-4 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48243624&amp;ptid=1916875" target="_blank">有机QP 发表于 2020-7-28 22:53</a>
+
+既然变成武士道黑屁楼了有人可以给我科普下男邦a团那个主唱为什么前几天的Live唱得那么劈吗，他不是传闻以 ...</blockquote>
+状态不好，麦也有问题
+
+男邦的歌都特别高，特别难唱，这场这种直播放生音特别考验水平，没办法
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 391#       发表于 2020-8-4 21:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新的搓碟企划确实画风不吸引我，一股子QQ秀味儿
+
+
+
+
+
+                                    
