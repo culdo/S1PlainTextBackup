@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-05 06:06** 
+> ## **本文件最后更新于2020-08-06 00:08** 
 
 
 
@@ -10253,4 +10253,501 @@ Jump king过了？这两天忙成狗，通关瞬间没看到，好气啊<img src
 
 
 
-                             
+
+
+-----
+
+####  shiroslime  
+##### 602#       发表于 2020-8-5 16:27
+
+
+
+
+要60w了，这就突击收钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 603#       发表于 2020-8-5 16:29
+
+
+
+
+盲猜上播前5分钟达到60w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 604#       发表于 2020-8-5 16:38
+
+
+
+
+这种等待xx万人如果开播前没有达成是不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 605#       发表于 2020-8-5 16:41
+
+
+
+
+不会啊，肯定是可控范围内才搞这个的。
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 606#       发表于 2020-8-5 16:43
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-5 16:45 编辑 
+
+昨天就59.9了，现在搞这个也太慢了
+
+草，记错了，今天中午的事
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 607#       发表于 2020-8-5 16:58
+
+
+
+
+这人的50w纪念办过吗？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 608#       发表于 2020-8-5 17:04
+
+
+
+
+应该有不少人都像我一样取消了订阅吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 609#       发表于 2020-8-5 17:05
+
+
+
+
+都是魔鬼么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 610#       发表于 2020-8-5 17:07
+
+
+
+
+都是坏蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 611#       发表于 2020-8-5 17:13
+
+
+
+
+只有我是亲妈粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 612#       发表于 2020-8-5 17:13
+
+
+
+
+あらじろ【ARK】
+
+​チー牛<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">  一眼就看到个冲塔的
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 613#       发表于 2020-8-5 17:14
+
+
+
+
+夸宝的嗓子还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">昨晚正常说话都有点破音
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 614#       发表于 2020-8-5 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 615#       发表于 2020-8-5 17:17
+
+
+
+
+这波是在处刑萝卜子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 616#       发表于 2020-8-5 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我下班到家了，夸宝就达成60w了，什么都没听到草。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 617#       发表于 2020-8-5 17:23
+
+
+
+
+这么大的字体，估计5-7首意思意思就下播
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 618#       发表于 2020-8-5 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么ダダダダ天使都翻车了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 619#       发表于 2020-8-5 17:26
+
+
+
+
+翻车才是本色出演呗<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 620#       发表于 2020-8-5 17:33
+
+
+
+
+好墨迹啊，人都走光了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 621#       发表于 2020-8-5 17:38
+
+
+
+
+这首好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 622#       发表于 2020-8-5 17:39
+
+
+
+
+这首新歌还不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 623#       发表于 2020-8-5 17:40
+
+
+
+
+好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 624#       发表于 2020-8-5 17:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草  唱这么久人家的歌 居然名字都没记住怎么读
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 625#       发表于 2020-8-5 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">久美子LINE发消息要她唱M，这歌好，就去年10月份的时候唱过一次，挺好听的
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 626#       发表于 2020-8-5 18:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大草原ww 感受到了些许时代感
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 627#       发表于 2020-8-5 18:20
+
+
+
+
+来晚了，正好听到上次唱就非常适合的M，时代金曲，我的青春，洋葱的胎教<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">不过嗓子怎么还是劈了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 628#       发表于 2020-8-5 20:38
+
+
+
+
+奶油面包牛肉饭怎么就40w播放了？涨的也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 629#       发表于 2020-8-5 20:40
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-5 22:25 编辑 
+
+不慌，看速度只是一天涨10w播放
+
+不慌，10w+的速度
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 630#       发表于 2020-8-5 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">披上了二次元皮的三次元肉体真香
+
+
+
+
+
+
+
+-----
+
+####  濡鸦之羽_  
+##### 631#       发表于 2020-8-5 22:31
+
+
+
+
+看了下牛肉饭。手不debu，但是那个派派可了不得<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 632#       发表于 2020-8-5 23:28
+
+
+
+
+点进直播间发现B站这边的周边套票也卖完了啊
+
+
+
+
+
+                            
