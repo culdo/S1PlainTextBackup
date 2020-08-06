@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-03 18:06** 
+> ## **本文件最后更新于2020-08-07 00:11** 
 
 
 
@@ -24128,7 +24128,7 @@ https://xenoblade.cn/%E7%8F%8D%E7%A8%80%E7%A7%8D
 
 
 
-123.9 KB, 下载次数: 50
+123.9 KB, 下载次数: 51
 
 
 
@@ -24875,7 +24875,7 @@ Xenoblade de 全任务.xlsx
 
 
 
-96.17 KB, 下载次数: 17
+96.17 KB, 下载次数: 19
 
 
 
@@ -26354,4 +26354,663 @@ E12E9875-7FCE-4DB5-AB7A-4494A0DAC703.jpeg
 
 
 
-    
+
+
+-----
+
+####  喵咪咪格勒  
+##### 5853#       发表于 2020-8-4 00:25
+
+
+
+
+隔了好久打完追加故事。 boss到底啥来头
+
+
+
+
+
+
+
+-----
+
+####  塔奇克马  
+##### 5854#       发表于 2020-8-4 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48310184&amp;ptid=1856998" target="_blank">喵**格勒 发表于 2020-8-4 00:25</a>
+隔了好久打完追加故事。 boss到底啥来头</blockquote>
+大概是门与门夹缝中的生物。这些生物是xb2世界中的追求永生失败又被裹挟到xb1世界途中没有转化完全的产物。
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  喵咪咪格勒  
+##### 5855#       发表于 2020-8-4 00:41
+
+
+
+ 本帖最后由 喵咪咪格勒 于 2020-8-4 00:45 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202008/04/004454c2mdkttykh4j0970.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>08AF4EF4-A796-4C85-86F9-449FA1C81092.jpeg</strong> (269.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-4 00:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/04/004428jzll2vh4hiln12j4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>747172DB-5B10-481C-AC65-9207776E4ACE.jpeg</strong> (286.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-4 00:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/04/004444ov8agv23ava6asv8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>90559407-6FAE-404A-9C6B-65760731740A.jpeg</strong> (280.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-4 00:44 上传
+
+
+
+
+
+皇女这
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5856#       发表于 2020-8-5 02:19
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-8-5 10:58 编辑 
+
+仔细看了下梅莉亚的银莲花套，太美了
+<img src="https://p.sda1.dev/0/e45d4335810eea27fdf0f71bb54285b6/IMG_0F29F25A3CFF3F5B12F18CB00D74B787.jpeg" referrerpolicy="no-referrer">
+腿窝处的褶皱显得勾勒出的小腿曲线更为匀称饱满
+<img src="https://p.sda1.dev/0/a5f939f92886620812e6549f01855296/IMG_4E7CD5984E502D3FB6EE1C01FDCA1F23.jpeg" referrerpolicy="no-referrer">
+而上臂和肘部的褶皱则更显纤细，配上背部和腰部镂空处裸露的肌肤，端庄又诱人
+
+
+
+
+
+
+
+-----
+
+####  七氷  
+##### 5857#       发表于 2020-8-5 14:18
+
+
+
+
+梅莉雅为啥不会飞
+
+
+
+
+
+
+
+-----
+
+####  AincradWanderer  
+##### 5858#       发表于 2020-8-5 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48324997&amp;ptid=1856998" target="_blank">七氷 发表于 2020-8-5 14:18</a>
+梅莉雅为啥不会飞</blockquote>
+塔鲁可不比梅莉亚大多少岁就有大翅膀能飞，可见决定混血海恩塔翅膀大小的不是年龄，可推测混血海恩塔的大翅膀属于隐性基因，梅莉亚只是遗传了小翅膀的显性基因<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  新八  
+##### 5859#       发表于 2020-8-5 21:43
+
+
+
+
+请问梅里亚的dot跟力气的会不会叠加？看图标的话同种dot只有一个图标，但好像都说能叠加
+
+————————————————
+
+
+翻了一下，好像确实能叠加
+
+
+
+
+
+
+
+-----
+
+####  希望之异热同心  
+##### 5860#       发表于 2020-8-6 00:46
+
+
+
+
+越级打怪（越5级以上）是不是只有丹邦上夜间命中开了明镜止水之后才能命中？然后其余靠队友以太伤害输出？
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 5861#       发表于 2020-8-6 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48331100&amp;ptid=1856998" target="_blank">希望之异热同心 发表于 2020-8-6 00:46</a>
+
+越级打怪（越5级以上）是不是只有丹邦上夜间命中开了明镜止水之后才能命中？然后其余靠队友以太伤害输出？
+
+ ...</blockquote>
+影响物理命中的要素还挺多的，比如怪的敏捷，还有被动的百分比提成什么的，具体计算可以看一下这个：[https://www.gamersky.com/handbook/202006/1297055.shtml](https://www.gamersky.com/handbook/202006/1297055.shtml)
+
+
+
+
+
+
+
+-----
+
+####  绿冰  
+##### 5862#       发表于 2020-8-6 01:04
+
+
+
+ 本帖最后由 绿冰 于 2020-8-6 01:06 编辑 
+<blockquote>希望之异热同心 发表于 2020-8-6 00:46
+越级打怪（越5级以上）是不是只有丹邦上夜间命中开了明镜止水之后才能命中？然后其余靠队友以太伤害输出？
+
+ ...</blockquote>
+
+宝石装敏捷加50，技能树链接两个加敏捷的，性格选敏捷
+
+光这样丹邦就能越5级，加上明镜止水大多数高10级的都没问题
+
+队友带梅莉雅，有可能挂风元素，每个再加5%敏捷
+
+其他人除了力奇就没办法了，5级左右还好，10级左右基本上是得夜间命中宝石，或者链接力奇的背后命中+50
+
+
+以太攻击的和敏捷无关，基本链接梅莉雅的无心之悟就行，力奇和梅莉雅下毒打法的基本上扛得住就能无视等级迟早磨死
+
+
+
+
+
+
+
+-----
+
+####  蓮華  
+##### 5863#       发表于 2020-8-6 15:43
+
+
+
+
+XBDE132W，为诺彭社开心，XBXDE和新作快安排上<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 5864#       发表于 2020-8-6 15:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/155344meecrzw5zkvnztw9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2008061650.jpg</strong> (52.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 15:53 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的感觉还挺准的，200w应该有戏。
+
+
+
+
+
+
+
+-----
+
+####  绿冰  
+##### 5865#       发表于 2020-8-6 15:57
+
+
+
+<blockquote>秋月孝三 发表于 2020-8-6 15:55
+我的感觉还挺准的，200w应该有戏。</blockquote>
+首发型游戏，应该是150万差不多了，也足够优秀了
+
+
+
+
+
+
+
+-----
+
+####  kal_008  
+##### 5866#       发表于 2020-8-6 16:03
+
+
+
+
+XBDE：132万+XB2（NS）173万+XBX（WiiU）90万+XB（3DS）60万+XB（Wii）90万=545w
+
+XB系列销量500w也是达成了
+
+
+
+
+
+
+
+-----
+
+####  hugosol  
+##### 5867#       发表于 2020-8-6 16:31
+
+
+
+
+才两个月就132w了，很可怕好吧
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 5868#       发表于 2020-8-6 16:33
+
+
+
+
+好啊好啊，实质上还是冷饭也能卖那么多。
+
+当然这游戏质量也在那里，XB3赶紧的！
+
+
+
+
+
+
+
+-----
+
+####  lypylf  
+##### 5869#       发表于 2020-8-6 17:12
+
+
+
+
+XB3销量能上个新台阶吗，200万还是300万？
+
+
+
+
+
+
+
+-----
+
+####  zjoi  
+##### 5870#       发表于 2020-8-6 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48337903&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-8-6 16:31</a>
+
+才两个月就132w了，很可怕好吧</blockquote>
+是截止6月30日的财报，所以是一个月
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 5871#       发表于 2020-8-6 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">想到还是在这糊糊主机上出新作我就有点兴趣缺缺= =
+
+
+
+
+
+
+
+-----
+
+####  hugosol  
+##### 5872#       发表于 2020-8-6 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339103&amp;ptid=1856998" target="_blank">zjoi 发表于 2020-8-6 18:05</a>
+
+是截止6月30日的财报，所以是一个月</blockquote>
+那就更恐怖了，我记得日本首周只有10w左右的样子，之前我就想这数字会不会是海外占大头了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UyNad  
+##### 5873#       发表于 2020-8-6 18:50
+
+
+
+
+贡献了三份的路过 只要人人献出一点爱 XB1决定版的决定版就会在十年内再次到来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  颗粒粒  
+##### 5874#       发表于 2020-8-6 19:00
+
+
+
+
+可喜可贺可喜可贺，希望下一作也能稳步提升<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BigLittle1999  
+##### 5875#       发表于 2020-8-6 19:15
+
+
+
+
+xb3、xbxde、xbx2、小红帽，摩多摩多<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zjoi  
+##### 5876#       发表于 2020-8-6 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339492&amp;ptid=1856998" target="_blank">hugosol 发表于 2020-8-6 18:46</a>
+
+那就更恐怖了，我记得日本首周只有10w左右的样子，之前我就想这数字会不会是海外占大头了 ...</blockquote>
+本土28万，海外104万
+
+单纯就卖座程度，已经和海外差不多了
+
+
+欧美市场大概是日本的5倍，而这次本土销量却超过了海外的1/4，平均购买率其实已经超过欧美了
+
+
+
+
+
+
+
+-----
+
+####  AincradWanderer  
+##### 5877#       发表于 2020-8-6 19:39
+
+
+
+
+真好，高桥这会儿已经开香槟了吧，确实值得庆贺<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5878#       发表于 2020-8-6 19:58
+
+
+
+
+可喜可贺可喜可贺，期待新作
+
+
+
+
+
+
+
+-----
+
+####  rhocas  
+##### 5879#       发表于 2020-8-6 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48339410&amp;ptid=1856998" target="_blank">lemon鱿鱼 发表于 2020-8-6 18:36</a>
+
+想到还是在这糊糊主机上出新作我就有点兴趣缺缺= =</blockquote>
+其实异度1在电脑上用模拟器玩效果已经能接受了
+
+还支持高分辨率
+
+b站看过一个4k分辨率下的视频片段
+[https://www.bilibili.com/video/BV1GT4y1E7Qw](https://www.bilibili.com/video/BV1GT4y1E7Qw)
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 5880#       发表于 2020-8-6 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48324997&amp;ptid=1856998" target="_blank">七氷 发表于 2020-8-5 14:18</a>
+
+梅莉雅为啥不会飞</blockquote>
+有长翼NPC说过，有翅膀但并不能飞，但是有经过训练的话就说不准了。
+
+
+
+
+
+
+
+-----
+
+####  oylrcc  
+##### 5881#       发表于 2020-8-6 21:24
+
+
+
+
+高桥大大，你看玩家都这么支持，xbx加料重制版是不是安排一下
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 5882#       发表于 2020-8-6 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340539&amp;ptid=1856998" target="_blank">rhocas 发表于 2020-8-6 20:19</a>
+
+其实异度1在电脑上用模拟器玩效果已经能接受了
+
+还支持高分辨率
+
+b站看过一个4k分辨率下的视频片段</blockquote>
+我当时就是这么玩的= =
+
+其实就算这样画面依然很不入流
+
+
+更何况这和xb3并没有什么关系
+
+ns可是720p都能掉帧= =
+
+
+
+
+
+
+
+-----
+
+####  findpkq  
+##### 5883#       发表于 2020-8-6 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48337411&amp;ptid=1856998" target="_blank">秋月孝三 发表于 2020-8-6 15:55</a>
+我的感觉还挺准的，200w应该有戏。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/021.png" referrerpolicy="no-referrer">打脸很爽，摩多摩多
+
+—— 来自 Xiaomi Redmi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  宛若青空  
+##### 5884#       发表于 2020-8-6 23:53
+
+
+
+
+前两天看到XB2打折岳父还发了推宣传，刚又看到岳父祝贺XBDE卖出132万，saitom真的很爱xb啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（以及他推上置顶居然还是18年10月30日他发的“xb2发售中”的宣传推）
+
+<img src="https://img.saraba1st.com/forum/202008/06/234852p145rydbyd81z7do.png" referrerpolicy="no-referrer">
+
+
+<strong>snipaste_20200806_234833.png</strong> (51.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 23:48 上传
+
+
+
+
+
+
+
+
+
+
+
+   
