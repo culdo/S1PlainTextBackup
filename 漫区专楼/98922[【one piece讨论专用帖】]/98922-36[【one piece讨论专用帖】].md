@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-06 18:02** 
+> ## **本文件最后更新于2020-08-07 16:02** 
 
 
 
@@ -13432,4 +13432,627 @@ op其实很好收，空白一百年和op摆明了是一件东西。。。。
 
 
 
-                         
+
+
+-----
+
+####  GreenBird  
+##### 53222#       发表于 2020-8-6 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48337710&amp;ptid=98922" target="_blank">西奈？！ 发表于 2020-8-6 16:17</a>
+
+如果大妈还有失忆期间的记忆，不就是自己人了吗</blockquote>
+上次大妈并没有豁出去地决战，这次又萎掉的话，篇幅很难允许她再发挥了。她一定需要一场大战，以提高整个战斗的质量，也符合超越顶上的预期。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53223#       发表于 2020-8-6 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48263420&amp;ptid=98922" target="_blank">svmkty 发表于 2020-7-30 18:14</a>
+
+大概是宣发文案做的好，不过凯多大妈这两四皇目前表现的确不尽如人意，不说巅峰罗杰白胡子卡普，似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还真破防了啊，大妈还来了句凯多死了吗，真的是不知道当年他哪来的勇气去单挑，就这。
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53224#       发表于 2020-8-6 19:38
+
+
+
+
+尾田为了吹捧自家武士已经不要脑子了，20年前决战砍不了凯多，穿越过来就立马砍的了了，说好的刀枪不入呢？还是凯多被抓了无数回楞是没碰上一个会流樱的？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53225#       发表于 2020-8-6 20:11
+
+
+
+ 本帖最后由 武男 于 2020-8-6 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340068&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 19:38</a>
+
+尾田为了吹捧自家武士已经不要脑子了，20年前决战砍不了凯多，穿越过来就立马砍的了了，说好的刀枪不入呢？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">前面有老哥说过“凯多是网红型四皇，找一堆托跟着去海军总部门口晃一圈打打杂兵低级军官，等大将来之前立马开溜。。。或找围观群众多的地方玩个蹦极型自杀。之后回去在找些**手润色下，最强生物单挑王莽男凯多这个人设就塑造起来了”
+
+你觉得会不会真是这样呢，我不觉得凯多这幅德行能够挡住卡普和海军大将们的围剿。当然分析下来还有种可能，就是不黑他，把他当成动物系的顶点，耐揍恢复力强就行了.
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53226#       发表于 2020-8-6 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340439&amp;ptid=98922" target="_blank">武男 发表于 2020-8-6 20:11</a>
+
+前面有老哥说过“凯多是网红型四皇，找一堆托跟着去海军总部门口晃一圈打打杂兵低级军官，等大将来 ...</blockquote>
+那就是尾田虚假宣传诓骗读者，切腹以谢天下吧。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53227#       发表于 2020-8-6 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340687&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 20:32</a>
+
+那就是尾田虚假宣传诓骗读者，切腹以谢天下吧。</blockquote>
+其实还是前面觉得凯多团有多强给你们整出来的感觉，现在白团高干入场以后就知道了，马尔科照样能踢飞大妈团，队长能正面打掉皇副的武器，白胡子依旧是世界最强。但是这样就越想越气，早把消息传出去的话，全盛时期的白胡子上来说不定就直接报仇成功了。
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53228#       发表于 2020-8-6 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340904&amp;ptid=98922" target="_blank">武男 发表于 2020-8-6 20:52</a>
+
+其实还是前面觉得凯多团有多强给你们整出来的感觉，现在白团高干入场以后就知道了，马尔科照样能踢飞大妈 ...</blockquote>
+可笑的不是这个，而是凯多刚登场的时候尾田各种神吹吊胃口，结果告诉你学个一招半式就能让它流血，简直是糊弄读者，你想不出怎么打败它就别神吹啊。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 53229#       发表于 2020-8-6 21:23
+
+
+
+
+不如这样，其实凯多也是最近才查出有不治之症，病得比当初白胡子还厉害，防御力只剩当年的20%，然后后边五皇被雷鸣128卦打到半死，刚要开五档，三灾六飞胞全跪下哭了，“凯多他……他老死了”，凯多没输，路飞赢了，战力问题迎刃而解<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53230#       发表于 2020-8-6 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341028&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 21:03</a>
+
+可笑的不是这个，而是凯多刚登场的时候尾田各种神吹吊胃口，结果告诉你学个一招半式就能让它流血，简直是 ...</blockquote>
+你们也该想想啊，他吹那么多不还是拿大妈没啥办法，大妈前面啥样你们还不知道嘛。四皇之间基本上都是五五开，尬吹不可取，有长必有短嘛。实在不行，你们把这个当成沙鄂重演吧。
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 53231#       发表于 2020-8-6 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341231&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2020-8-6 21:23</a>
+不如这样，其实凯多也是最近才查出有不治之症，病得比当初白胡子还厉害，防御力只剩当年的20%，然后后边五 ...</blockquote>
+艹，是武术的胜利
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 53232#       发表于 2020-8-6 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340687&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 20:32</a>
+
+那就是尾田虚假宣传诓骗读者，切腹以谢天下吧。</blockquote>
+凯多的"最强"是漫画里人们口口相传的流言传说，和白胡子鹰眼这种直接明确挂出来的最强还是有区别的，如果真的是最强直接像白胡子鹰眼那样挂个“最强生物”的框不就行了
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/215124a0lpfgh4ufuwt2hu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>23423gf2g2.jpg</strong> (50.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 21:51 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/215124nc3kzx02l206kc00.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8c1001e93901213f2692b3a743e736d12f2e952c.jpg</strong> (133.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 21:51 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/215125h6rornqnuurcuqjc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>432423gtf33g5.jpg</strong> (92.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 21:51 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/215124viaszc44swi4iwxw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>213e423f23f.jpg</strong> (149.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 21:51 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/06/215125tygw52nizyg5js1s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>432423gtf33g3.jpg</strong> (24.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-6 21:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53233#       发表于 2020-8-6 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341584&amp;ptid=98922" target="_blank">svmkty 发表于 2020-8-6 21:53</a>
+
+凯多的"最强"是漫画里人们口口相传的流言传说，和白胡子鹰眼这种直接明确挂出来的最强还是有区别的，如果 ...</blockquote>
+累不累啊？我前面就说了，它要没那么强就别吊人胃口最后又拉胯，凯多现在这样子就和死神里某人那把刀一样，最后告诉你我胡诌的，没那么长实际能力是带毒，这不是虚假宣传是什么？
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 53234#       发表于 2020-8-6 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341734&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 22:05</a>
+
+累不累啊？我前面就说了，它要没那么强就别吊人胃口最后又拉胯，凯多现在这样子就和死神里某人那把刀一样 ...</blockquote>
+大概是想塑造个实际和人们口头传说有所差别的人物，这种角色OP里不少，比如巴基乌索普这种，就连罗杰的海贼王头衔都是世界政府 宣 传 口 帮他加上去的
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53235#       发表于 2020-8-6 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341995&amp;ptid=98922" target="_blank">svmkty 发表于 2020-8-6 22:25</a>
+
+大概是想塑造个实际和人们口头传说有所差别的人物，这种角色OP里不少，比如巴基乌索普这种，就连罗杰的海 ...</blockquote>
+然而这话凯多又说了“见识一下世界第一的战力”，我能说什么呢？尾田你开心就好。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53236#       发表于 2020-8-7 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48340439&amp;ptid=98922" target="_blank">武男 发表于 2020-8-6 20:11</a>
+
+前面有老哥说过“凯多是网红型四皇，找一堆托跟着去海军总部门口晃一圈打打杂兵低级军官，等大将来 ...</blockquote>
+
+
+还可以在海军门口闹完就装装样子自首啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 53237#       发表于 2020-8-7 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341028&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 21:03</a>
+
+可笑的不是这个，而是凯多刚登场的时候尾田各种神吹吊胃口，结果告诉你学个一招半式就能让它流血，简直是 ...</blockquote>
+
+
+德雷斯罗萨那会居鲁士也没能拿明哥怎么样，这和之国御田一帮小弟就能伤到凯多够离谱的
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 53238#       发表于 2020-8-7 01:52
+
+
+
+
+凯多还没退场呢，这边都要搞车轮战帮五皇赢了怎么还在轮凯多
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 53239#       发表于 2020-8-7 01:54
+
+
+
+
+光看情报有人又开始高潮了
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53240#       发表于 2020-8-7 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341584&amp;ptid=98922" target="_blank">svmkty 发表于 2020-8-6 21:53</a>
+
+凯多的"最强"是漫画里人们口口相传的流言传说，和白胡子鹰眼这种直接明确挂出来的最强还是有区别的，如果 ...</blockquote>
+你们没必要死扣这个，四皇本身是同级的，顶多是打下去耗到最后看谁赢就是了。
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 53241#       发表于 2020-8-7 10:10
+
+
+
+
+这话莫名其妙的明明是9侠突然全员都会流樱了，流樱能破防凯多是之前就铺垫好的。感觉尾田是从贴吧找的灵感，人在极端愤怒的情况下.jpg
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53242#       发表于 2020-8-7 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341734&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 22:05</a>
+
+累不累啊？我前面就说了，它要没那么强就别吊人胃口最后又拉胯，凯多现在这样子就和死神里某人那把刀一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">好了好了，其实凯多这些都不算啥，真正搞得还算前面跟御田打那里，百般武艺，此为绑架。虽然映照了前面的剧情，但是基本上已经坐实了他的定位了。这次的问题是既然凯多都升级升了20年，结果还被锦卫门，小菊这种穿越的给破防。我现在要求给顶上战争的老白翻案。
+
+现在我觉得很可能凯多是恢复力逆天，被打过的伤都好了，所以才这么吹的。总而言之就是个人的战斗方式不同吧。凯多真那么强，当初顶上战争的时候还会被红发给顶回去，真那么强会跟大妈五五开，其实也就是回到原来的定位上而已。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53243#       发表于 2020-8-7 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48343686&amp;ptid=98922" target="_blank">evangelina 发表于 2020-8-7 00:54</a>
+
+还可以在海军门口闹完就装装样子自首啊</blockquote>
+卡二那个不也算虚假营销吗，无败之人，先是拿发狂的大妈没办法，后面成了五皇的垫脚石。检验成色的一个标准就是去找四皇团或者海军本部对线，看看能不能超过洛克斯，金狮子和白胡子的战绩再来吹牛。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 53244#       发表于 2020-8-7 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48341734&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-8-6 22:05</a>
+
+累不累啊？我前面就说了，它要没那么强就别吊人胃口最后又拉胯，凯多现在这样子就和死神里某人那把刀一样 ...</blockquote>
+死神里战斗就是能力情报战，虚假宣传很正常的，蓝染也编过自己斩魄刀的能力。市丸银从形象到台词到攻击方式无一不是蛇的隐喻，隐藏能力为蛇的毒也很理所应当。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53245#       发表于 2020-8-7 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48280738&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-8-1 10:12</a>
+
+九侠肯定会霸气，但是普通霸气没有用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">被小菊一刀捅穿手了，凯多这个，现在看很可能是他的恢复力强，恢复完以后就说自己没事就完了。
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 53246#       发表于 2020-8-7 11:51
+
+
+
+
+现在看起来小菊的战斗力似乎是九侠最强的？能刺穿凯多的手，前面打堪十郎也是无伤
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53247#       发表于 2020-8-7 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48347003&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-8-7 11:51</a>
+
+现在看起来小菊的战斗力似乎是九侠最强的？能刺穿凯多的手，前面打堪十郎也是无伤 ...</blockquote>
+连雷藏都破防了啊233，凯多现在也就是海贼里的海木桩吧，这属性不是很像吗，不到一定的攻击水平不破防，超再生，然后被剑客打到差点血条见底。
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 53248#       发表于 2020-8-7 12:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">利器的破防能力还是比五皇的拳头强
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53249#       发表于 2020-8-7 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48345833&amp;ptid=98922" target="_blank">qzfjnv 发表于 2020-8-7 10:10</a>
+
+这话莫名其妙的明明是9侠突然全员都会流樱了，流樱能破防凯多是之前就铺垫好的。感觉尾田是从贴吧找的灵感 ...</blockquote>
+哪里需要贴吧找，龙珠就有了
+
+
+想起某武侠游戏，别的武侠里mp叫内力，他叫杀气，联想现在的情况还挺带感的
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53250#       发表于 2020-8-7 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48347003&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-8-7 11:51</a>
+
+现在看起来小菊的战斗力似乎是九侠最强的？能刺穿凯多的手，前面打堪十郎也是无伤 ...</blockquote>
+可能攻击力是最强的，综合不见得（比如阿修罗肯定比小菊抗揍）
+
+
+战斗力的话得看阿猫阿狗变身
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 53251#       发表于 2020-8-7 14:02
+
+
+
+
+不是，新的一期出了吗。凯多能硬接五皇一套无伤，然后起身一棍秒杀五皇，实力还是有的吧，我更倾向于只是人形态防御力一般，再加上本身九侠就是接近皇副或者七武海的实力，一下人多打了个措手不及的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 53252#       发表于 2020-8-7 14:15
+
+
+
+
+等一个老猫老狗变身，不知道能变成啥样
+
+
+
+
+
+                        
