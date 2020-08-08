@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-08 20:07** 
+> ## **本文件最后更新于2020-08-08 22:06** 
 
 
 
@@ -11788,4 +11788,624 @@ nmd 原来是国人
 
 
 
-                          
+
+
+-----
+
+####  cvql  
+##### 692#       发表于 2020-8-8 20:09
+
+
+
+
+新傻气op...惊了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 693#       发表于 2020-8-8 20:19
+
+
+
+
+果然播不了什么游戏啊
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 694#       发表于 2020-8-8 20:20
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-8 20:23 编辑 
+
+呃
+0点51大全
+4点放mc视频，本人睡觉
+9点半抓娃娃
+11点mc凸待
+12点mc末影龙RTA
+啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这节目单您认真的吗
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 695#       发表于 2020-8-8 20:20
+
+
+
+
+播游戏。。。这一夸体力。。。还要和这么多车轮战
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 696#         楼主| 发表于 2020-8-8 20:24
+
+
+
+ 本帖最后由 sky5 于 2020-8-8 20:32 编辑 
+
+这企划内容一言难尽，特别是最后这个7小时rta
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 697#       发表于 2020-8-8 20:28
+
+
+
+
+估计今年想24小时计划的时候，也想弄个类似底特律或超凡双生的游戏，大概八九个小时，然后被holo这rz白名单gank了，啥也玩不了，只能硬上mc
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 698#       发表于 2020-8-8 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么一排mc
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 699#       发表于 2020-8-8 20:30
+
+
+
+ 本帖最后由 面具13 于 2020-8-8 20:32 编辑 
+
+好气啊，我自己开老滚玩去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+？？？通宵起床健身环，妹啊，你对自己太狠了吧
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 700#       发表于 2020-8-8 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">通完宵健身环这个企划运营没制止么
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 701#       发表于 2020-8-8 20:34
+
+
+
+
+健身环也就是伸个懒腰提提肛，能有啥
+倒是娃娃机工商放在早上10点半，老板要扣钱的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 702#       发表于 2020-8-8 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">看到MC末影龙然后睡觉晚上起来看闭幕式
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 703#       发表于 2020-8-8 20:36
+
+
+
+
+追不了，告辞，看个闭幕式完事
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 704#       发表于 2020-8-8 20:37
+
+
+
+
+也差不多吧，就是把去年主要的底特律换成了mc，至少今年有联动了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 705#       发表于 2020-8-8 20:38
+
+
+
+
+还不如底特律呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 706#       发表于 2020-8-8 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">私心还是希望播个啥大作
+不过播大作我也可能会昏迷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 707#       发表于 2020-8-8 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">什么叫还不如底特律，说的好像底特律差在哪一样，要不holo弄个美末2版权大家爽一下
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 708#       发表于 2020-8-8 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个2周年卖的是什么？没听懂。
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 709#         楼主| 发表于 2020-8-8 20:41
+
+
+
+
+亚克力钥匙扣吧
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 710#       发表于 2020-8-8 20:41
+
+
+
+
+长一点流程的时间不好把握，提前打完了或者到了预定的时间打不完都会很尴尬，要是提前过一遍流程又没有初见的气氛，去年底特律没记错也是打乱了预定的时间表的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 711#       发表于 2020-8-8 20:42
+
+
+
+
+节目单索然无味，睡了睡了。
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 712#       发表于 2020-8-8 20:43
+
+
+
+
+说起来我还担心她在24小时内塞个死亡搁浅（这是我印象中holo最近的大作），那个可真一点看不下去·····
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 713#       发表于 2020-8-8 20:43
+
+
+
+
+别啊，先看了气人飞行棋再睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">给夸宝留点人气
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 714#       发表于 2020-8-8 20:45
+
+
+
+
+幸好没有我最讨厌的动森，那个可真是深入骨髓的无聊
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 715#       发表于 2020-8-8 20:46
+
+
+
+
+这节目单。。。51看完就眠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 716#       发表于 2020-8-8 20:47
+
+
+
+
+是时候跟夸宝一起，挑战24小时砍口磊e6-7通关了。
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 717#       发表于 2020-8-8 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能再来一次吹风机
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 718#       发表于 2020-8-8 20:49
+
+
+
+
+杀人24小时开始了，扛不住，等会来看闭幕式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 719#         楼主| 发表于 2020-8-8 20:49
+
+
+
+
+这节目单，非常的偶像，非常的大家庭，完全没有看的欲望，可能是我纯度不够吧
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 720#       发表于 2020-8-8 21:00
+
+
+
+
+我有预感，会表演传统艺能
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 721#       发表于 2020-8-8 21:02
+
+
+
+
+我猜她通宵到天亮以后，下午只睡了2个小时，并且那工作还没做完。
+对于体力心里没底，只能靠mc撑着多划划水。自己也知道这节目单底气不足，开场紧张到说话吃螺丝。
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 722#       发表于 2020-8-8 21:02
+
+
+
+
+游戏以后还是会播的，如果木口把名单整好的话<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 723#       发表于 2020-8-8 21:05
+
+
+
+
+名单倒是其次，24小时说白了就是多播一些，还能补充一点频道，不如担心这次播完又要恢复到不稳定直播，近乎消失到live
+
+现在能让她浪的时间也就8月初了
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 724#       发表于 2020-8-8 21:07
+
+
+
+
+估计今天白天也没怎么休息。
+
+顺便熬夜后锻炼是真的不行。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 725#       发表于 2020-8-8 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这MC末影龙，看她自己玩一次，跟傻紫玩一次，现在还玩，要看吐了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通宵后的健身环，牛逼
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 726#       发表于 2020-8-8 21:20
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-8 21:30 编辑 
+
+试图确定对百鬼的前辈立场，结果成功冷场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+鸭鸭，你背叛了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都怪鸭鸭，场面已经往不可预测的乳夸方向控制不住了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 727#       发表于 2020-8-8 21:45
+
+
+
+
+草，船长看过夸宝练舞现场吗
+跟舞蹈老师无法顺利沟通的湊阿夸
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 728#       发表于 2020-8-8 21:49
+
+
+
+ 本帖最后由 面具13 于 2020-8-8 21:51 编辑 
+
+船长不但看了还上去揉了。果然是穿衣服（宝可梦t）的事情嘛。同社都没看过说这个的直播或者最近的杂志采访
+
+
+
+
+
+                         
