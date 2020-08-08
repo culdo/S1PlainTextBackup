@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-30 00:03** 
+> ## **本文件最后更新于2020-08-08 20:03** 
 
 
 
@@ -281,7 +281,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 70)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 84)
 
 下载附件
 
@@ -524,16 +524,7 @@ xzp钉子户表示新机满意的话就换<img src="https://static.saraba1st.com
 ####  翠乙鼠  
 ##### 29#       发表于 2020-2-23 22:17
 
-
-
-
-索尼啥时候能出个Xperia1外形，16：9的机器，何必在21：9上一条路走到黑
-
-—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -664,17 +655,7 @@ Xperia 1 II和Xperia 10 II
 ####  翠乙鼠  
 ##### 36#       发表于 2020-2-23 23:11
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503308&amp;ptid=1915171" target="_blank">leystage 发表于 2020-2-23 22:54</a>
-因为21:9真的实用，在聊天和浏览网页和很多办公软件时都代表先进生产力… ...</blockquote>
-Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，上下点头替代了手指滑动的操作，没有感到丝毫的生产力……
-
-—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -683,16 +664,7 @@ Xperia10plus我实际用下来就是一页内容眼睛往上看又往下看，�
 ####  翠乙鼠  
 ##### 37#       发表于 2020-2-23 23:14
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46503292&amp;ptid=1915171" target="_blank">5teven7in 发表于 2020-2-23 22:53</a></blockquote>
-665就是红米note8那个665，屏幕还是oled不是LCD，不买了不买了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2214,16 +2186,7 @@ https://m.douyu.com/452628
 ####  翠乙鼠  
 ##### 120#       发表于 2020-2-24 15:58
 
-
-
-
-xperia10 II发布会就提了一点点，L4直接是后妈养的提都不提
-
-—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5312,7 +5275,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_LiZ2i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_An4nL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7262,34 +7225,7 @@ http://weibo.com/1748136 ...</blockquote>
 ####  翠乙鼠  
 ##### 381#       发表于 2020-2-26 19:33
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46524865&amp;ptid=1915171" target="_blank">lolozp 发表于 2020-2-25 20:51</a>
-
-现在基本是18比9了吧，16比9看上去很肥的。。额头和下巴现在那么短
-
-
-—— 来自 Sony J9110, Andro ...</blockquote>
-
-<img src="https://img.saraba1st.com/forum/202002/26/193202v9kdqi9xbdym8cj3.jpg" referrerpolicy="no-referrer">
-
-
-<strong>tix133.jpg</strong> (7.68 KB, 下载次数: 0)
-
-下载附件
-
-2020-2-26 19:32 上传
-
-
-
-
-
-
-尝试做了下16：9，确实<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8814,7 +8750,15 @@ xzp的时候都有过和国产手游的合作，然并卵，雷声大，雨点�
 ####  ziyo  
 ##### 458#       发表于 2020-4-3 13:03
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">祖宗用上安卓10了
+
+—— 来自 Sony Xperia Z1, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
 
 
 
@@ -8844,7 +8788,19 @@ z3和xzp呢
 ####  ziyo  
 ##### 460#       发表于 2020-4-3 15:35
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46966216&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-4-3 13:24</a>
+
+z3和xzp呢
+
+
+— from HUAWEI HDL-W09, Android 8.0.0 of S1 Next Goose v2.1.0-play</blockquote>
+没找到
+
+
+
+
 
 
 
@@ -9974,7 +9930,16 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 ####  ziyo  
 ##### 518#       发表于 2020-5-22 02:27
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+[https://www.bilibili.com/video/B ... 533596b7857493863.6](https://www.bilibili.com/video/BV1UE411E7vH?spm_id_from=888.12024.b_4d3533596b7857493863.6)
+
+
+当年你大法
+
+
+
+
 
 
 
@@ -9999,16 +9964,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 ####  不可不信邪  
 ##### 520#       发表于 2020-5-24 20:32
 
-
-
-[https://space.bilibili.com/26739235](https://space.bilibili.com/26739235)
-
-
-这个up搬了一堆开箱视频
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10090,16 +10046,7 @@ X5表示手上两副tws（漫步者tws5和初代降噪豆）都没问题，不�
 ####  不可不信邪  
 ##### 525#       发表于 2020-5-25 12:40
 
-
-
-
-嘛，索尼这次的软件表现是，那个photo pro还没做好
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11462,16 +11409,7 @@ Xperia 1。。。 估计降到4000也快了
 ####  不可不信邪  
 ##### 592#       发表于 2020-6-3 20:27
 
-
-
-
-美帝预购送个大耳，可以的
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12089,16 +12027,7 @@ Xperia 1。。。 估计降到4000也快了
 ####  不可不信邪  
 ##### 622#       发表于 2020-6-7 17:10
 
-
-
-
-看了最新测评样张，感觉这次动态拍照真心无敌
-
-[https://www.youtube.com/watch?v=AmdWsBJLSe0](https://www.youtube.com/watch?v=AmdWsBJLSe0)
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13291,16 +13220,7 @@ Xperia 10 II  就是个中端机啊
 ####  不可不信邪  
 ##### 680#       发表于 2020-6-19 13:07
 
-
-
-
-想了下当年zu港水买回来才3100不到
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14756,14 +14676,7 @@ xperia 1就支持了啊
 ####  不可不信邪  
 ##### 754#       发表于 2020-6-23 16:04
 
-
-
-
-看了几个样片，感觉是有改进，但实际细节涂抹还是要比iphone11多些
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -15467,19 +15380,7 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 ####  不可不信邪  
 ##### 787#       发表于 2020-6-24 09:19
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47928889&amp;ptid=1915171" target="_blank">plumlis 发表于 2020-6-24 08:38</a>
-我就想知道那个“伪90hz”到底有用没有，看老外评测说是基本没用。
-
-— from Google Pixel 3 XL, Android 1 ...</blockquote>
-应该是没啥用，看测评对比感觉就是某些情况下针对缓冲区里要渲染的下一/几帧和当前帧做比较，调整下帧间时间，类似线性动画非线性动画，但人眼收到的还是60帧(而不是索尼电视里头的插帧)，自然比不过真90
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16692,18 +16593,7 @@ https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
 ####  不可不信邪  
 ##### 841#       发表于 2020-6-26 16:42
 
-
-
-
-https://b23.tv/BV1c54y1z7N8
-
-这代夜拍还是差点意思，我等等双11好了
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -18463,19 +18353,7 @@ photo pro的auto模式<img src="https://static.saraba1st.com/image/smiley/face20
 ####  不可不信邪  
 ##### 923#       发表于 2020-7-2 18:52
 
-
-
- 本帖最后由 不可不信邪 于 2020-7-2 19:35 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039370&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-2 18:33</a>
-https://m.weibo.cn/status/4522088067506399
-photo pro的auto模式</blockquote>
-看到了
-
-—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19232,4 +19110,575 @@ xz1换成x10m2几天感觉还行，弱鸡CPU+更大的电池+装的app不多，�
 
 
 
-                 
+
+
+-----
+
+####  eureka9  
+##### 962#       发表于 2020-7-31 06:53
+
+
+
+
+终于到手了，关于视频和音频设置现在有什么比较好的推荐设置吗，比如dolby atmos啥的有没有用，creator mode之类的
+
+— from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  初蘅  
+##### 963#       发表于 2020-7-31 12:47
+
+
+
+
+人在美帝，观望了很久还是买了，预订送WF1000XM3，豆子分开发货倒是收到了，手机说好的7.24发售反而迟迟不发货，今天收到通知还得再等一个月<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eureka9  
+##### 964#       发表于 2020-7-31 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48270969&amp;ptid=1915171" target="_blank">初蘅 发表于 2020-7-30 23:47</a>
+人在美帝，观望了很久还是买了，预订送WF1000XM3，豆子分开发货倒是收到了，手机说好的7.24发售反而迟迟不 ...</blockquote>
+你是哪家买的？我b&amp;h跟你正好相反，手机到了，豆子还没发货。。
+
+— from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  初蘅  
+##### 965#       发表于 2020-7-31 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48271121&amp;ptid=1915171" target="_blank">eureka9 发表于 2020-7-31 13:01</a>
+
+你是哪家买的？我b&amp;h跟你正好相反，手机到了，豆子还没发货。。
+
+
+— from Sony XQ-AT51, Android 10 of S ...</blockquote>
+亚麻
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 966#       发表于 2020-7-31 13:13
+
+
+
+<blockquote>eureka9 发表于 2020-7-31 06:53
+终于到手了，关于视频和音频设置现在有什么比较好的推荐设置吗，比如dolby atmos啥的有没有用，creator mod ...</blockquote>
+dolby atmos 主要是增加环绕声效果，开不开看你个人偏好。
+
+creator mode 自动就行了，不见得说更讨喜，但在使用网飞等支持的应用时它能以接近导演意图的效果显示----主要还是个仪式感
+
+
+
+
+
+
+
+-----
+
+####  eureka9  
+##### 967#       发表于 2020-7-31 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48271237&amp;ptid=1915171" target="_blank">leystage 发表于 2020-7-31 00:13</a>
+dolby atmos 主要是增加环绕声效果，开不开看你个人偏好。
+
+creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
+了解了，谢谢茄子
+
+— from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 968#       发表于 2020-8-1 02:12
+
+
+
+
+偶订的那家店说又延到下周发货，每周都说下周发货。
+
+
+
+
+
+
+
+-----
+
+####  fishmanzero  
+##### 969#       发表于 2020-8-1 05:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48279406&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-8-1 02:12</a>
+偶订的那家店说又延到下周发货，每周都说下周发货。</blockquote>
+大陆深圳传闻说延期到10月，真这样不如跳过这一代2算了吧…
+以大法的尿性难道还能不按原价卖？有点自取其辱…
+
+—— 来自 Sony E6653, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 970#       发表于 2020-8-2 19:18
+
+
+
+
+说起来xperia transfer也不能用了现在用啥换机？
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 971#       发表于 2020-8-2 20:17
+
+
+
+<blockquote>引用第968楼fishmanzero于2020-08-01 05:14发表的  :
+
+引用:oskneo 发表于 2020-8-1 02:12偶订的那家店说又延到下周发货，每周都说下周发......</blockquote>
+说是和5Ⅱ一起发布了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个月发新耳机4代
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 972#       发表于 2020-8-3 01:11
+
+
+
+
+所以8月6号的发布是WH1000XM4？
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  李小淘  
+##### 973#       发表于 2020-8-3 10:10
+
+
+
+
+不好说，不好说，<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 974#       发表于 2020-8-3 10:39
+
+
+
+<blockquote>Cray 发表于 2020-8-2 20:17
+说是和5Ⅱ一起发布了 
+
+
+这个月发新耳机4代</blockquote>
+感觉索尼中国的市场部越来越迷了… 不过那个金闪闪的 8/6 一看就不像 Xperia 嘛
+
+
+话说官网上最新的产品新闻标题甚至写着 BRAVIATM ，我寻思日本那边即使偷懒没有用专门的 TM 字符时也会记得打个括号，这是从基层员工到现场管理人员都不行的意思么
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 975#       发表于 2020-8-3 11:44
+
+
+
+
+系统更新支持了 Raw，Raw 模式下 自动 HDR 和 连拍不可用，单张照片大约 24M。切换的逻辑比较麻烦，要先手动关掉 HDR 才能选择，在想要打开连拍时也要先改设置
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 976#       发表于 2020-8-4 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48300199&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-8-3 01:11</a>
+
+所以8月6号的发布是WH1000XM4？
+
+
+----发送自 Sony F8332,Android 8.0.0</blockquote>
+是的
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 977#       发表于 2020-8-4 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48296930&amp;ptid=1915171" target="_blank">Cray 发表于 2020-8-2 20:17</a>
+
+说是和5Ⅱ一起发布了 
+
+
+这个月发新耳机4代</blockquote>
+存在5 2吗？感觉现在的消息来看是没有的样子啊
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 978#       发表于 2020-8-4 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48312490&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-8-4 10:45</a>
+存在5 2吗？感觉现在的消息来看是没有的样子啊</blockquote>
+存在吧……还是有暗示下半年还有旗舰芯片新机的，十有八九有X5M2啊，就是规格一直都没报料……
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 979#       发表于 2020-8-4 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48296174&amp;ptid=1915171" target="_blank">bxcds 发表于 2020-8-2 19:18</a>
+说起来xperia transfer也不能用了现在用啥换机？
+
+—— 来自 Sony G8142, Android 9上的 S1Next-鹅版 v2.0. ...</blockquote>
+一个冷知识：X1M2可以用xperia transfer，但是X1/5不可以，真有你的啊，日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  封印之矢  
+##### 980#       发表于 2020-8-4 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48313740&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-8-4 12:37</a>
+
+一个冷知识：X1M2可以用xperia transfer，但是X1/5不可以，真有你的啊，日本人
+
+
+—— 来自 Sony J ...</blockquote>
+出新的暂时也买不起，想着先买个X5算了。
+
+
+
+
+
+
+
+-----
+
+####  lolozp  
+##### 981#       发表于 2020-8-6 12:08
+
+
+
+ 本帖最后由 lolozp 于 2020-8-6 12:09 编辑 
+
+国行xperia 1，用了大半年了，最近有2个问题
+
+
+1、卡2的电信卡经常无服务（信号小字显示只能拨打紧急电话），必须切换飞行模式回来才可以，一天经历过7~8次，最近越来越频繁
+
+
+2、指纹用2天就完全失效，必须重启机器才行（识别率还行）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百度了一片，没发现几个相关的帖子。。来这个贴求助一下吧
+
+
+
+
+
+
+
+-----
+
+####  eureka9  
+##### 982#       发表于 2020-8-6 12:41
+
+
+
+
+我是x1m2，指纹也很搞笑，只录入了右手拇指，结果经常左手食指就解锁了，各种其他手指解锁，我不禁怀疑这指纹识别不会是假的吧
+
+— from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 983#       发表于 2020-8-6 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48334998&amp;ptid=1915171" target="_blank">eureka9 发表于 2020-8-6 12:41</a>
+我是x1m2，指纹也很搞笑，只录入了右手拇指，结果经常左手食指就解锁了，各种其他手指解锁，我不禁怀疑这指 ...</blockquote>
+AT51和AT52有差别么
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 984#       发表于 2020-8-7 01:02
+
+
+
+
+果然今晚的发布也不是………
+继续等9月吧
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  鹰富士茄子  
+##### 985#       发表于 2020-8-7 05:34
+
+
+
+
+别家都换代了，索尼竟然还没有国行版。
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 986#       发表于 2020-8-7 15:20
+
+
+
+
+国行据说12G内存？？？
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 987#       发表于 2020-8-8 10:41
+
+
+
+
+ZACKBUKS  8月7日 16:32 来自 微博 weibo.com 
+
+如果，我是说如果。 
+
+国行 Xperia 1 II 改了硬件配置，包括且不限于内存以及射频部分，那么非国行机器不仅不能通过刷系统的方式得到中国 5G 网络的支持，非国行的价格也会雪崩，相应地中国香港市场的销售表现很可能会进一步低迷。  你们（包括我本人）尝鲜买国际版可以，但也要做好跌价的心理准备。
+
+
+水货能打骨折吗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> ​​​​
+
+
+
+
+
+
+
+-----
+
+####  defer  
+##### 988#       发表于 2020-8-8 10:47
+
+
+
+
+太好了，单卡Google用户等一个港版值崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 989#       发表于 2020-8-8 14:48
+
+
+
+
+挺好的，崩吧，这样换机成本可以进一步降低……谷歌高度依赖，虽然国行有框架但还是习惯用港ROM了
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  mhss  
+##### 990#       发表于 2020-8-8 18:36
+
+
+
+
+港版值崩不是更好（本来就算跳水小王子了），看是对高性能新手机降价需求大，还是对所谓的5G需求大咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deenyao  
+##### 991#       发表于 2020-8-8 19:29
+
+
+
+
+我愿意放弃5G换个...半价交朋友?
+
+
+
+
+
+                

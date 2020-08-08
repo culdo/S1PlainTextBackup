@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-07 00:13** 
+> ## **本文件最后更新于2020-08-08 20:07** 
 
 
 
@@ -11343,4 +11343,449 @@ jump king欠下的sc名单怕不是又懒得念了。今天的份倒是会念内
 
 
 
-                           
+
+
+-----
+
+####  新磕娘  
+##### 668#       发表于 2020-8-7 02:00
+
+
+
+
+那个冲塔的，50w点击了...
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 669#       发表于 2020-8-7 02:26
+
+
+
+
+鬼佬的第一次冲塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 670#       发表于 2020-8-7 08:45
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-8 10:21 编辑 
+
+nmd 原来是国人
+
+神特么超清重置，还把链接放上去了
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 671#       发表于 2020-8-7 09:04
+
+
+
+ 本帖最后由 deadinside666 于 2020-8-7 09:05 编辑 
+
+这标题……
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 672#       发表于 2020-8-7 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">原来是个国人上转的？ 还是说伪装成国人
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 673#       发表于 2020-8-7 11:26
+
+
+
+
+这种八成是国人吧，都过了多久的视频了
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 674#       发表于 2020-8-7 11:37
+
+
+
+
+阿B的牛肉盖饭怎么还有升码率超采样的高清版啊草
+
+不过按照樱花妹一贯的不安感，阿夸是不是也受到了急剧上升的播放量影响呢？
+
+（隔壁粽子都开始开关私号锁和ins来抽选ban舔狗了）
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 675#       发表于 2020-8-7 14:48
+
+
+
+<img src="http://tvax1.sinaimg.cn/large/622734bdly1ghi8suiy0uj22v43m8x6p.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax4.sinaimg.cn/large/622734bdly1ghi8su1abpj22v43m8e82.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax2.sinaimg.cn/large/622734bdly1ghi8stkjo8j22v43m8b2a.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax3.sinaimg.cn/large/622734bdly1ghi8st3xhyj22v43m8b2a.jpg" referrerpolicy="no-referrer">
+
+
+简历里“vtuber生涯的转折点——休止配信”，俺不记得是指哪个了😋
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 676#       发表于 2020-8-7 14:51
+
+
+
+
+目标是艺人的话，夸宝应该把目标放在M1或者キングオブコント啊，快找紫宝漫才出道吧
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 677#       发表于 2020-8-7 18:16
+
+
+
+
+大乱斗新单位6秒一个夸
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 678#       发表于 2020-8-7 19:41
+
+
+
+
+老冷场了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 679#       发表于 2020-8-8 12:52
+
+
+
+<blockquote>友人A(えーちゃん)@ホロライブ裏方/22時
+
+@achan_UGA
+
+今日は22時から、夜にちょっと、かなり？長めに配信する予定のあの子企画のコラボに司会として出演します！
+
+詳細はその方の配信内で発表される予定です、よろしくお願いします
+
+
+21時湊あくあ(24時間)
+
+22時大きめコラボ(出演します！詳細は夜発表)</blockquote>
+晚上8点开幕式说下节目单，9点A酱做司会的大型联动。哦哦哦，A酱<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">原谅你了
+
+
+
+-
+[【神楽めあ】embrace【翻唱】](https://www.bilibili.com/video/BV1LZ4y1K7ZX) <blockquote>「どんどんお互い忙しくなって時間が作れないことも増えてきたけどこうしてまたお祝いできてよかった！」
+
+「もっともっと楽しいコトやろうね！」
+
+-By 神楽めあ
+
+
+「虽然互相越来越忙没时间的情况越来越多了但是还能像这样为对方庆祝真的太好了！」
+
+「要一起做更多更多开心的事情哦！」
+
+-By 神乐Mea</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 680#       发表于 2020-8-8 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">不知道我能挺多久，上次就没追完昏过去了
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 681#       发表于 2020-8-8 15:25
+
+
+
+
+ああ，緊張した
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 682#       发表于 2020-8-8 17:12
+
+
+
+
+这封面。。。嗯这女人太花心
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 683#       发表于 2020-8-8 17:13
+
+
+
+
+这么多人的联动么<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 684#       发表于 2020-8-8 17:24
+
+
+
+
+同期愛決定戦？这不是2期生铁垫底吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+ <blockquote>宝鐘マリン海盗旗＠ホロライブ3期生
+
+@houshoumarine
+
+どわーーめっちゃ怖い夢みて爆睡してたらもうこんな時間！！！
+
+今日は22時と25時にあくあチャンネルへ出航します！
+
+
+寝起きで頭が止まってるので19時にメン限で雑談します睡脸</blockquote>
+还有24点是又一班联动啊，船长出席预定了。
+
+妹啊，咱几点开打游戏
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 685#         楼主| 发表于 2020-8-8 17:54
+
+
+
+
+开场就是大家庭，后面还有联动，感觉没时间播游戏了
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 686#       发表于 2020-8-8 17:55
+
+
+
+
+不是有和船长联动大乱斗的卫星吗？奶一个大乱斗联动
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 687#         楼主| 发表于 2020-8-8 17:56
+
+
+
+
+12点那个联动不止船长一个人，小天使也要来
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 688#       发表于 2020-8-8 18:00
+
+
+
+
+三个人？那就是Apex
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 689#       发表于 2020-8-8 18:15
+
+
+
+
+就不能是膨胀了一挑二吗
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 690#       发表于 2020-8-8 18:32
+
+
+
+
+还好不比块，不然又是。。。
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 691#       发表于 2020-8-8 19:48
+
+
+
+
+白天睡了个饱，准备看直播了
+
+
+
+
+
+                          
