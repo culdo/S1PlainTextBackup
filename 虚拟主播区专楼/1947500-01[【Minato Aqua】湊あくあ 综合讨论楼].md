@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-09 04:05** 
+> ## **本文件最后更新于2020-08-09 18:05** 
 
 
 
@@ -12788,4 +12788,605 @@ nmd 原来是国人
 
 
 
-                        
+
+
+-----
+
+####  离魂仙  
+##### 752#       发表于 2020-8-9 04:39
+
+
+
+<img src="https://p.sda1.dev/0/5280e4b14fdd6ff802853b283a7f879a/IMG_AE32DDED9340F2C748B82C66782460A5.png" referrerpolicy="no-referrer">
+
+这掉毛地狱
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 753#       发表于 2020-8-9 04:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">撑不住了，眠了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 754#       发表于 2020-8-9 04:52
+
+
+
+
+以后多撸撸猫，7点见，睡了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 755#       发表于 2020-8-9 07:38
+
+
+
+
+好的新活。。。果然鸽了健身环，你要知耻啊
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  gikaqi  
+##### 756#       发表于 2020-8-9 08:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老背锅侠了。我记得当时5ch拿着“迟到”带了不少节奏。原来是因为运营sb没做好工作
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 757#       发表于 2020-8-9 08:55
+
+
+
+
+BGM太违和了。。。没有夸味
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 758#       发表于 2020-8-9 09:13
+
+
+
+
+吹风机ASMR，夸宝的财富密码<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">一看都是绿条JP¥500
+
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 759#       发表于 2020-8-9 09:18
+
+
+
+
+阿夸感觉挺懵逼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 760#         楼主| 发表于 2020-8-9 09:39
+
+
+
+
+有和夹娃娃机公司的联动，可能有周边也说不定
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 761#       发表于 2020-8-9 09:43
+
+
+
+
+据说娃娃机是有盐水的工商联动
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 762#       发表于 2020-8-9 09:43
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 763#       发表于 2020-8-9 09:50
+
+
+
+
+铺三层吃口肉，老板今天就把广告费截了
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 764#       发表于 2020-8-9 09:54
+
+
+
+
+太惨了 没眼看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到手的工商飞了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 765#       发表于 2020-8-9 09:55
+
+
+
+
+店员桑你的👍确定没指反吗👎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 766#       发表于 2020-8-9 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有被笑到
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 767#       发表于 2020-8-9 10:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 768#       发表于 2020-8-9 10:44
+
+
+
+
+臭洋葱这一嗓子差点没把我吓死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 769#       发表于 2020-8-9 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  styc  
+##### 770#       发表于 2020-8-9 10:49
+
+
+
+
+感谢夸哥，戒赌了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 771#       发表于 2020-8-9 10:49
+
+
+
+
+店员桑：大妹子，这东西送你，下次别来了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 772#       发表于 2020-8-9 11:39
+
+
+
+
+这三个家伙写的什么怪剧本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这尬味儿也确实就这仨了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 773#       发表于 2020-8-9 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明成功了，但是看起来不是很开心啊
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 774#       发表于 2020-8-9 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陷阱居然用上了。
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 775#       发表于 2020-8-9 12:06
+
+
+
+
+贴贴捏
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 776#       发表于 2020-8-9 12:13
+
+
+
+
+刚醒，怎么这个声音？有点哭腔？
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 777#       发表于 2020-8-9 12:39
+
+
+
+
+这种每天都在精神和肉体极限挣扎的日子还有11天啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 778#       发表于 2020-8-9 16:23
+
+
+
+
+比预计的快了好多，感觉快一点3个半小时就能干掉末影龙
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 779#       发表于 2020-8-9 16:48
+
+
+
+
+自爆攻击？这也太昭和了吧
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 780#       发表于 2020-8-9 16:49
+
+
+
+
+nb nb
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 781#       发表于 2020-8-9 16:49
+
+
+
+
+不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 782#       发表于 2020-8-9 16:50
+
+
+
+
+TNT真爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deadinside666  
+##### 783#       发表于 2020-8-9 16:50
+
+
+
+
+武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剩下了的时间要干嘛
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 784#       发表于 2020-8-9 16:53
+
+
+
+
+这自爆结束神了，节目效果爆炸
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 785#       发表于 2020-8-9 17:04
+
+
+
+
+被击飞看着龙爆炸还是挺有戏剧性的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 786#       发表于 2020-8-9 17:12
+
+
+
+
+本来想建议她玩玩老滚放松放松，无奈想看恐怖游戏的人太多了
+
+
+
+
+
+
+
+-----
+
+####  濡鸦之羽_  
+##### 787#       发表于 2020-8-9 17:15
+
+
+
+
+希望人没事<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 788#       发表于 2020-8-9 17:20
+
+
+
+
+影廊...最后这点时间能通了，也算挺完美的结局了（不过还是刚刚tnt炸末影龙做最后结局就完美了，可惜过太快了
+
+
+
+
+
+                       
