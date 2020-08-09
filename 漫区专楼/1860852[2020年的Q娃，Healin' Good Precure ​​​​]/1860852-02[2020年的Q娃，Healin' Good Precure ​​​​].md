@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-30 20:00** 
+> ## **本文件最后更新于2020-08-09 10:00** 
 
 
 
@@ -78,17 +78,7 @@
 ####  lyflyflxf  
 ##### 1505#       发表于 2020-3-9 21:14
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46663450&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-3-9 00:14</a>
-
-今天是不是粉主的生日</blockquote>
-是
-<img src="https://p.sda1.dev/0/61e4617b2fa599c404b37ee7ebac2e8f/2020-03-09_21-08-20.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -1471,14 +1461,7 @@
 ####  lyflyflxf  
 ##### 1580#       发表于 2020-3-16 21:08
 
-
-
-
-去年的女人的演唱会资源出来了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2127,13 +2110,7 @@ q娃大发神威打爆了新冠病毒拯救了全日本 可喜可贺 可喜可�
 ####  lyflyflxf  
 ##### 1617#       发表于 2020-3-20 21:22
 
-
-
-<img src="https://p.sda1.dev/0/95fc06ae3dd2465bcd3e5b6fe090c5f2/2020-03-20_21-22-15.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2494,14 +2471,7 @@ q娃大发神威打爆了新冠病毒拯救了全日本 可喜可贺 可喜可�
 ####  lyflyflxf  
 ##### 1633#       发表于 2020-3-22 19:30
 
-
-
-
-也别老想着吹了。这一集没有硬伤，没有OOC，却有适当的颜艺，个别让人DOKIDOKI的镜头，以及稳定的制作质量，看着让人心里暖暖的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3004,19 +2974,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 ####  lyflyflxf  
 ##### 1659#       发表于 2020-3-26 07:43
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837191&amp;ptid=1860852" target="_blank">小倉朝日 发表于 2020-3-22 21:13</a>
-
-病毒出现，搅黄了运动会，最后主角在空场内独自完成比赛
-
-
-这剧本怕是年内要再演一遍 ...</blockquote>
-看来不用了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3025,16 +2983,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 ####  lyflyflxf  
 ##### 1660#       发表于 2020-3-26 07:47
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46873889&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-25 23:19</a>
-
-但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月…… ...</blockquote>
-讲道理，你这不一定是诬告。但还是obey吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3119,18 +3068,7 @@ Q娃连连看终于要停服了？
 ####  lyflyflxf  
 ##### 1666#       发表于 2020-3-26 20:53
 
-
-
- 本帖最后由 lyflyflxf 于 2020-3-26 20:57 编辑 
-
-今年OP ED专辑有资源了
-
-今年的女人们真朴素
-<img src="https://p.sda1.dev/0/55c8495197b2ead93a923ddce79bd8bf/01.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3333,7 +3271,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_gLn77" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_u0DjD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -3410,15 +3348,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1679#       发表于 2020-3-29 09:26
 
-
-
-
-人设真是稳定啊
-<img src="https://p.sda1.dev/0/e067e49110142732f1d73beba9bfa354/9657fdc2.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3443,24 +3373,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1681#       发表于 2020-3-29 10:29
 
-
-
- 本帖最后由 lyflyflxf 于 2020-3-29 10:36 编辑 
-
-艺术照×3
-<img src="https://p.sda1.dev/0/fad2de74769e2a2f40d87244a850868c/未标题_全景图3.jpg" referrerpolicy="no-referrer">
-
-<img src="https://p.sda1.dev/0/f78b8c3feb66658a8de616a8be1dd389/未标题_全景图2.jpg" referrerpolicy="no-referrer">
-
-<img src="https://p.sda1.dev/0/a4e0039bea22caa2116fb695ba3344e4/未标题_全景图1.jpg" referrerpolicy="no-referrer">
-
-
-远景也还不错，怎么正片就那么狰狞<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/b8d802226c284b4ebb095af22b2b91cd/123.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3634,15 +3547,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1692#       发表于 2020-3-29 19:23
 
-
-
-
-日向真容易被攻略啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/b02d3df779084717285341e995877a9c/1.jpg" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/808a906a04774b78046dff8ae0d0aaa6/23.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -3702,16 +3607,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1696#       发表于 2020-3-29 19:53
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915504&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-29 19:22</a>
-
-今年Q娃的兔子，怀疑要是今后没有遇到爱情的话，老了就是个蓉嬷嬷……</blockquote>
-那么谁是小燕子呢？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4020,15 +3916,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1713#       发表于 2020-3-30 07:28
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919066&amp;ptid=1860852" target="_blank">哒哒哒ver1.01 发表于 2020-3-30 07:23</a>
-疫情改剧本的话就是反派不洗白全部死光光？</blockquote>
-这没问题啊，正统无印味
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4412,17 +4300,7 @@ MKTN…… ​​​​
 ####  lyflyflxf  
 ##### 1735#       发表于 2020-4-2 21:49
 
-
-
- 本帖最后由 lyflyflxf 于 2020-4-2 21:51 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919063&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-30 07:17</a>
-
-最大的不安要素还是因为疫情强行改剧本……</blockquote>
-我就怕东大妈不注意，被病毒爆破了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5077,17 +4955,7 @@ https://36kr.com/p/5308402
 ####  lyflyflxf  
 ##### 1769#       发表于 2020-4-5 19:27
 
-
-
-
-然而粉主终将成为团队核心，学会大局观。问题是转变和成长的过程怎么表现呢
-
-
-另外，现在基本是敌我是三对三，对方的第四人难道真要天降
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5098,7 +4966,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_QuwUQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_xR9Tu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -5160,13 +5028,7 @@ https://twitter.com/dededeteiu/status/1246652373646229504?s=20
 ####  lyflyflxf  
 ##### 1773#       发表于 2020-4-5 20:15
 
-
-
-<img src="https://p.sda1.dev/0/a559b8aa2e54eddd2317f76899065fe0/2020-04-05_20-15-27.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5769,16 +5631,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  lyflyflxf  
 ##### 1807#       发表于 2020-4-9 07:34
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020707&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-9 06:24</a>
-
-有没有可能改剧本，最后净化科罗娜酱</blockquote>
-后期提一句或暗示一下的难度应该不大
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -5881,16 +5734,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  lyflyflxf  
 ##### 1812#       发表于 2020-4-12 08:32
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052400&amp;ptid=1860852" target="_blank">風駿 发表于 2020-4-12 08:23</a>
-
-这个三人合体技模式照搬抱Q三人合体技，但演出水平也比不上啊</blockquote>
-今年的心思都花在变身卡之外了，这集最后兔子躲在粉主背后时还记得把耳朵往下拉，以防露出来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6091,16 +5935,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  lyflyflxf  
 ##### 1824#       发表于 2020-4-12 21:58
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052451&amp;ptid=1860852" target="_blank">風駿 发表于 2020-4-12 08:34</a>
-
-是的，但这种差异有点不正常，新大招怎么说也是推销玩具环节吧</blockquote>
-水果的大招也不怎么华丽吧，玩具销量也挺高
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6109,16 +5944,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 ####  lyflyflxf  
 ##### 1825#       发表于 2020-4-12 22:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057328&amp;ptid=1860852" target="_blank">圆神最高 发表于 2020-4-12 18:53</a>
-
-我还以为在看奥特曼</blockquote>
-BGM让我觉得我在玩RPG，
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6230,16 +6056,7 @@ BGM让我觉得我在玩RPG，
 ####  lyflyflxf  
 ##### 1832#       发表于 2020-4-13 18:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47063718&amp;ptid=1860852" target="_blank">haojie_ma 发表于 2020-4-13 12:04</a>
-
-敢照着现实演一遍剧情就是神作了</blockquote>
-然后剧组就变成非国民了
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6447,16 +6264,7 @@ sb安倍天诛国贼<img src="https://static.saraba1st.com/image/smiley/face2017
 ####  lyflyflxf  
 ##### 1844#       发表于 2020-4-15 18:23
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091882&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-4-15 17:56</a>
-
-这两集给我的感觉像是到了最终决战一样</blockquote>
-这两集Q娃们频繁摔到地上让我想起了无印的中期BOSS战
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -6791,14 +6599,7 @@ cv：大原さやか 的感觉
 ####  lyflyflxf  
 ##### 1864#       发表于 2020-4-18 12:46
 
-
-
-
-第四人就算穿泳装也给人一股强行装嫩的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7219,15 +7020,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  lyflyflxf  
 ##### 1887#       发表于 2020-4-19 10:29
 
-
-
-
-日向这身的开叉有点高啊
-<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gdyqe6kqb1j21hc0u0n6e.jpg" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7325,17 +7118,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  lyflyflxf  
 ##### 1893#       发表于 2020-4-19 20:21
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47134335&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-19 16:38</a>
-
-被黑丝包裹的大腿</blockquote>
-相较之下，Q娃装居然更保守一些<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/8a0ba758e1c0833c96a678faa7ad7d16/2020-04-19_20-21-08.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -7462,21 +7245,7 @@ cv：大原さやか 的感觉</blockquote>
 ####  lyflyflxf  
 ##### 1900#       发表于 2020-4-20 07:25
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47138590&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-4-20 01:07</a>
-
-先看冒号再看Q娃 天差地别
-
-首先日向旗袍好看
-
-这集我觉得要说差的话就是这臭弟弟太丑了……因为达鲁伊森真的 ...</blockquote>
-只要不是这种展开就行
-<img src="https://p.sda1.dev/0/ac1ecbdf2c3f5b1bb1a5173a88362116/2020-04-20_07-24-57.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8290,14 +8059,7 @@ q娃停了
 ####  lyflyflxf  
 ##### 1948#       发表于 2020-4-27 15:58
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47220545&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-4-27 11:17</a></blockquote>
-还以为是lovelive海报<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8359,14 +8121,7 @@ q娃停了
 ####  lyflyflxf  
 ##### 1952#       发表于 2020-4-27 22:18
 
-
-
-
-我只愿今年的主线不要支离破碎。今年的主角们都挺有趣的
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8461,15 +8216,7 @@ q娃停了
 ####  lyflyflxf  
 ##### 1958#       发表于 2020-5-9 22:03
 
-
-
-
-虽然Q娃停了，上北老师还在继续画。祝今年的女人早日回归日常
-<img src="https://p.sda1.dev/0/ba347412f9fa35118af38036e7c3e2a8/2020-05-09_22-02-23.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8553,15 +8300,7 @@ q娃停了
 ####  lyflyflxf  
 ##### 1964#       发表于 2020-5-13 08:50
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47398979&amp;ptid=1860852" target="_blank">mchan 发表于 2020-5-13 02:49</a>
-喵托兰这是在说“Fuuuuuu……”么？</blockquote>
-我感觉是fuaaaaaa
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -8606,15 +8345,7 @@ q娃停了
 ####  lyflyflxf  
 ##### 1967#       发表于 2020-5-13 16:04
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47401894&amp;ptid=1860852" target="_blank">mchan 发表于 2020-5-13 11:38</a>
-按照日文假名是该这么转写，不过这读音感觉像是指代了某英语国骂。上北双子就连“diss”这种字都会直接用 ...</blockquote>
-喵虎那眼睛都睁不开的样子，不太像在骂人吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9037,18 +8768,7 @@ M7「シェアして！プリキュア」
 ####  lyflyflxf  
 ##### 1987#       发表于 2020-5-25 11:59
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47550071&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-5-25 11:57</a>
-
-求治愈来两季呗
-
-反正又不是没先例</blockquote>
-从现实疫情的发展时间看，两年真不算多
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9057,16 +8777,7 @@ M7「シェアして！プリキュア」
 ####  lyflyflxf  
 ##### 1988#       发表于 2020-5-25 12:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47547224&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2020-5-25 06:32</a>
-
-据说下周复播</blockquote>
-朝日的节目单上的周日放第六集，还没更新啊
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9109,13 +8820,7 @@ M7「シェアして！プリキュア」
 ####  lyflyflxf  
 ##### 1991#       发表于 2020-5-25 18:27
 
-
-
-<img src="https://p.sda1.dev/0/749582a77738f318f2a8adf13908b63f/2020-05-25_18-25-28.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9556,14 +9261,7 @@ test
 ####  lyflyflxf  
 ##### 2016#       发表于 2020-6-5 21:08
 
-
-
-
-今年的OST1已经有源了，质量不错
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9617,15 +9315,7 @@ test
 ####  lyflyflxf  
 ##### 2018#       发表于 2020-6-7 08:04
 
-
-
-
-下周日仍是重播
-<img src="https://p.sda1.dev/0/f31597bcbc8917b5a8f35843b5554308/6YGJem7tWI.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9746,15 +9436,7 @@ test
 ####  lyflyflxf  
 ##### 2024#       发表于 2020-6-10 03:28
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47742573&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-6-10 00:36</a>
-真不知道什么时候能看到</blockquote>
-一说到 迷你裙，秀腿 ，我就想到大白腿春春的反身下踢
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9897,15 +9579,7 @@ test
 ####  lyflyflxf  
 ##### 2033#       发表于 2020-6-14 09:34
 
-
-
-
-おさらいセレクション是什么东西？
-<img src="https://p.sda1.dev/0/cf86f1da37f2fddb84c42abbd0c71389/aIxumPX46L.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -9965,15 +9639,7 @@ test
 ####  lyflyflxf  
 ##### 2037#       发表于 2020-6-14 13:33
 
-
-
-
-貌似实际内容就是第12集的重播
-<img src="https://p.sda1.dev/0/f949809c4cd43e1f684904075dc922d7/a0HYpkiyHL.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10002,18 +9668,7 @@ test
 ####  lyflyflxf  
 ##### 2039#       发表于 2020-6-14 17:36
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802016&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-6-14 16:56</a>
-
-对啊
-
-下周是12集重播，下下周28日不就是13集了么</blockquote>
-祝你预言成功<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10132,14 +9787,7 @@ test
 ####  lyflyflxf  
 ##### 2045#       发表于 2020-6-17 15:28
 
-
-
-
-像大了十岁的小光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10350,15 +9998,7 @@ test
 ####  lyflyflxf  
 ##### 2056#       发表于 2020-6-17 17:00
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839905&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-6-17 16:45</a>
-吊，就继续吊胃口</blockquote>
-最下方三个是在参加BBA化妆大赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10771,16 +10411,7 @@ earth好看是挺好看的，但感觉怪怪的。太……高贵了？又或者
 ####  lyflyflxf  
 ##### 2077#       发表于 2020-6-20 13:42
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874543&amp;ptid=1860852" target="_blank">PRDY 发表于 2020-6-20 12:28</a>
-
-露大腿还带腿环，有点涩啊</blockquote>
-成年人就要发挥成年的优势嘛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -10966,15 +10597,7 @@ earth好看是挺好看的，但感觉怪怪的。太……高贵了？又或者
 ####  lyflyflxf  
 ##### 2088#       发表于 2020-6-21 05:55
 
-
-
-
-下周放第13集！
-<img src="https://p.sda1.dev/0/e75a0650cba26bb1ba88b93239b841c0/UBmpWLLyuu.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -11179,15 +10802,7 @@ earth好看是挺好看的，但感觉怪怪的。太……高贵了？又或者
 ####  lyflyflxf  
 ##### 2098#       发表于 2020-6-22 07:35
 
-
-
-
-ED2情报
-<img src="https://p.sda1.dev/0/86fa3e012e89bdb678b319cc5572b123/4AJKCANIjT.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12241,13 +11856,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  lyflyflxf  
 ##### 2153#       发表于 2020-7-5 08:20
 
-
-
-<img src="https://p.sda1.dev/0/ff400ccfe6b4f6a33a31984ab6621b85/2020-07-05_08-20-20.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12273,21 +11882,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  lyflyflxf  
 ##### 2155#       发表于 2020-7-5 08:24
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48072841&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-7-5 08:09</a>
-
-最喜欢看小女孩逛街玩耍，这集氛围挺好，下集又吵架
-
-广告前起码还讲了点老q娃的历史 ...</blockquote>
-这差不多就是日本庙会的景象，由此日本小朋友们会很有代入感
-
-
-大型新人应该至少是奶奶Q娃了吧。不同辈的Q娃还从未组过队
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12512,16 +12107,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  lyflyflxf  
 ##### 2168#       发表于 2020-7-6 10:46
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48084269&amp;ptid=1860852" target="_blank">上坂莲华 发表于 2020-7-6 02:07</a>
-变成Q娃后会把身体换成可以用魔力修复的
-然后灵魂（</blockquote>
-英灵化？
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12695,16 +12281,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  lyflyflxf  
 ##### 2178#       发表于 2020-7-7 13:24
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099457&amp;ptid=1860852" target="_blank">JustW 发表于 2020-7-7 09:41</a>
-
-哦14集啊，那没事了，我看楼这么高了以为得有三四十集了</blockquote>
-去年有231页，前年有377页。别急
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -12827,18 +12404,7 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 ####  lyflyflxf  
 ##### 2185#       发表于 2020-7-8 21:57
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48120469&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-7-8 20:21</a>
-
-一开始说为什么来到这个镇就变好呢
-
-不禁想到是不是，其实不是和佳变好了是地球被污染了，就是两者保其一的 ...</blockquote>
-如果剧情继续忠于OP，那么大结局可能是Q娃们治愈地球
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13393,20 +12959,7 @@ saber还是9月放</blockquote>
 ####  lyflyflxf  
 ##### 2218#       发表于 2020-7-20 07:37
 
-
-
- 本帖最后由 lyflyflxf 于 2020-7-20 07:44 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48155903&amp;ptid=1860852" target="_blank">kirimori 发表于 2020-7-19 23:00</a>
-
-上周兔子回感觉和佳和兔子的关系比和其他两个人还亲，让我觉得兔子之后人形变追加都不奇怪，可惜偷跑情报是 ...</blockquote>
-说起来三人之间的互动的确比和各自的淫 兽（这词终于是敏 感词了）的互动少了点
-
-
-想当毛芙伦第二只有等剧场版了。
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13415,18 +12968,7 @@ saber还是9月放</blockquote>
 ####  lyflyflxf  
 ##### 2219#       发表于 2020-7-20 07:45
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48156147&amp;ptid=1860852" target="_blank">wind4rap 发表于 2020-7-19 23:25</a>
-
-意思是不是说
-
-收了朋友卡也还有戏？</blockquote>
-这不是贵乱Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13596,34 +13138,7 @@ doremi的联动就这个 还不如不官宣 当一个小彩蛋德了 反对dorem
 ####  lyflyflxf  
 ##### 2229#       发表于 2020-7-21 07:30
 
-
-
- 本帖最后由 lyflyflxf 于 2020-7-21 07:52 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48169001&amp;ptid=1860852" target="_blank">rxrx 发表于 2020-7-20 23:30</a>
-
-越看越像是长熟了的九条光</blockquote>
-OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-<img src="https://img.saraba1st.com/forum/202007/21/073346ybjp6lhw4oov6poo.jpg" referrerpolicy="no-referrer">
-
-
-<strong>[FLsnow][Healin'Good_Precure][05][CHS].mp4_snapshot_02.05_[2020.07.21_07.29.36].jpg</strong> (71.31 KB, 下载次数: 0)
-
-下载附件
-
-2020-7-21 07:33 上传
-
-
-
-
-
-
-
-（怎么突然没法直接插入外链的图片了）
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13665,20 +13180,7 @@ OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/ima
 ####  lyflyflxf  
 ##### 2232#       发表于 2020-7-25 15:39
 
-
-
- 本帖最后由 lyflyflxf 于 2020-7-25 19:54 编辑 
-
-今年的vocal album和character single有无损资源了，后者居然只有三首歌，而且四人版的OP1的合唱质量很一般，可能因为疫情而取消了不少排练吧
-
-森森森的歌不错
-
-
-北川理恵 &amp; 宮本佳那子 不愧是专业歌手，在 かえりたい場所 里飙高音玩<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -13771,18 +13273,7 @@ OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/ima
 ####  lyflyflxf  
 ##### 2238#       发表于 2020-7-26 21:38
 
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48221491&amp;ptid=1860852" target="_blank">wilkyway 发表于 2020-7-26 19:00</a>
-
-春剧场版变秋剧场版了海星
-
-秋天自家的不知道延期到多会..总不能明年的女人出来再放吧 ...</blockquote>
-说不定明年的女人也会被推迟
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14033,4 +13524,563 @@ OP里的是正在长熟的九条光？<img src="https://static.saraba1st.com/ima
 
 
 
-                        
+
+
+-----
+
+####  达达葱2  
+##### 2252#       发表于 2020-7-30 23:41
+
+
+
+
+等得花都谢了
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2253#       发表于 2020-8-1 00:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">终于看完了，看完抱q有点戒断反应，结果被知优和和佳治愈了，知性大姐姐还有UMB真棒啊
+
+17看的字幕组，还以为变身会跟骑士那样有特效字幕来着<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2254#       发表于 2020-8-2 08:02
+
+
+
+
+“我不知道什么叫‘特别喜欢’，但是能保护你的最爱” ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ghc4tw2kefj21400mi7wh.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ghc4tyjf9yj21400mi7wh.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ghc4tzi9o9j21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+燃え尽きたよ・・・真っ白にな ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ghc4wad8s4j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ghc4wg6ofej21400mihdt.jpg" referrerpolicy="no-referrer">
+
+
+总算要来了
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ghc51it2sjj21400mi4qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ghc52cfu1zj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+
+但是比起第四人，预告里给我印象最深的是这个龟派气功波
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ghc53vp52zj21400mi4qq.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 2255#       发表于 2020-8-2 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">腿被缠住~
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2256#       发表于 2020-8-2 12:21
+
+
+
+
+熟悉的剧情，还是原配好。
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 2257#       发表于 2020-8-2 12:46
+
+
+
+
+和青春美少女朝夕相处，内心却是个熟女控
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2258#       发表于 2020-8-2 12:53
+
+
+
+
+这一集剧情和心跳Q有一集很像，但这次喜欢的是阿姨啊。
+
+<img src="https://img.saraba1st.com/forum/202008/02/125349oypd9y6rpr6zki69.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DF251C61-F1E5-453F-AC63-2A7417417320.jpeg</strong> (297.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-2 12:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 2259#       发表于 2020-8-2 13:00
+
+
+
+
+丝袜白浊，花样开车
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2260#       发表于 2020-8-2 13:22
+
+
+
+
+刚想说两情相悦这个词有问题就被官方吐槽。如果猫有帅哥人型估计同人都炸了，不过有人型的话不就真成ntr走向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+新女人出现的有点突兀，感觉伏笔还不够多。以前追加最起码是先刷足存在感，这次不知道会不会只有战斗的时候突然出现又突然消失拖几集在正式入队
+
+母女（？）龟派气功！（居然没有悟空的麻将脸<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2261#       发表于 2020-8-2 20:07
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  風駿  
+##### 2262#       发表于 2020-8-2 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48292520&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-8-2 13:22</a>
+
+刚想说两情相悦这个词有问题就被官方吐槽。如果猫有帅哥人型估计同人都炸了，不过有人型的话不就真成ntr走 ...</blockquote>
+这次是中途路线变更没办法
+
+
+唐突空降的已经有个心跳了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2263#       发表于 2020-8-2 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48296860&amp;ptid=1860852" target="_blank">風駿 发表于 2020-8-2 20:11</a>
+
+这次是中途路线变更没办法
+
+
+唐突空降的已经有个心跳了</blockquote>
+如果大胆一点可以改剧本在这几周的日常回里塞线索，不过工期可能赶不及
+
+听说当年bba打肿了说雷吉纳是追加的脸？
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2264#       发表于 2020-8-3 01:35
+
+
+
+
+我不知道什么是特别喜欢这话感觉很像在什么女主角脚踏多船的漫画里见过，日向未来男友辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可能是我的眼睛比较浑浊，无论烛液缠脚还是特地给个手掌抱肩的镜头亦或是变大的项链，总觉得这集充满了恶趣味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2265#       发表于 2020-8-3 07:42
+
+
+
+
+感觉向日葵以后会是吸渣男的体质。。。
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2266#       发表于 2020-8-3 09:20
+
+
+
+
+最近在复习战队 看到发传单宣传 立即串戏 哈哈哈Q娃们真是十几年不变啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（当然还有祖传的串珠机）
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2267#       发表于 2020-8-3 10:08
+
+
+
+
+魔杖上的肉球能动，以为是固定的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2268#       发表于 2020-8-3 11:13
+
+
+
+
+这集让人有种青春就是如此美妙的感觉
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2269#       发表于 2020-8-3 12:25
+
+
+
+
+空降型q娃 其实很难处理
+反正今年特殊情况呗
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2270#       发表于 2020-8-3 20:57
+
+
+
+
+企鹅吐槽了句两情相悦是这样用的吗，我看出来了，你是不敢表白！
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2271#       发表于 2020-8-4 06:56
+
+
+
+<img src="http://wx1.sinaimg.cn/large/006JgHrVgy1ghdolihm82j30xc0nln43.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2272#       发表于 2020-8-4 08:04
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+
+-----
+
+####  HGCG2  
+##### 2273#       发表于 2020-8-4 21:46
+
+
+
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1ghf1qh9p30j20u0181kjn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ghf1qrv2hej20u00u31l1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1ghf1rho3gkj20u00wcu10.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1ghf1tk0u2wj20vu0u04qs.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ghf1tsszrzj219f0u0u0y.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ghf1u5aakkj20yx0u0kjn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ghf1u6b6btj21fu0u0npf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2274#       发表于 2020-8-5 09:04
+
+
+
+
+没感觉
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2275#       发表于 2020-8-5 10:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">上周的黄战士太棒了
+在意预告里的龟波+1
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2276#       发表于 2020-8-9 07:59
+
+
+
+
+キュアアース、なんてつよさだ ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ghk8953yspj21hc0u0q5w.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ghk88pk95zj21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ghk88tebmij21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ghk88t18laj21400minpd.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  catenarygong  
+##### 2277#       发表于 2020-8-9 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48366392&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-08-09 07:59:23</a>
+キュアアース、なんてつよさだ ​​​​</blockquote>美哭
+
+这种女神级别的q娃还是第一个
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2278#       发表于 2020-8-9 08:41
+
+
+
+
+透着一股“虔诚单纯而老练的女狂信者特有的无垢而充满压迫感并带着几分危险令人在征服她和被她当作异端审讯直至处决之间摇摆不定的刺激下半身的魅力”
+<img src="http://wx3.sinaimg.cn/mw1024/6765fd79gy1ghk891u0w1j21hc0u0q98.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2279#       发表于 2020-8-9 09:08
+
+
+
+
+这集感觉和佳也是女神味十足
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2280#       发表于 2020-8-9 09:21
+
+
+
+
+森森森开口就是熟悉的味道
+
+阿紫除了透着狠劲的眼神外服装风格动作还是很哈酱的
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2281#       发表于 2020-8-9 09:29
+
+
+
+
+我在想今年这位紫色怎么谐星化
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2282#       发表于 2020-8-9 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48366846&amp;ptid=1860852" target="_blank">真红眼教授 发表于 2020-8-9 09:29</a>
+
+我在想今年这位紫色怎么谐星化</blockquote>
+非活在当下之人，要融入生活可有点难度，不怕不闹笑话
+
+
+
+
+
+                       
