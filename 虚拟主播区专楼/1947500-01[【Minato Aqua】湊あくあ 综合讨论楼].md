@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-11 08:06** 
+> ## **本文件最后更新于2020-08-12 10:06** 
 
 
 
@@ -13775,4 +13775,495 @@ md，出不了这张和要我弃坑有啥区别
 
 
 
-                      
+
+
+-----
+
+####  cvql  
+##### 812#       发表于 2020-8-11 16:06
+
+
+
+
+晚上世界游戏大全<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看厄运缠身
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 813#       发表于 2020-8-11 16:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天应该是1小时打卡下班，因为8点船长一周年3D，要让路
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 814#       发表于 2020-8-11 16:30
+
+
+
+
+哦，改7点了。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 815#       发表于 2020-8-11 17:54
+
+
+
+
+一堆人7点开台估计是要玩套路了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 816#       发表于 2020-8-11 18:10
+
+
+
+
+哎，不能转播有些伤
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 817#       发表于 2020-8-11 19:03
+
+
+
+
+晚上还有apex
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 818#       发表于 2020-8-11 19:04
+
+
+
+ 本帖最后由 soci 于 2020-8-11 19:10 编辑 
+
+10点或者11点还有一班Apex
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 819#       发表于 2020-8-11 19:08
+
+
+
+
+10点。。。油管上面是直接写了 可能会延后
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 820#       发表于 2020-8-11 19:14
+
+
+
+
+草，这人的战吼声音
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 821#       发表于 2020-8-11 19:16
+
+
+
+
+玩个扑克有必要这么激动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 822#       发表于 2020-8-11 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草 好吵
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 823#       发表于 2020-8-11 19:23
+
+
+
+
+简单的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 824#       发表于 2020-8-11 19:23
+
+
+
+
+今天好吵
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 825#       发表于 2020-8-11 19:25
+
+
+
+
+已经幽灵化了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 826#       发表于 2020-8-11 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 827#       发表于 2020-8-11 19:39
+
+
+
+
+好菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 828#       发表于 2020-8-11 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自信满满的菜
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 829#       发表于 2020-8-11 22:18
+
+
+
+
+她在想要不要把apex的语音改成英文，让英文区的人看的时候多少能听懂点东西。
+
+这个是看到同事吃到很多英文观众也想要了吗？感觉数字厨了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 830#       发表于 2020-8-11 22:21
+
+
+
+
+该认识到原语音的魅力了，特么的老滚5都是日语就离谱
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 831#       发表于 2020-8-11 22:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老数字厨了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 832#       发表于 2020-8-11 22:30
+
+
+
+
+好菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 833#       发表于 2020-8-11 23:23
+
+
+
+
+这延迟是皮套防止国内DD狙击搞的么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 834#       发表于 2020-8-11 23:36
+
+
+
+ 本帖最后由 mengnvpu 于 2020-8-12 00:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这打的像在梦游
+
+可以，慢慢打回来了
+
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 835#       发表于 2020-8-12 00:18
+
+
+
+
+七天上钻 不太容易
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 836#       发表于 2020-8-12 00:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 837#       发表于 2020-8-12 00:20
+
+
+
+
+终于恰鸡了 今晚不容易阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 838#       发表于 2020-8-12 00:21
+
+
+
+
+还挺帅的
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 839#       发表于 2020-8-12 08:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨晚被这么狙击，她对死宅的梁木肯定越来越大了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 840#       发表于 2020-8-12 08:22
+
+
+
+
+昨晚你亏：JK的时候，呕吐应该是零食吃多了伤身了
+
+24小时真的伤身，上次24小时也是一样
+
+送的礼物家里装不下了
+
+想去都会，不想当乡下妹了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 841#       发表于 2020-8-12 09:43
+
+
+
+
+也该去东京做城里人了，crew打的钱应该够请家政妇了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
