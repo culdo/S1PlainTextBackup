@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-12 10:06** 
+> ## **本文件最后更新于2020-08-13 14:07** 
 
 
 
@@ -14266,4 +14266,547 @@ md，出不了这张和要我弃坑有啥区别
 
 
 
-                     
+
+
+-----
+
+####  新磕娘  
+##### 842#       发表于 2020-8-12 10:19
+
+
+
+
+睡得早，居然又被外挂和窥屏了，唉。难啊
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 843#       发表于 2020-8-12 10:34
+
+
+
+
+昨晚本来就状态不好，
+
+然后碰到狙击，直接送快递的，仍装备嘲讽的
+
+顺便还有科技哥，真的难。
+
+
+城里那段是她APEX梗吧，
+
+大概就是跳的大楼那里是大都市，然后当时被别的队赶出来了，配合她的傲娇音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 844#       发表于 2020-8-12 16:16
+
+
+
+
+听上去，小时候一家四口应该是睡一间房。挺奇怪的，现在住的乡下的房子应该没那么小啊。
+
+
+
+
+
+
+
+-----
+
+####  jkl的咩咩酱  
+##### 845#       发表于 2020-8-12 16:25
+
+
+
+
+一家四口，指夸久美子咩 还有一个是谁<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 846#       发表于 2020-8-12 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48404416&amp;ptid=1947500" target="_blank">jkl的咩咩酱 发表于 2020-8-12 16:25</a>
+一家四口，指夸久美子咩 还有一个是谁</blockquote>
+还有大亏哥哥啊(好像没什么问题
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 847#       发表于 2020-8-12 16:45
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-12 16:50 编辑 
+
+太傻屌了，还是算了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 848#       发表于 2020-8-12 17:50
+
+
+
+
+每次打开油管就发现阿夸又在作死
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 849#       发表于 2020-8-12 20:43
+
+
+
+
+晚班无了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 850#       发表于 2020-8-12 20:46
+
+
+
+
+原来是让档期给新人
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 851#         楼主| 发表于 2020-8-12 20:47
+
+
+
+ 本帖最后由 sky5 于 2020-8-12 20:56 编辑 
+
+apex鸽了，明天中午11点开了个新坑
+看直播间简介是任天堂的游戏
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 852#       发表于 2020-8-12 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">社畜落泪
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 853#       发表于 2020-8-12 21:11
+
+
+
+
+听起来应该是假期连播大作了，老任的大作还有什么是初见呢
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 854#         楼主| 发表于 2020-8-12 22:22
+
+
+
+
+是塞尔达
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 855#       发表于 2020-8-12 22:25
+
+
+
+
+草，这就是传说吗，你的野吹好像就播过一次吧
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 856#       发表于 2020-8-12 22:30
+
+
+
+
+我觉得没有阅历支撑还是尽量少碰几十年前的经典游戏吧
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 857#       发表于 2020-8-12 22:59
+
+
+
+
+这游戏比她还大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 858#       发表于 2020-8-12 23:01
+
+
+
+
+现在真玩过这游戏的观众也不多吧😅一起怀旧经典
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 859#       发表于 2020-8-12 23:02
+
+
+
+
+钻石不冲了 青结
+
+
+
+
+
+
+
+-----
+
+####  jkl的咩咩酱  
+##### 860#       发表于 2020-8-12 23:12
+
+
+
+ 本帖最后由 jkl的咩咩酱 于 2020-8-12 23:15 编辑 
+
+观众里能有几个真玩过的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+阅历支撑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">夸完全就不是这一道上的主播，观众也不是来看她的“阅历”的
+
+而且那些游戏婆罗门们就是b事多又不打钱，还喜欢带节奏，是最应该要避开的观众群体吧
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 861#       发表于 2020-8-12 23:29
+
+
+
+
+钻石不冲了好啊，孤儿也变多了，时间本来就不多，没必要搞了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 862#       发表于 2020-8-13 01:44
+
+
+
+
+阿夸不播我跑去玩老滚5，玩魔怔了以后，看动画看到了关键剧情觉得等会儿需要回放再看一下，下意识去按F5快速保存，也不知道是觉得动画可以存档，还是现实可以存档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发现没有快速保存而是网页刷新了之后我愣了2秒。
+
+另外，玩时之笛要什么人生阅历<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只不过解谜要动脑子，我觉得有点虚
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 863#       发表于 2020-8-13 08:55
+
+
+
+
+玩马里奥塞尔达这种需要毛阅历，上手就是了，又不是联机黑楼<img src="https://static.saraba1st.com/image/smiley/carton2017/335.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 864#       发表于 2020-8-13 09:40
+
+
+
+
+主要智商一夸，这个是硬伤
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 865#       发表于 2020-8-13 10:01
+
+
+
+
+感觉这人有点小聪明，解谜没咋卡过她。说来丢人，只狼四猴初见我花的时间是她的两倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 866#       发表于 2020-8-13 10:32
+
+
+
+
+7点糖豆人 可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 867#       发表于 2020-8-13 12:42
+
+
+
+
+7点糖豆人，还没下班悲<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+不知道会不会和观众一起玩
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 868#       发表于 2020-8-13 13:05
+
+
+
+
+她说现在的解谜难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 869#       发表于 2020-8-13 13:12
+
+
+
+
+一开始好喜欢ナビィ啊这个人（虽然现在对身边灵熟视无睹了），对白色毛绒球没有抗性的这一点意外的可爱；感觉ナビィ也很适合粘一个双马尾上去，不知道晚一点会不会看见相关Fan art
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 870#       发表于 2020-8-13 13:56
+
+
+
+<blockquote>米酒马路 发表于 2020-8-13 10:01
+感觉这人有点小聪明，解谜没咋卡过她。说来丢人，只狼四猴初见我花的时间是她的两倍 ...</blockquote>
+今天卡了个爽
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 871#       发表于 2020-8-13 14:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这游戏感觉操作好麻烦阿，这人用习惯键鼠这种需要锁定她老是忘记
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 872#       发表于 2020-8-13 14:02
+
+
+
+
+估计是手柄不适应，然后玩怪猎不锁定成习惯了
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 873#       发表于 2020-8-13 14:06
+
+
+
+<blockquote>fightonion 发表于 2020-8-13 14:00
+不过这游戏感觉操作好麻烦阿，这人用习惯键鼠这种需要锁定她老是忘记 ...</blockquote>
+所以我说了“阅历”，这游戏虽然在操作上是个里程碑，但和现在的游戏比还是太旧了，对这时代的游戏没了解的话初见是很吃瘪的，不过我没想到五岁的智商debuff更严重。总体上直播效果对我来说还好吧
+
+
+
+
+
+                    
