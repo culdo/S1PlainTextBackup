@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-13 14:07** 
+> ## **本文件最后更新于2020-08-13 20:05** 
 
 
 
@@ -14809,4 +14809,622 @@ apex鸽了，明天中午11点开了个新坑
 
 
 
-                    
+
+
+-----
+
+####  cvql  
+##### 874#       发表于 2020-8-13 15:46
+
+
+
+
+这玩意迷题引导算是小学生水平，也许吧...当年我玩初见满顺利的。。。
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 875#       发表于 2020-8-13 15:51
+
+
+
+
+又要一回扔了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 876#       发表于 2020-8-13 16:01
+
+
+
+
+这傻气已经溢出屏幕了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 877#       发表于 2020-8-13 16:19
+
+
+
+ 本帖最后由 面具13 于 2020-8-13 16:24 编辑 
+
+今天这rpg的播法才对啊，没必要每次都一直冲主线，顺手做支线才是王道。
+
+现在要一边杂谈一边做封面吗？
+
+不相信这游戏steam版有挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。做封面不放后台画面，“这里放上我的（大）脸，最近很喜欢这个脸”
+
+
+让观众来帮忙定标题，这脑回路全是ＵＣ震惊部。“黑暗游戏”很帅草
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 878#       发表于 2020-8-13 16:24
+
+
+
+
+不要steam不要steam不要steam<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 879#       发表于 2020-8-13 16:28
+
+
+
+
+要三动了，晚上新人播完后来apex。这还是打算继续冲分啊
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 880#       发表于 2020-8-13 16:28
+
+
+
+
+晚上大概还会apex<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 881#       发表于 2020-8-13 16:28
+
+
+
+
+晚上说不定还要打枪<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 882#       发表于 2020-8-13 16:30
+
+
+
+ 本帖最后由 面具13 于 2020-8-13 16:34 编辑 
+
+塞尔达，你丫的再叫我一次呀哈哈试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦吼，知道糖豆人维护的事情了，感觉可能还会再改时间
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 883#       发表于 2020-8-13 16:49
+
+
+
+
+后面工作然后就没看了，能说说阿夸这时之笛还能有下文吗？
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 884#       发表于 2020-8-13 16:51
+
+
+
+
+说了还会播 只不过挖了这么多坑真的填的过来么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 885#       发表于 2020-8-13 16:51
+
+
+
+
+时之笛甚至他们疯狂黑屁说没下文的老滚其实都会拿出来播的
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 886#       发表于 2020-8-13 16:59
+
+
+
+
+糖豆人steam挂好多吧，我碰到几次就转战PS4了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 887#       发表于 2020-8-13 17:55
+
+
+
+
+只是慢慢播，Apex有硬任务的要冲钻石，肯定要打啊
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 888#       发表于 2020-8-13 18:38
+
+
+
+
+玩的好菜啊
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 889#       发表于 2020-8-13 18:43
+
+
+
+
+狗起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 890#       发表于 2020-8-13 18:53
+
+
+
+ 本帖最后由 面具13 于 2020-8-13 18:57 编辑 
+
+要放大海了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好的，输了。
+
+5个色子一个5都不出的概率是：(1-1/6)^5 ≈ 0.4
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 891#       发表于 2020-8-13 18:54
+
+
+
+ 本帖最后由 nevp 于 2020-8-13 18:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎么这么不爽，赢一把不好吗
+
+算了，开心就好，不过是游戏罢了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 892#       发表于 2020-8-13 18:55
+
+
+
+ 本帖最后由 米酒马路 于 2020-8-13 18:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">就硬送啊，糖豆人续上
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 893#       发表于 2020-8-13 18:59
+
+
+
+
+今天这么算起来四动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 894#       发表于 2020-8-13 19:00
+
+
+
+
+赌鬼精神，老飞娥了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 895#       发表于 2020-8-13 19:02
+
+
+
+
+糖豆人也是联动啊，那刚才最后那一手放水可以算给船长的联动报酬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 896#       发表于 2020-8-13 19:03
+
+
+
+
+海蓝宝石是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 897#       发表于 2020-8-13 19:11
+
+
+
+
+好强啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 898#       发表于 2020-8-13 19:25
+
+
+
+
+这游戏还挺适合她的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 899#       发表于 2020-8-13 19:29
+
+
+
+
+团体战弱点，考记忆的更是困难
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 900#       发表于 2020-8-13 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">功亏一篑
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 901#       发表于 2020-8-13 19:33
+
+
+
+
+看样子舔狗独角兽明天这游戏要跟上了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 902#       发表于 2020-8-13 19:35
+
+
+
+
+阿夸这初见还是挺厉害的阿，感觉私底下应该是看过别人玩的
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 903#       发表于 2020-8-13 19:35
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 904#       发表于 2020-8-13 19:41
+
+
+
+
+这都啥阴间队友啊，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 905#       发表于 2020-8-13 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">骗观众太草了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 906#       发表于 2020-8-13 19:48
+
+
+
+
+能不能踢球，我想看大老夸拿球
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 907#       发表于 2020-8-13 19:48
+
+
+
+ 本帖最后由 面具13 于 2020-8-13 19:51 编辑 
+
+看来队友对手全是aku虐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骗观众骗进决赛了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 908#       发表于 2020-8-13 19:51
+
+
+
+ 本帖最后由 nevp 于 2020-8-13 19:54 编辑 
+
+草，边跑边往后看，你当这是马车吗
+
+晚上打枪，明天继续塞尔达，最近直播强度拉满
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 909#       发表于 2020-8-13 19:58
+
+
+
+
+这游戏有点马造那个意思，稍微熟练一下地图就好看了，毕竟是个吃鸡游戏，要是有排位就更香了
+
+
+
+
+
+
+
+-----
+
+####  zpy393  
+##### 910#       发表于 2020-8-13 20:04
+
+
+
+
+有排位大概率要复刻马造，yamero<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
