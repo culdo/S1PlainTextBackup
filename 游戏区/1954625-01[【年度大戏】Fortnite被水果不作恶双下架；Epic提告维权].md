@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-14 16:18** 
+> ## **本文件最后更新于2020-08-14 20:17** 
 
 
 
@@ -2349,6 +2349,25 @@ steam他看不惯，手机平台也看不惯
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GloryXie|-1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3353,4 +3372,658 @@ Epic是自己前几年下架了Google Play说要自己搞，然后又灰溜溜�
 
 
 
-                                            
+
+
+-----
+
+####  龙爪  
+##### 172#       发表于 2020-8-14 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48428134&amp;ptid=1954625" target="_blank">aruruu 发表于 2020-8-14 15:12</a>
+
+绑架玩家这招真的屡试不爽，苹果谷歌不是东西，epic更不是东西
+
+
+—— 来自 HUAWEI BKL-AL20, Android 10上 ...</blockquote>
+玩家能少付钱就行，你管它是不是东西，你是不是不多出点钱给苹果心里不舒服啊
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 173#       发表于 2020-8-14 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48428971&amp;ptid=1954625" target="_blank">龙爪 发表于 2020-8-14 16:21</a>
+玩家能少付钱就行，你管它是不是东西，你是不是不多出点钱给苹果心里不舒服啊 ...</blockquote>
+我又不玩手游，赚多赚少关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">免费送特洛伊+漫天通稿+1984广告 这一套舆论操作恶心到我了有问题咩
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  ギナ  
+##### 174#       发表于 2020-8-14 16:53
+
+
+
+
+想起来最近b站那事了，几个主播被所谓富婆打赏百万然后以未成年为由退款，因为被苹果抽了三成和b站抽了一半导致这几个主播直接血亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 175#       发表于 2020-8-14 17:36
+
+
+
+
+本来这波就是epic借美国民众反垄断巨头之势攻击前商业巨头，就目前美国局势也许真可行。
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 176#       发表于 2020-8-14 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48429285&amp;ptid=1954625" target="_blank">aruruu 发表于 2020-8-14 16:39</a>
+
+我又不玩手游，赚多赚少关我屁事免费送特洛伊+漫天通稿+1984广告 这一套舆论操作恶心到我了有问题 ...</blockquote>
+送个游戏都能给恶心到，除了V孝子应该没其他人了把<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Narrative  
+##### 177#       发表于 2020-8-14 18:07
+
+
+
+
+广告整挺好
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 178#       发表于 2020-8-14 18:18
+
+
+
+<blockquote>ギナ 发表于 2020-8-14 16:53
+想起来最近b站那事了，几个主播被所谓富婆打赏百万然后以未成年为由退款，因为被苹果抽了三成和b站抽了一半 ...</blockquote>
+b站的钱退了，苹果的退不了（或者至少退起来很麻烦一时退不了），你这例子正好证明苹果税的恶。
+
+
+
+
+
+
+
+-----
+
+####  河水  
+##### 179#       发表于 2020-8-14 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48427131&amp;ptid=1954625" target="_blank">920619lqy 发表于 2020-8-14 13:35</a>
+之前他们肛V社的时候大家就在等他们什么时候肛苹果了，这下好了，我们可以等他肛索软任了（不知道他敢不 ...</blockquote>
+这么巨魔，我相信他敢
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 180#       发表于 2020-8-14 18:28
+
+
+
+<blockquote>tillnight 发表于 2020-8-14 18:18
+b站的钱退了，苹果的退不了（或者至少退起来很麻烦一时退不了），你这例子正好证明苹果税的恶。 ...</blockquote>
+没退过款？
+
+
+找苹果退款从来都是全款，苹果会傻逼的告诉你有30%退不了？
+
+
+话说，如果你还要杠为什么这个案例退不了，麻烦自己思考
+
+
+
+
+
+
+
+-----
+
+####  秋开  
+##### 181#       发表于 2020-8-14 18:29
+
+
+
+
+epic这么跳，小心秋后算账啊，树敌太多了
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 182#       发表于 2020-8-14 18:30
+
+
+
+ 本帖最后由 tillnight 于 2020-8-14 18:32 编辑 
+<blockquote>Scythe 发表于 2020-8-14 18:28
+没退过款？
+
+
+找苹果退款从来都是全款，苹果会傻逼的告诉你有30%退不了？
+</blockquote>
+
+呵呵，反正错的不是苹果是你们违反国家法律法规规定，苹果税谷歌税坚定维护者，苹果谷歌的舔狗和猪仔给我有多远滚多远。
+
+
+
+
+
+
+
+-----
+
+####  hshiki  
+##### 183#       发表于 2020-8-14 18:31
+
+
+
+
+epic为什么现在才行动，赶上什么良辰吉日了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 184#       发表于 2020-8-14 18:33
+
+
+
+
+这楼大多人根本不太了解这事啊，进来站个队就溜？
+
+
+epic怎么会告御三家，epic表示主机发售硬件维护平台需要承担风险，也会对平台内独立游戏和厂商提供帮助，所以收30%合理。
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 185#       发表于 2020-8-14 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430510&amp;ptid=1954625" target="_blank">hshiki 发表于 2020-8-14 18:31</a>
+
+epic为什么现在才行动，赶上什么良辰吉日了吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就是良辰吉日啊，今天送游戏，关注度大幅UP，这时候搞事就能拉到很多路人的支持
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 186#       发表于 2020-8-14 18:36
+
+
+
+
+谷歌苹果是雁过拔毛，尤其苹果，任何消费都要抽，直播平台打赏要抽，视频APP冲会员要抽，之前微信和苹果闹不也是因为微信文章打赏苹果直接拿30%吗。
+
+
+国内的APP直接明着把这30%转嫁到消费者头上（自己打开APP充值界面看看）
+
+
+这事狗咬狗看戏就完事了，因为恶心EPIC硬说苹果那套好真没必要。
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 187#       发表于 2020-8-14 18:44
+
+
+
+
+EPIC这波就是纯营销，官司肯定输，而且起因仔细想想也很滑头，全平台充值打8折，如果没这个事直接打折之前充值的玩家铁定不爽。
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 188#       发表于 2020-8-14 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430171&amp;ptid=1954625" target="_blank">龙爪 发表于 2020-8-14 17:57</a>
+送个游戏都能给恶心到，除了V孝子应该没其他人了把</blockquote>
+不会吧，不会吧，不会真有人喜欢舔资本家**吧？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 189#       发表于 2020-8-14 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430684&amp;ptid=1954625" target="_blank">aruruu 发表于 2020-8-14 18:50</a>
+
+不会吧，不会吧，不会真有人喜欢舔资本家**吧？送点游戏就成为民请命的青天大老爷了？谁敢反对epi ...</blockquote>
+不会吧不会吧，真的有人以为苹果V社是慈善机构不是资本家吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你也是资本家舔狗，还是要PIAO了要付钱的那种，哪有白PIAO资本家的说话硬气<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 190#       发表于 2020-8-14 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430805&amp;ptid=1954625" target="_blank">龙爪 发表于 2020-8-14 19:01</a>
+不会吧不会吧，真的有人以为苹果V社是慈善机构不是资本家吧
+
+你也是资本家舔狗，还是要PIAO了要付 ...</blockquote>
+我为资本家说了什么好话你倒是指出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">从始至终好像只要你在给资本家辩解吧，反过来恶人先告状？
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 191#       发表于 2020-8-14 19:07
+
+
+
+<blockquote>tillnight 发表于 2020-8-14 18:30
+呵呵，反正错的不是苹果是你们违反国家法律法规规定，苹果税谷歌税坚定维护者，苹果谷歌的舔狗和猪仔给我 ...</blockquote>
+我发现杠精说不过就喜欢扣帽子显得自己伟光正
+
+
+各种贴吧玩家和官方决裂在苹果退款的没有上千也有八百，谁被苹果扣了30%？
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 192#       发表于 2020-8-14 19:09
+
+
+
+
+草，韭菜为了资本家互撕也太他妈乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 193#       发表于 2020-8-14 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430884&amp;ptid=1954625" target="_blank">最好不说 发表于 2020-8-14 19:09</a>
+草，韭菜为了资本家互撕也太他妈乐了</blockquote>
+万物皆可粉圈，一定要守护好全世界最好的epic，谷歌，苹果<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  AsPIR1N  
+##### 194#       发表于 2020-8-14 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48428134&amp;ptid=1954625" target="_blank">aruruu 发表于 2020-08-14 15:12:19</a>
+绑架玩家这招真的屡试不爽，苹果谷歌不是东西，epic更不是东西
+
+—— 来自 HUAWEI BKL-AL20, Android 10上 ...</blockquote>epic送游戏，免费游戏赚的钱送独立游戏，3a半价，哪里绑架玩家了？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 195#       发表于 2020-8-14 19:20
+
+
+
+ 本帖最后由 tillnight 于 2020-8-14 19:21 编辑 
+<blockquote>Scythe 发表于 2020-8-14 19:07
+我发现杠精说不过就喜欢扣帽子显得自己伟光正
+
+
+各种贴吧玩家和官方决裂在苹果退款的没有上千也有八百，谁 ...</blockquote>
+
+啧啧，你先扣杠精帽子的孝子也敢出来说别人扣帽子，不愧是崇拜苹果税，Google Play就是好的大孝子。
+
+你个傻逼再转进一百次能洗了苹果在这个退款案例里照常收苹果税的事实吗？你这个脑残大概根本没有意识到你说的全额退款和这事根本没关系，这个案例里消费者一样拿到了全额退款，苹果只是问服务提供者“罚款”了30%而已，这也不是孤例早就有报道。你再转进一个看看？
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 196#       发表于 2020-8-14 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430958&amp;ptid=1954625" target="_blank">AsPIR1N 发表于 2020-8-14 19:17</a>
+epic送游戏，免费游戏赚的钱送独立游戏，3a半价，哪里绑架玩家了？
+
+  -- 来自 能看大图的 Stage1官方 Andr ...</blockquote>
+把玩家当枪使，利用舆论；发动群众斗群众，所有不站epic的都是友商孝子，反正我已经被扣上v孝子苹果孝子两顶帽子了，虽然我用华为，pc主平台是gog<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Tomoyo1  
+##### 197#       发表于 2020-8-14 19:24
+
+
+
+
+支持，毕竟这样以后充值可以便宜点
+
+—— 来自 meizu 17, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 198#       发表于 2020-8-14 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430858&amp;ptid=1954625" target="_blank">aruruu 发表于 2020-8-14 19:06</a>
+
+我为资本家说了什么好话你倒是指出来啊从始至终好像只要你在给资本家辩解吧，反过来恶人先告状？
+
+ ...</blockquote>
+经典“XX不是东西，但XX更不是东西”
+
+你不会真以为自己是客观党吧，别恶心我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhouaa  
+##### 199#       发表于 2020-8-14 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是不明白了，这个事情有这么难捋清吗，俩狗互撕，望狗斗的等着拿好处不就完了吗？
+
+脑袋是有多单线条，必须选一边站，加入狗斗中？
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 200#       发表于 2020-8-14 19:39
+
+
+
+
+狗斗本身也是一种乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  来看你  
+##### 201#       发表于 2020-8-14 19:41
+
+
+
+
+拳打谷歌 脚踢苹果~头撞微软~---------------------------------猪撞树上了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aruruu  
+##### 202#       发表于 2020-8-14 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48431074&amp;ptid=1954625" target="_blank">龙爪 发表于 2020-8-14 19:28</a>
+经典“XX不是东西，但XX更不是东西”
+
+你不会真以为自己是客观党吧，别恶心我了
+
+ ...</blockquote>
+这么主观的话你能理解成客观？是不是因为世界上最好的epic被侮辱急火攻心丧失判断了？我这算客观，楼上楼下那么多“两边都不是好东西”的算什么？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  裤袜大落  
+##### 203#       发表于 2020-8-14 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这贴里不少猪撒欢找树呢
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 204#       发表于 2020-8-14 19:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">EPIC馋水果和谷狗的用户资源又不愿给好处费，E孝子整的像EPIC为民请命一样
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 205#       发表于 2020-8-14 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48427299&amp;ptid=1954625" target="_blank">hentianwuya 发表于 2020-8-14 13:54</a>
+
+EPIC这布局是早就开始了吧，疯狂送游戏讨好玩家，自己平台只收12%讨好开发者，在舆论上已几乎立于不败之地 ...</blockquote>
+斯国矣<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  结夜野棠.  
+##### 206#       发表于 2020-8-14 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430510&amp;ptid=1954625" target="_blank">hshiki 发表于 2020-8-14 18:31</a>
+epic为什么现在才行动，赶上什么良辰吉日了吗？</blockquote>
+最近美国国会正在对几家大公司进行垄断听证，有 谷歌 苹果 脸书 亚马逊
+苹果谷歌不太想在这个当口把事情闹大
+
+
+
+
+
+                                           
