@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-14 20:17** 
+> ## **本文件最后更新于2020-08-14 22:21** 
 
 
 
@@ -4026,4 +4026,298 @@ epic为什么现在才行动，赶上什么良辰吉日了吗？</blockquote>
 
 
 
-                                           
+
+
+-----
+
+####  病从口入  
+##### 207#       发表于 2020-8-14 20:22
+
+
+
+
+"我就是要让google和apple多收我30%的钱。"?
+我巴不得所有平台都免费，不管他收费合不合理，资本之间狗咬狗，我一无产要战队肯定也要自己有利这一边。
+
+
+
+
+
+
+
+-----
+
+####  bfogda  
+##### 208#       发表于 2020-8-14 20:22
+
+
+
+
+20%off了啊
+
+这算是让利给玩家了吧
+
+
+
+
+
+
+
+-----
+
+####  zikimi  
+##### 209#       发表于 2020-8-14 20:27
+
+
+
+ 本帖最后由 zikimi 于 2020-8-14 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430987&amp;ptid=1954625" target="_blank">tillnight 发表于 2020-8-14 19:20</a>
+
+啧啧，你先扣杠精帽子的孝子也敢出来说别人扣帽子，不愧是崇拜苹果税，Google Play就是好的大孝子。
+
+你个 ...</blockquote>
+如果你在iOS端消费，如果在app store你向苹果申请退款并且成功，iOS会全额退款，包括抽走的佣金，但是坑的一点是不会告诉你退的是哪一笔，目前网上出现的所谓报道苹果不退佣金的都是消费者找到腾讯 b站这类公司，他们当然不会退给消费者30%抽成，这时再去找苹果要那30%当然也是不会给了，特别是一些是走的未成年退款渠道而并非是app store退款的游戏公司因为国家规定必须全额退款这点则会因此吃亏
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 210#       发表于 2020-8-14 20:58
+
+
+
+
+帝国主义狗咬狗，互联网垄断不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  beater  
+##### 211#       发表于 2020-8-14 21:13
+
+
+
+
+不知道是EPIC干了什么丧尽天良的事，还是苹果在某些人心中有多么伟光正的形象，
+
+EPIC发起资本竞争，输赢都让利玩家，有这等好事本来玩家看戏就好了。
+
+结果韭菜们争相站队，为只会剥削自己的资本争得不可开交，可以说是斯德哥尔摩综合症病友大型交流会了。
+
+
+更可笑的是楼里还高谈阔论抽成的合理性和正当性，一点没有意识到自己是这条剥削链的最下游。
+
+仿佛晚清青年大骂德意志帝国的**扩张，殊不知一战就算打赢了，青岛也不会还回到自己手上。
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 212#       发表于 2020-8-14 21:16
+
+
+
+ 本帖最后由 jy000129 于 2020-8-14 21:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48432719&amp;ptid=1954625" target="_blank">beater 发表于 2020-8-14 21:13</a>
+
+不知道是EPIC干了什么丧尽天良的事，还是苹果在某些人心中有多么伟光正的形象，
+
+EPIC发起资本竞争，输赢都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">例子有点爱讨论，换一个，德俄打波兰，你一个正常人会为德俄叫好吗
+
+
+
+
+
+
+
+-----
+
+####  beater  
+##### 213#       发表于 2020-8-14 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48432754&amp;ptid=1954625" target="_blank">jy000129 发表于 2020-8-14 21:16</a>
+
+日俄争东北你一个中国人会为他们叫好吗</blockquote>
+且不说你这比喻恰不恰当，那你说该怎么办呢？
+
+A. EPIC发起恶性竞争，坚决抵制EPIC，拥护传统平台
+
+B. 早看apple，google不顺眼了，撕，都可以撕
+
+C. 资本竞争看看就好了，有什么便宜能占记得告诉我
+
+D. 
+
+
+帮你排除一个“错误答案C”，D你自己写吧。
+
+
+
+
+
+
+
+
+-----
+
+####  spongec  
+##### 214#       发表于 2020-8-14 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430510&amp;ptid=1954625" target="_blank">hshiki 发表于 2020-8-14 18:31</a>
+epic为什么现在才行动，赶上什么良辰吉日了吗？</blockquote>
+堡垒之夜手机营收之前好像很不好看，吃鸡都打不过
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 215#       发表于 2020-8-14 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48432854&amp;ptid=1954625" target="_blank">beater 发表于 2020-8-14 21:26</a>
+
+且不说你这比喻恰不恰当，那你说该怎么办呢？
+
+A. EPIC发起恶性竞争，坚决抵制EPIC，拥护传统平台
+
+B. 早看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">便宜在哪里，E家给人许诺什么好处了么？
+
+
+本质资本家狗咬狗，给哪一方叫好都是傻瓜，搬凳子吃瓜才是正道
+
+
+
+
+
+
+
+-----
+
+####  beater  
+##### 216#       发表于 2020-8-14 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48433002&amp;ptid=1954625" target="_blank">jy000129 发表于 2020-8-14 21:39</a>
+
+便宜在哪里，E家给人许诺什么好处了么？
+
+
+本质资本家狗咬狗，给哪一方叫好都是傻瓜，搬凳子吃瓜才 ...</blockquote>
+那你还跟我说啥，是想让我编辑了你来发是吗？顺便，不是20%off了吗
+
+
+
+
+
+
+
+-----
+
+####  AsPIR1N  
+##### 217#       发表于 2020-8-14 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48433002&amp;ptid=1954625" target="_blank">jy000129 发表于 2020-8-14 21:39</a>
+
+便宜在哪里，E家给人许诺什么好处了么？
+
+
+本质资本家狗咬狗，给哪一方叫好都是傻瓜，搬凳子吃瓜才 ...</blockquote>
+E给免费游戏，充值还打折，苹果啥时候给你送东西了？
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 218#       发表于 2020-8-14 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48430987&amp;ptid=1954625" target="_blank">tillnight 发表于 2020-8-14 19:20</a>
+
+啧啧，你先扣杠精帽子的孝子也敢出来说别人扣帽子，不愧是崇拜苹果税，Google Play就是好的大孝子。
+
+你个 ...</blockquote>
+所以说没脑子就是没脑子
+
+
+我白纸黑字告诉你找苹果退款是不会有30%扣款的，自己不会用大脑思考为什么这次会要被扣，反过来说我崇拜苹果税？果然用这个词的完全无法沟通
+
+
+我随便说个常识性问题，消费者给了苹果100，苹果退了消费者100，苹果找商家要30，这30块在财务上怎么平账？苹果会给b站**吗？
+
+
+
+
+
+
+
+-----
+
+####  back57992  
+##### 219#       发表于 2020-8-14 22:15
+
+
+
+
+这，怎么告。？
+
+
+
+
+
+
+
+-----
+
+####  Лилия  
+##### 220#       发表于 2020-8-14 22:15
+
+
+
+
+吃瓜看戏不好吗，站队一点意思也没有啊
+
+—— 来自 Xiaomi Redmi K30 5G, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+                                          
