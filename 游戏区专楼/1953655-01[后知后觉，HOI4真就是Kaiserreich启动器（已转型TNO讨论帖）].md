@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-13 12:18** 
+> ## **本文件最后更新于2020-08-14 10:15** 
 
 
 
@@ -2125,4 +2125,294 @@ KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部
 
 
 
-                                              
+
+
+-----
+
+####  liu461  
+##### 106#       发表于 2020-8-13 12:19
+
+
+
+
+小黄是被勃艮第鸡农算计掉的 很正常健康情况不搭边嘛
+
+
+
+
+
+
+
+-----
+
+####  飞灾  
+##### 107#       发表于 2020-8-13 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413799&amp;ptid=1953655" target="_blank">bojanykc 发表于 2020-8-13 12:14</a>
+
+打八省上来直接往上冲，出事件直接干皖系，拿下安庆合肥就算赢，要看点运气
+
+
+  -- 来自 能看大图的 Stage1 ...</blockquote>
+emmmm
+
+原本想把民兵解散了出骑兵的，结果解散不了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+结果冲了两次腿短冲不过对面
+
+
+
+
+
+
+
+-----
+
+####  试制甲炮  
+##### 108#       发表于 2020-8-13 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48391935&amp;ptid=1953655" target="_blank">令和忍者 发表于 2020-8-11 12:37</a>
+
+中止无限制潜艇战让美国没有参战......第二次日德兰海战解除英国海上封锁.....还有西线正面打崩了英法联军 ...</blockquote>
+KR的起始设定本来就是都合的，毕竟一切要围绕IF 德国打赢了一战来转。别的不说，就算第二次日德兰海战打赢，同样也不能改变狱卒虽然攻击了看守，但是还是没法逃生的情况。
+
+
+
+
+
+
+
+-----
+
+####  试制甲炮  
+##### 109#       发表于 2020-8-13 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413268&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-13 11:33</a>
+
+搭车问一下：
+
+
+KR的烤馒头左派，打完八省联盟以后新皖系会来宣我，但是部队少还没兵工厂，要怎么扛过去?</blockquote>
+打陈调元，我觉得主要还是得指望张天师或者带诗人背刺...毕竟皖系本来就强不说，很多时候鬼子还不识趣地掺和一脚。
+
+
+
+
+
+
+
+-----
+
+####  试制甲炮  
+##### 110#       发表于 2020-8-13 12:50
+
+
+
+ 本帖最后由 试制甲炮 于 2020-8-13 13:25 编辑 
+
+KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英国的带护国公不说，法国的雅克多里奥特是OTL的法奸，理论上来说接近于本位面法共的雅各宾派的几位：马塞尔.加香、多列士还有杜克洛在OTL评价都还不错，但是36年开局选举选雅各宾派就是要塞一个OTL的转向者，法奸——马塞尔德亚做国家元首。
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 111#       发表于 2020-8-13 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-08-13 12:50:08</a>
+KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英 ...</blockquote>只能说洋人对红色革命态度还是那样，白劳德这种屑能被叫做美国教员，MD<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+文明还得看社民壬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ティグル  
+##### 112#       发表于 2020-8-13 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
+
+KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英 ...</blockquote>
+kr的工团基于新社，不奇怪
+
+
+
+
+
+
+
+-----
+
+####  约翰里德  
+##### 113#       发表于 2020-8-13 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
+KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英 ...</blockquote>
+在打破枷锁的路上肯定是有些不和谐音的，但是英法的同志们再怎么动乱，都还有我们CSA来依靠<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 114#       发表于 2020-8-13 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414471&amp;ptid=1953655" target="_blank">约翰里德 发表于 2020-8-13 13:09</a>
+
+在打破枷锁的路上肯定是有些不和谐音的，但是英法的同志们再怎么动乱，都还有我们CSA来依靠 ...</blockquote>
+打完内战你就没了！
+
+马上白劳德就来横夺你的胜利果实！
+
+
+
+
+
+
+
+-----
+
+####  试制甲炮  
+##### 115#       发表于 2020-8-13 13:36
+
+
+
+
+而TNO这方面其实可能还好点，DSR在正式版里头基本删了，毕竟那几位DSR的领导人本位面的表现还是挺值得称赞的。其他的虽然有些暴虐的人，但是总的来说并不是特别魔怔。尤其是考虑到TNO世界线变动的起因就在于在二十年代的斗争中，布哈林把斯大林干了下去，按照布哈林的路线导致苏联工业化失败。布哈林的失败导致富兰克林罗斯福在32年未能选上总统（因为他那套和苏联接近，而苏联搞砸了，所以根本没人信他这套），36年上台的约翰肯尼迪他爹不行。最终导致辣脆横冲直撞的时候，两个抑止力代行人米国和苏联都没能起到本位面的作用。
+
+
+
+
+
+
+
+-----
+
+####  飞灾  
+##### 116#       发表于 2020-8-13 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414009&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:31</a>
+
+打陈调元，我觉得主要还是得指望张天师或者带诗人背刺...毕竟皖系本来就强不说，很多时候鬼子还不识趣地 ...</blockquote>
+所以说SL大法还是必要的？
+
+
+
+
+
+
+
+-----
+
+####  飞灾  
+##### 117#       发表于 2020-8-13 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414206&amp;ptid=1953655" target="_blank">试制甲炮 发表于 2020-8-13 12:50</a>
+
+KR不知道是制作组的恶趣味还是有意如此，给几个主要的工团国家塞了一些奇奇怪怪的领导人。意大利的领袖，英 ...</blockquote>
+那么中国这边要玩工团的话要选哪个势力开局？
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 118#       发表于 2020-8-13 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48417279&amp;ptid=1953655" target="_blank">飞灾 发表于 2020-8-13 16:34</a>
+
+那么中国这边要玩工团的话要选哪个势力开局？</blockquote>
+南边的八省，等汪**上岸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞灾  
+##### 119#       发表于 2020-8-14 07:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48417864&amp;ptid=1953655" target="_blank">modedd 发表于 2020-8-13 17:28</a>
+南边的八省，等汪**上岸</blockquote>
+汪不是激进民生派吗？然后怎么转到工团去？
+
+
+
+
+
+
+
+-----
+
+####  一夜秋风袭锦城  
+##### 120#       发表于 2020-8-14 08:36
+
+
+
+
+白劳德在kr里也是屑啊，排除异己打击政敌解散GH还搞无选举，说他是美国教员属实乳教员<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 121#       发表于 2020-8-14 08:42
+
+
+
+
+据日志里说如果左翼KMT失败了，两广也有机会左转成红色，但开了两局都没打出来，是有什么特殊条件么？
+
+
+
+
+
+                                             
