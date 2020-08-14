@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-11 10:15** 
+> ## **本文件最后更新于2020-08-15 00:14** 
 
 
 
@@ -1098,7 +1098,7 @@ LS那个
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
 
 抹-17809.txt
-(130 Bytes, 下载次数: 289)
+(130 Bytes, 下载次数: 353)
 
 
 
@@ -1908,7 +1908,7 @@ CXXXX是卡牌的序号，可以对照日服wiki看，下自己喜欢的部分
 
 
 
-125 Bytes, 下载次数: 57
+125 Bytes, 下载次数: 105
 
 
 
@@ -2264,4 +2264,397 @@ cg没弄懂规则</blockquote>
 
 
 
-                                              
+
+
+-----
+
+####  yuugi  
+##### 103#       发表于 2020-8-11 10:36
+
+
+
+ 本帖最后由 yuugi 于 2020-8-11 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48386241&amp;ptid=1953706" target="_blank">ロラン・ローラ 发表于 2020-8-10 21:19</a>
+
+好的，看来我只能把以前下的RPGX翻出来比对了</blockquote>
+怎么说呢，可能想复杂了，自接点开就行了，打不开可能是因浏览器权限或版本
+
+
+刚换了地方，火狐Chrome自接看，IEedge无效，
+
+
+文件夹的help文件说要设快捷方式
+
+Chrome打不开可以试试
+
+Add to the end of Target:
+
+--allow-file-access-from-files
+
+
+
+
+
+
+
+
+-----
+
+####  小呛水  
+##### 104#       发表于 2020-8-11 11:06
+
+
+
+
+温暖人心
+
+
+
+
+
+
+
+-----
+
+####  らくくん  
+##### 105#       发表于 2020-8-11 11:30
+
+
+
+
+好人一生平安
+
+
+
+
+
+
+
+-----
+
+####  ロラン・ローラ  
+##### 106#       发表于 2020-8-11 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48390712&amp;ptid=1953706" target="_blank">yuugi 发表于 2020-8-11 10:36</a>
+
+怎么说呢，可能想复杂了，自接点开就行了，打不开可能是因浏览器权限或版本
+
+
+刚换了地方，火狐Chrome自接 ...</blockquote>
+感谢
+
+我刚刚也试出了一个办法，先打开 新 剧情查看\【RPGX剧情向离线版】基础文件【Windows 7以上 64位版】【密码：1308667993】\Taimanin RPGX viewer (Windows7 64 bit) 里的 Taimanin RPGX viewer.exe
+
+然后把 新 CG查看 里的Taimanin RPGX Viewer.html拖放进窗口即可
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 107#       发表于 2020-8-11 14:13
+
+
+
+
+下了mega盘的那个，打开直接就是64页的回顾模式，就是这样的吗？一点剧情都没得看的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  trb315  
+##### 108#       发表于 2020-8-11 16:35
+
+
+
+
+推荐玩手游对魔忍<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kabine  
+##### 109#       发表于 2020-8-11 18:47
+
+
+
+
+10241024<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  大暴死  
+##### 110#       发表于 2020-8-11 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人间自有温情在，鸡儿翘首盼春来
+
+—— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pencilnoo  
+##### 111#       发表于 2020-8-11 23:12
+
+
+
+
+对魔忍手游viewer我还以为都知道呢，我记得很多年前科普过一波的
+
+之前还一直等国内人更新，后来找到4chan的总部，直接0day了
+
+4chan的帖子基本每个月要关闭一次重新开新楼，有专人负责不定时更新新卡
+
+最早那个taba在19年已经完结了，一共1018个scene
+
+rpgx更新到7月31号
+
+至于英化汉化，我觉得就没这个必要了吧，纯粹的拔作没啥剧情，那些h词汇还是看日文才带感
+
+
+
+
+
+
+
+-----
+
+####  ロラン・ローラ  
+##### 112#       发表于 2020-8-12 01:50
+
+
+
+[https://pastebin.com/Fvn6Bx7u](https://pastebin.com/Fvn6Bx7u)
+
+谢谢楼上指路
+
+
+
+
+
+
+
+-----
+
+####  madcow  
+##### 113#       发表于 2020-8-12 09:19
+
+
+
+
+那么RPGX的离线要在哪搞呢，之前下过一版不过好像没竞技场的方便（？）
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 114#       发表于 2020-8-12 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48392747&amp;ptid=1953706" target="_blank">胡桃丶 发表于 2020-8-11 14:13</a>
+
+下了mega盘的那个，打开直接就是64页的回顾模式，就是这样的吗？一点剧情都没得看的嘛 ...</blockquote>
+你游戏也是这个味的啊，一个拔作页游你还想要啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也就是主角是风魔，时子是你亲信这种感觉的设定之类的
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 115#       发表于 2020-8-12 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48397708&amp;ptid=1953706" target="_blank">pencilnoo 发表于 2020-8-11 23:12</a>
+
+对魔忍手游viewer我还以为都知道呢，我记得很多年前科普过一波的
+
+之前还一直等国内人更新，后来找到4chan的 ...</blockquote>
+那rpgx在哪找最新更新呢，4chan直接搜rpgx吗？
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 116#       发表于 2020-8-12 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48400647&amp;ptid=1953706" target="_blank">modedd 发表于 2020-8-12 10:08</a>
+
+你游戏也是这个味的啊，一个拔作页游你还想要啥
+
+也就是主角是风魔，时子是你亲信这种感觉的设定之 ...</blockquote>
+主要是，对对魔忍的设定不是特别熟悉，也就认识几个前几作单机出场过的人物，稍微扫了下回忆发现好多不认识的角色，一点人物关系都不了上来就硬上总觉得有点奇怪，看来还得配合wiki了解人物设定玩才是完全体了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 117#       发表于 2020-8-12 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48401885&amp;ptid=1953706" target="_blank">胡桃丶 发表于 2020-8-12 12:04</a>
+
+主要是，对对魔忍的设定不是特别熟悉，也就认识几个前几作单机出场过的人物，稍微扫了下回忆发现好多不认 ...</blockquote>
+很多角色就是在剧情里也没登场的，她们的剧情就是HS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  爱吃豆包  
+##### 118#       发表于 2020-8-12 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48400675&amp;ptid=1953706" target="_blank">modedd 发表于 2020-8-12 10:10</a>
+那rpgx在哪找最新更新呢，4chan直接搜rpgx吗？</blockquote>
+魂加常年有人更新的，不过现在不让注册了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 119#       发表于 2020-8-12 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48403919&amp;ptid=1953706" target="_blank">爱吃豆包 发表于 2020-8-12 15:36</a>
+
+魂加常年有人更新的，不过现在不让注册了</blockquote>
+我南+到是有号，只是最近的更新炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 120#       发表于 2020-8-14 07:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48401974&amp;ptid=1953706" target="_blank"> modedd 发表于 2020-8-12 12:12</a> 引用:胡桃丶 发表于 2020-8-12 12:04 主要是，对对魔忍的设定不是特别熟悉，也就认识几个前几作单机出场过的人物，稍微扫了下回忆发现好多不认 ... 很多角色就是在剧情里也没登场的，她们的剧情就是HS </blockquote>
+竟然是这样<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  pencilnoo  
+##### 121#       发表于 2020-8-14 23:38
+
+
+
+ 本帖最后由 pencilnoo 于 2020-8-14 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48400675&amp;ptid=1953706" target="_blank">modedd 发表于 2020-8-11 22:10</a>
+
+那rpgx在哪找最新更新呢，4chan直接搜rpgx吗？</blockquote>
+我楼下的同学已经找到了
+
+你直接收藏这个地址
+[https://pastebin.com/Fvn6Bx7u](https://pastebin.com/Fvn6Bx7u)
+
+第一个是taba，已经完结撒花
+
+第二个是rpgx，进去之后有个rpgx h scene的文件夹，里面就是不定时发布的更新包，按时间排列
+
+想看4chan的讨论贴的话，搜taimanin general, 可能会搜到旧专贴，找到最下面会有人给出新帖链接，一个一个找下去最后就是新帖
+
+最新的是8月14日新建的楼：[https://boards.4chan.org/h/thread/5904699#p5904699](https://boards.4chan.org/h/thread/5904699#p5904699)
+
+帖子的好处是经常有人分享drama
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 炙热之狐| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+                                             
