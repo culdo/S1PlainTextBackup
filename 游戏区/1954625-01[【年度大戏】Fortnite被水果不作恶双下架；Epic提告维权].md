@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-14 22:21** 
+> ## **本文件最后更新于2020-08-15 10:14** 
 
 
 
@@ -744,6 +744,25 @@ Eplc：我决定自己做手机
 
 这epic真把人当弱智呢？
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tillnight|-2|太弱智了|
+
+
+
+查看全部评分
 
 
 
@@ -4320,4 +4339,540 @@ E给免费游戏，充值还打折，苹果啥时候给你送东西了？
 
 
 
-                                          
+
+
+-----
+
+####  tillnight  
+##### 221#       发表于 2020-8-14 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48433438&amp;ptid=1954625" target="_blank">Scythe 发表于 2020-8-14 22:11</a>
+
+所以说没脑子就是没脑子
+
+
+我白纸黑字告诉你找苹果退款是不会有30%扣款的，自己不会用大脑思考为什么这次 ...</blockquote>
+果然脑残大孝子，从到到尾就是死死纠缠别人一说苹果税就浑身不舒服，呵呵，苹果税苹果税苹果税苹果税苹果税。
+
+苹果收了税拒绝按照国家法律规定向未成年人退款，以自己优势地位借口自身退款程序规定拒绝向垫付全额退款的服务提供者结算<strong>苹果税苹果税苹果税苹果税苹果税</strong>退款，强制把国家法律规定的义务转嫁给弱势一方，从被撤销的合同中继续赚取不应当收取的苹果税。好一个公正合理的苹果税，中国APP市场要是Google Play一统天下该多好，大孝子们就可以让大家一起交苹果税苹果税苹果税苹果税谷歌税谷歌税谷歌税谷歌税。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Tissuesea|-1|没道理呢|
+| JonnyGreenwood|-2|太弱智了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  来看你  
+##### 222#       发表于 2020-8-14 22:55
+
+
+
+
+又骂谷歌又骂苹果 建议不用手机
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 223#       发表于 2020-8-14 22:59
+
+
+
+
+真是笑傻了，在国家明确规定平台和服务者都有义务应请求向未成年人超过正常范围的消费全额退款的情况下，苹果借自身优势地位，以退款程序为由拒绝向依法向消费者全额退款的服务提供者结算苹果税。经典的霸道行为能给苹果税拥护者洗成你没走正规退款途径你活该，我苹果规范的很。搁这薅法律羊毛呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 224#       发表于 2020-8-14 23:02
+
+
+
+
+龟龟，这也能大战个七八页，
+
+我是支持渠道收费的，至少可以让本懒狗用的更舒服一点
+
+当然30%确实是一个不小的数字，但是你没议价权也没啥办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  体质的错  
+##### 225#       发表于 2020-8-14 23:02
+
+
+
+
+希望最后每家接到10亿罚单，App Store剥离内置，运营部门分拆<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 226#       发表于 2020-8-14 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48433943&amp;ptid=1954625" target="_blank">tillnight 发表于 2020-8-14 22:48</a>
+
+果然脑残大孝子，从到到尾就是死死纠缠别人一说苹果税就浑身不舒服，呵呵，苹果税苹果税苹果税苹果税苹果 ...</blockquote>
+太弱智了，你真以为你说苹果税那就真的是税？你不知道外企在国内是根本不敢偷税的？你不知道这30%不退给消费者，这30%的收入是没法合法入账的？就算你想入账，发 票开给谁？税点怎么扣？
+
+
+既没接触过外企，也没接触过税务
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 227#       发表于 2020-8-15 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有一说一 抽30%也有服务方面的考量，Google Pay和苹果的支付渠道，还有Steam稳定和Steamworks都是他们有底气和小厂开口要30%的理由之一
+
+你够牛逼你可以学Minecraft啊
+
+
+
+
+
+
+
+-----
+
+####  林无德  
+##### 228#       发表于 2020-8-15 02:06
+
+
+
+
+怎么这种吃瓜就行了的新闻贴还能干起来啊？
+
+这样一看米卫兵位于歧视链底层真是冤啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 229#         楼主| 发表于 2020-8-15 02:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48435210&amp;ptid=1954625" target="_blank">qianoooo 发表于 2020-8-15 01:11</a>
+
+有一说一 抽30%也有服务方面的考量，Google Pay和苹果的支付渠道，还有Steam稳定和Steamworks都是他 ...</blockquote>
+支付成本占到整个交易的30%，我觉得这个是说不通的
+
+
+现实中也没有那个支付系统会charge这么高的交易费
+
+google和水果更多charge的是买路钱，不是因为他们路修的好，而是不交钱就不让你过
+
+
+
+
+
+
+
+-----
+
+####  benderama27  
+##### 230#       发表于 2020-8-15 02:08
+
+
+
+
+推特趋势挂一天了，这波广告至少是成功了
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 231#         楼主| 发表于 2020-8-15 03:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48435506&amp;ptid=1954625" target="_blank">benderama27 发表于 2020-8-15 02:08</a>
+
+推特趋势挂一天了，这波广告至少是成功了</blockquote>
+一觉起来8页了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ssd  
+##### 232#       发表于 2020-8-15 03:25
+
+
+
+
+好，干他妈的苹果 jb商店害老子氪金被多收费 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  セト  
+##### 233#       发表于 2020-8-15 04:23
+
+
+
+
+苹果等渠道30%抽成本来就是标准的垄断结果
+
+你不能说小平台也跟着做就不是垄断
+
+不管是苹果还是STEAM本身提供的服务与30%的抽成就风马牛不相及 算上成本、专利都差得远
+
+这也能洗的话 那以前被判垄断的企业都是冤大头了
+
+
+
+
+
+
+
+-----
+
+####  hujingjing  
+##### 234#       发表于 2020-8-15 07:15
+
+
+
+ 本帖最后由 hujingjing 于 2020-8-15 07:38 编辑 
+
+我一直觉得这个行业标准就挺流氓的，苹果因为安装app的封闭性显得更刺眼，安卓手机好歹你弄个apk也能装，不过按照普通人使用的习惯，还是得去找各种商店渠道，一样的命运还是被抽，谷歌躺着靠googleplay也赚的挺爽，不觉得epic能搞赢，这两家太有钱了，多花几亿去赞助打官司估计都愿意，商业竞争就是流氓互殴，垄断了就真的为所欲为，真的也就微信这种体量的流氓能不落下风，反正我是觉得无差别30%太高，降低点还稍微合理点
+
+
+可能这个比方有点不太对，假如一个国家强制只搞了一个银行，垄断无敌，存取转账都能收30%手续费，你也不能说这个标准就合理了
+
+
+我突然想到，为啥同样是苹果的机器，mac怎么就不封闭起来，全部软件强制走appstore，全部抽一笔30%？我感觉还是垄断实力不到位啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，好歹普通用户装个软件去软件官网弄个dmg也能用，只能说桌面系统有微软作为标杆，诞生之初就是开放的，苹果想垄断，估计mac用户和厂商也不同意
+
+
+
+
+
+
+
+-----
+
+####  红夜殇雨  
+##### 235#       发表于 2020-8-15 07:54
+
+
+
+<blockquote>林无德 发表于 2020-8-15 02:06
+怎么这种吃瓜就行了的新闻贴还能干起来啊？
+
+
+这样一看米卫兵位于歧视链底层真是冤啊</blockquote>
+趁乱洗卫兵
+
+
+
+
+
+
+
+-----
+
+####  lemon鱿鱼  
+##### 236#       发表于 2020-8-15 07:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436005&amp;ptid=1954625" target="_blank">hujingjing 发表于 2020-8-15 07:15</a>
+
+我一直觉得这个行业标准就挺流氓的，苹果因为安装app的封闭性显得更刺眼，安卓手机好歹你弄个apk也能装，不 ...</blockquote>
+因为mac是创造软件的地方，想封闭做不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你以为tim apple不想封闭？
+
+
+
+
+
+
+
+-----
+
+####  nekoeco  
+##### 237#       发表于 2020-8-15 08:05
+
+
+
+<blockquote>hujingjing 发表于 2020-8-15 07:15
+我一直觉得这个行业标准就挺流氓的，苹果因为安装app的封闭性显得更刺眼，安卓手机好歹你弄个apk也能装，不 ...</blockquote>
+你在游戏区说手机平台封闭性是不是搞错了什么，再封闭还能超过主机？
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 238#         楼主| 发表于 2020-8-15 08:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436005&amp;ptid=1954625" target="_blank">hujingjing 发表于 2020-8-15 07:15</a>
+
+我一直觉得这个行业标准就挺流氓的，苹果因为安装app的封闭性显得更刺眼，安卓手机好歹你弄个apk也能装，不 ...</blockquote>
+mac在appstore出现之前就存在了
+
+
+appstore是iphone之后的事情了，是妥妥的乔布斯的发明
+
+
+
+
+
+
+
+-----
+
+####  Finsty  
+##### 239#       发表于 2020-8-15 09:00
+
+
+
+
+你们恨不恨苹果税我不知道，我觉得骑空士还是很恨的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  巨魔已被忠诚  
+##### 240#       发表于 2020-8-15 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48435818&amp;ptid=1954625" target="_blank">セト 发表于 2020-8-15 04:23</a>
+
+苹果等渠道30%抽成本来就是标准的垄断结果
+
+你不能说小平台也跟着做就不是垄断
+
+不管是苹果还是STEAM本身提供 ...</blockquote>
+?
+
+steam的社区，工坊，电子分发，还有CDN怎么就不值了。
+
+用壁纸引擎当网盘的比百度好不知道多少倍……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YuKin  
+##### 241#       发表于 2020-8-15 09:12
+
+
+
+
+前几天就看到这新闻了，然而EPIC给我的感觉是故意搞事情。
+
+至于30%高不高我是无所谓的，如果是降了这个30%，Store提供的服务能完全一样，而APP内氪金能更便宜自然很好，不能的话又有什么所谓呢。
+
+
+
+
+
+
+
+-----
+
+####  mcq_2  
+##### 242#       发表于 2020-8-15 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你们真是闲得慌
+
+
+
+
+
+
+
+-----
+
+####  林无德  
+##### 243#       发表于 2020-8-15 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436087&amp;ptid=1954625" target="_blank">红夜殇雨 发表于 2020-08-15 07:54:59</a>
+趁乱洗卫兵</blockquote>你真是慧眼如炬，这都被你看出来了，太强了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  九味小吃  
+##### 244#       发表于 2020-8-15 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436169&amp;ptid=1954625" target="_blank">mimighost 发表于 2020-8-15 08:16</a>
+mac在appstore出现之前就存在了
+
+
+appstore是iphone之后的事情了，是妥妥的乔布斯的发明 ...</blockquote>
+诺基亚的Ovi Store比苹果的App Store诞生的更早吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 245#         楼主| 发表于 2020-8-15 09:29
+
+
+
+
+现在国外主流的舆论是
+
+
+Fuck Apple
+
+Fuck Google
+
+Fuck Epic Games Tooo
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mimighost  
+##### 246#         楼主| 发表于 2020-8-15 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436543&amp;ptid=1954625" target="_blank">九味小吃 发表于 2020-8-15 09:29</a>
+
+诺基亚的Ovi Store比苹果的App Store诞生的更早吧
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next- ...</blockquote>
+我指的是appstore在果机上面
+
+
+塞班当时平台并没有这么封闭吧
+
+
+毕竟还有天国的JavaME呢
+
+
+
+
+
+                                         
