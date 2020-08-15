@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-08 20:03** 
+> ## **本文件最后更新于2020-08-15 12:03** 
 
 
 
@@ -281,7 +281,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 84)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 90)
 
 下载附件
 
@@ -5275,7 +5275,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_An4nL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_oS2o6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6072,7 +6072,15 @@ pro居然还支持hdmi输入，不过价格买个ninjav绰绰有余，慢着这�
 ####  rbf1993  
 ##### 325#       发表于 2020-2-25 09:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46516566&amp;ptid=1915171" target="_blank">行星减速器mk4 发表于 2020-2-25 03:46</a>
+还是国内厂商的堆料太可怕了，lddr4x和ufs2.1在酷安被抓着喷，甚至以为ufs2.1开软件都要十八年一样，固有成 ...</blockquote>
+不是国内厂商堆料太可怕，而是脑残小学生和水军太多，在他们嘴里，如果他们手上的手机是4500mah，你的是4490mah，他们也会说你的手机续航尿崩，他们的续航两天无压力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -19327,14 +19335,7 @@ creator mode 自动就行了，不见得说更讨喜，但 ...</blockquote>
 ####  李小淘  
 ##### 973#       发表于 2020-8-3 10:10
 
-
-
-
-不好说，不好说，<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -19681,4 +19682,617 @@ ZACKBUKS  8月7日 16:32 来自 微博 weibo.com
 
 
 
-                
+
+
+-----
+
+####  hoyice  
+##### 992#       发表于 2020-8-8 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">能像港行半斤那时一样交朋友吗？
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 993#       发表于 2020-8-9 01:16
+
+
+
+
+对X5不满意的一点就是过于“保值”……到现在港版价格都没有崩到合适水准。
+
+5G高耗电又不适合索移这些小电池机器（4000mah在5G面前真的就是水花），5G换降价百分百乐意啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  アーチェ  
+##### 994#       发表于 2020-8-9 13:03
+
+
+
+
+双十一能有优惠么？
+
+
+----发送自 [HUAWEI PCT-AL10,Android 10](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  8400gs  
+##### 995#       发表于 2020-8-9 13:35
+
+
+
+
+只要跳水幅度够大，5G没有我完全无所谓啊……
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 996#       发表于 2020-8-9 14:39
+
+
+
+
+跳水多的想多了，看看香港外的国外多少钱
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 997#       发表于 2020-8-9 17:25
+
+
+
+
+想多了 1都还要4500…
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 998#       发表于 2020-8-9 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">内存？国行还能整个12G的版本不成
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Frimp  
+##### 999#       发表于 2020-8-9 19:27
+
+
+
+
+港版不是能用电信和联通的5g吗
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1000#       发表于 2020-8-9 19:57
+
+
+
+<blockquote>引用第998楼Frimp于2020-08-09 19:27发表的  :
+
+港版不是能用电信和联通的5g吗</blockquote>
+会有点不稳，加上大部分还是移动卡 。
+
+
+其实就现在5G的覆盖 …根本无所谓了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  christianlzl  
+##### 1001#       发表于 2020-8-9 23:24
+
+
+
+
+前几天刚更新系统的时候，移动卡显示了一小会的5G，是有希望支持吗？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1002#       发表于 2020-8-9 23:48
+
+
+
+<blockquote>引用第1000楼christianlzl于2020-08-09 23:24发表的  :
+
+前几天刚更新系统的时候，移动卡显示了一小会的5G，是有希望支持吗？—— 来自 Sony XQ-AT5......</blockquote>
+其实一直都有 看当地用的频段， 港版就是频段不全。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1003#       发表于 2020-8-10 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48373971&amp;ptid=1915171" target="_blank">christianlzl 发表于 2020-8-9 23:24</a>
+前几天刚更新系统的时候，移动卡显示了一小会的5G，是有希望支持吗？
+
+—— 来自 Sony XQ-AT52, Android 10 ...</blockquote>
+支持移动5G部分频段，但是因为港版系统不会对移动做针对性适配，所以属于不完美支持……
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  christianlzl  
+##### 1004#       发表于 2020-8-10 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48374593&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-8-10 00:03</a>
+支持移动5G部分频段，但是因为港版系统不会对移动做针对性适配，所以属于不完美支持……
+
+—— 来自 Sony ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">随意了，需求也不是很大
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zatsuza  
+##### 1005#       发表于 2020-8-13 12:19
+
+
+
+
+上车太晚了，今天才换的机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+发现浏览网页时上下拖动松手会摇摆一下，鹅球尤其明显，是不是这个触屏有什么问题
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1006#       发表于 2020-8-13 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48413862&amp;ptid=1915171" target="_blank">zatsuza 发表于 2020-8-13 12:19</a>
+上车太晚了，今天才换的机
+
+发现浏览网页时上下拖动松手会摇摆一下，鹅球尤其明显，是不是这个触屏 ...</blockquote>
+至少我没这个问题……所以不排除你硬件中奖的可能<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 1007#       发表于 2020-8-13 13:47
+
+
+
+
+x1换mk2肯定很蠢吧 
+
+下次一定.jpg
+
+
+
+
+
+
+
+-----
+
+####  zatsuza  
+##### 1008#       发表于 2020-8-13 14:06
+
+
+
+ 本帖最后由 zatsuza 于 2020-8-13 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48414553&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-8-13 13:16</a>
+
+至少我没这个问题……所以不排除你硬件中奖的可能
+
+
+—— 来自 Sony J9210, Android 10上的 S1Next ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202008/13/140942u8zwj1fqk8lxcf1u.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200813-140319.png</strong> (32.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-13 14:09 上传
+
+
+
+
+
+
+确实用服务菜单测试发现，抬手时都会稍微带到一点
+
+图里是用右手测试的，每次都有个倒勾，左手测试就是往左勾，不知道贴个膜会不会好点
+
+
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1009#       发表于 2020-8-13 16:41
+
+
+
+<blockquote>黑糖花园 发表于 2020-8-13 13:47
+x1换mk2肯定很蠢吧 
+
+下次一定.jpg</blockquote>
+如果拍照比较频繁，Mk2 的相机体验相比 1 的糟糕表现，是质的飞跃。应该说 Mk2 是过去十年我用过的 Xperia 里相机启动、对焦、保存速度最快的，不说屏幕回放和相机成像效果也是肉眼可见进步。
+
+我现在出门都不带黑卡了。
+
+
+如果不怎么拍照，那也许不用升级
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 1010#         楼主| 发表于 2020-8-13 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48415222&amp;ptid=1915171" target="_blank">zatsuza 发表于 2020-08-13 14:06:15</a>
+v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优化有点问题吧，其他手机对于实际上这么小的滑动，大概都认为是点击啦
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zatsuza  
+##### 1011#       发表于 2020-8-13 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48417463&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-8-13 16:50</a>
+这个感觉谁划都会带勾的，感觉是索尼触摸优化有点问题吧，其他手机对于实际上这么小的滑动，大概都认为是点 ...</blockquote>
+不会耶，我手里其他手机都没有这个现象包括触摸最拉跨的essential phone
+
+—— 来自 Realme RMX1901, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1012#       发表于 2020-8-14 01:03
+
+
+
+ 本帖最后由 我很费纸 于 2020-8-14 01:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48415222&amp;ptid=1915171" target="_blank">zatsuza 发表于 2020-8-13 14:06</a>
+确实用服务菜单测试发现，抬手时都会稍微带到一点
+
+图里是用右手测试的，每次都有个倒勾，左手测试就是往左 ...</blockquote>
+我也测了下，似乎没有小勾问题……可能确实是硬件问题……这一代的品控不好说，至少我中过更惨的绿屏奖，甚至当时搜了一下发现有可能是全网唯一一例X5绿屏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不知道你系统版本多少，我是港行 9.21，如果版本不一致可以考虑一下刷个系统/重置系统看看会不会改善。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  zatsuza  
+##### 1013#       发表于 2020-8-14 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48422809&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-8-14 01:03</a>
+我也测了下，似乎没有小勾问题……可能确实是硬件问题……这一代的品控不好说，至少我中过更惨的绿屏奖， ...</blockquote>
+我是国行9.52，已经是最新了
+贴了张膜似乎改善了不少
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  zatsuza  
+##### 1014#       发表于 2020-8-14 10:14
+
+
+
+
+这颜色竟然调得跟LCD差不多，比x1还要寡淡，看惯了oppo的味精调色一时有点不适应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 1015#       发表于 2020-8-14 15:11
+
+
+
+
+所以标题里的X5M2在哪呢？
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 1016#       发表于 2020-8-14 15:12
+
+
+
+
+终于到手了，运了50天。
+现在是否安卓还不能控制应用不能被杀？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 1017#         楼主| 发表于 2020-8-14 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48428121&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2020-08-14 15:11:27</a>
+所以标题里的X5M2在哪呢？</blockquote>还没出，只有个别消息
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 1018#       发表于 2020-8-14 16:37
+
+
+
+
+第一次用这手势，有没办法返回只用右边，因为不少应用是拉左边拉出菜单
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 1019#       发表于 2020-8-15 00:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/15/003025p0la0zj5qonqaq0o.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200814-092214.png</strong> (438.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-15 00:30 上传
+
+
+
+
+
+
+有应用不支持这分辨率，怎么破
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 1020#       发表于 2020-8-15 00:36
+
+
+
+
+按电源键录屏也不见了？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1021#       发表于 2020-8-15 10:17
+
+
+
+ 本帖最后由 我很费纸 于 2020-8-15 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48434933&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-8-15 00:31</a>
+有应用不支持这分辨率，怎么破</blockquote>
+索尼没做强制拉伸模式，所以无解。
+
+录屏可以用游戏增强器。
+
+手势问题推荐把侧感打开，我喜欢侧感上滑进入单手模式，然后左侧拉菜单就很轻松，还不会促发左侧的滑动返回。或者老实换回三金刚，用侧感来解决滑动返回的需求。多利用侧感吧，侧感好歹能自定义，Android自带的手势自定义空间非常小。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+               

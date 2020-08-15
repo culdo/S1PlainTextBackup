@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-13 20:05** 
+> ## **本文件最后更新于2020-08-15 12:07** 
 
 
 
@@ -250,7 +250,7 @@
 <img src="https://img.saraba1st.com/forum/202007/18/115518c99cctz8w5xcxx5u.png" referrerpolicy="no-referrer">
 
 
-<strong>立ってね.png</strong> (589.13 KB, 下载次数: 1)
+<strong>立ってね.png</strong> (589.13 KB, 下载次数: 2)
 
 下载附件
 
@@ -289,7 +289,7 @@
 
 
 E49A60AC-4FDA-45A7-AF57-D008B09156B9.jpeg
-(181.73 KB, 下载次数: 0)
+(181.73 KB, 下载次数: 1)
 
 
 
@@ -15427,4 +15427,365 @@ apex鸽了，明天中午11点开了个新坑
 
 
 
-                   
+
+
+-----
+
+####  lightsuger  
+##### 911#       发表于 2020-8-13 20:08
+
+
+
+
+糖豆人适当播播还是不错的，阿夸玩的也还不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 912#       发表于 2020-8-13 20:11
+
+
+
+
+说实话不太行，这游戏挺容易腻的
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 913#       发表于 2020-8-13 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">很有节目效果也很适合夸宝的游戏啊，希望能多玩玩
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 914#       发表于 2020-8-13 21:09
+
+
+
+
+要发挥好企业文化带头人的作用。。。阿夸你需要引出新热点帮帮老木口
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 915#       发表于 2020-8-13 23:56
+
+
+
+
+播apex还能及时读sc内容？认知厨狂喜（全是500日元的anti
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 916#       发表于 2020-8-14 14:18
+
+
+
+ 本帖最后由 面具13 于 2020-8-14 15:09 编辑 
+
+这塞尔达看下来，感觉是真的傻<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+会飞的怪永远不用弹弓打，闪躲从来不用，炸弹浪费了很多个后才想起来先拿下来，解决过一次的情况再遇到的时候又想不起来。
+
+wiiu的手柄的摇杆似乎有问题，干脆买个pro手柄吧。
+
+
+
+终于看到用弹弓锁定打蝙蝠了。
+
+
+打boss为什么不用炸弹袋的炸弹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用了结果全浪费了，最后还是用的炸弹花。
+
+终于想起来盾是不是能防一下boss的反击，然后还是没有使用，靠走位躲了。第二次残血过了，但是看上去一点都不帅。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 917#       发表于 2020-8-14 15:26
+
+
+
+
+不就是要看的傻气四溢。。。如果是装的早就不看了
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 918#       发表于 2020-8-14 15:40
+
+
+
+
+现在刚好播完4/26，这要真完成这游戏要播到昏迷<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 919#       发表于 2020-8-14 15:41
+
+
+
+
+被鸡啄死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 920#       发表于 2020-8-14 17:00
+
+
+
+
+今天好持久啊，忙了一下午居然还在<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 921#       发表于 2020-8-14 18:03
+
+
+
+
+我撑不住了，等等平复了心情再回来看。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 922#       发表于 2020-8-14 18:08
+
+
+
+
+终于过了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 923#       发表于 2020-8-14 19:06
+
+
+
+
+晚上有几率播apex
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 924#       发表于 2020-8-14 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">播了七个小时了 感觉晚上有可能会休息
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 925#         楼主| 发表于 2020-8-14 22:29
+
+
+
+
+明天糖豆人吃鸡耐久，塞尔达应该也会播
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 926#       发表于 2020-8-14 23:50
+
+
+
+
+糖豆人好啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">就是别喊过头，毕竟还有个人live.
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 927#       发表于 2020-8-15 09:47
+
+
+
+
+太傻屌了，为什么会有约半数的人都不填地址的
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 928#       发表于 2020-8-15 10:51
+
+
+
+
+隔壁的都填了地址，crew半数不填，高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl，终于白金2了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 929#       发表于 2020-8-15 10:54
+
+
+
+ 本帖最后由 面具13 于 2020-8-15 11:04 编辑 
+
+跟同事聊了一晚上？不知道是不是向天龙她们取经去了。最近感觉应对sc更熟练了，而且好像是给红sc更多的关注，这个月确实收入也上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+奶油面包牛肉饭视频已经不再增长播放量了，这播放量可以算是订阅的每一个人都平均看了一遍吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 930#       发表于 2020-8-15 11:07
+
+
+
+
+最后读的话我记得我还拉出来统计过一两次，结论是低额和高额都有读，数量倒是差不多。感觉上低额一般是有兴趣或者大家复读祝贺开头那那个，高额不是开头也回，就算贴纸也会有一些对贴纸的描述<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 931#       发表于 2020-8-15 11:07
+
+
+
+ 本帖最后由 mengnvpu 于 2020-8-15 11:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个月收入主要还是因为JK耐久和2周年24小时吧，不过每次直播的平均SC的确是提高了，大概是买完周边这个月crew的手头又宽裕起来了
+
+
+
+
+
+                  
