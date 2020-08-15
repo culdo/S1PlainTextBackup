@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-15 12:07** 
+> ## **本文件最后更新于2020-08-16 04:05** 
 
 
 
@@ -15788,4 +15788,535 @@ syl，终于白金2了
 
 
 
-                  
+
+
+-----
+
+####  cvql  
+##### 932#       发表于 2020-8-15 16:07
+
+
+
+
+傻气的一天从阿夸解谜开始<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 933#       发表于 2020-8-15 16:17
+
+
+
+
+草，这条嘲讽sc<blockquote>You are the absolutely worst OoT Zelda player I have ever seen. Keep up the good work.</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 934#       发表于 2020-8-15 16:36
+
+
+
+
+七年前的牛奶草
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 935#       发表于 2020-8-15 16:43
+
+
+
+
+lsp光想着找和自己小时候定过结婚约定的女孩
+
+
+
+
+
+
+
+-----
+
+####  LilighT  
+##### 936#       发表于 2020-8-15 17:20
+
+
+
+
+忘记青梅竹马电话号，一股渣男感
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 937#       发表于 2020-8-15 19:49
+
+
+
+ 本帖最后由 贝伦二世 于 2020-8-15 19:51 编辑 
+
+我去，这玩意也能输
+还这么多命
+
+草，这血崩的拉跨
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 938#       发表于 2020-8-15 19:57
+
+
+
+
+脊髓记忆是需要多死几次才能记住的。
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 939#       发表于 2020-8-15 20:00
+
+
+
+
+今天观感比昨天好很多阿<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 940#       发表于 2020-8-15 20:06
+
+
+
+
+这游戏是拿什么遥控玩的啊，感觉视角也太不好操控了，按键也好是按错，难得一见的吃瘪夸
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 941#       发表于 2020-8-15 20:14
+
+
+
+
+如果用的switch的procon的话，十字键误触是个常见问题（我玩野炊的时候经常按错）。但可能更大的是wiiu的pro手柄吧，但我没有这个主机所以不知道。
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 942#       发表于 2020-8-15 20:24
+
+
+
+
+这小祖宗真就不休息的，昨天还鼻血<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+又要被脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 943#       发表于 2020-8-15 20:24
+
+
+
+
+这小祖宗真就不休息的，昨天还鼻血<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+又要被脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 944#       发表于 2020-8-15 20:37
+
+
+
+
+赛季末了 为了钻石<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 945#       发表于 2020-8-15 20:39
+
+
+
+
+可恶啊，apex把糖豆人夺走了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 946#       发表于 2020-8-15 20:41
+
+
+
+
+这人应该不太喜欢糖豆人这类型的游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 947#       发表于 2020-8-15 20:41
+
+
+
+
+我想看糖豆人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 948#       发表于 2020-8-15 20:52
+
+
+
+
+糖豆人＋1，起码明天再播一次吧
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 949#       发表于 2020-8-15 20:56
+
+
+
+
+隔壁都在糖豆人，估计错峰，反正就2天打apex了。。。
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 950#       发表于 2020-8-15 20:59
+
+
+
+
+这种有竞技性又闸种类的游戏，而且还是大逃杀，阿夸怎么可能不喜欢，忘了当年被马造统治的暑假了吗？
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 951#       发表于 2020-8-15 20:59
+
+
+
+
+糖豆人肯定会播的，无非就是晚2天
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 952#       发表于 2020-8-15 21:12
+
+
+
+
+糖豆人问题是组队环节，马造好歹胜负还能自己靠实力说话，这游戏组队关碰上奇葩队友真是没脾气
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 953#       发表于 2020-8-15 21:28
+
+
+
+
+糖豆人需要出个像痛苦的聚会一样的积分制模式
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 954#       发表于 2020-8-15 22:24
+
+
+
+
+糖豆人一局也快，团队战队友不行也无所谓，最后夺冠还是得靠操作，阿夸稍练练上手肯定快
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 955#       发表于 2020-8-15 22:38
+
+
+
+
+出个造图和rank就有的看了（
+
+怎么两天差这么多分还想着上钻啊，不睡了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 956#       发表于 2020-8-16 02:07
+
+
+
+
+这把好帅<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 957#       发表于 2020-8-16 02:07
+
+
+
+
+这局爽哦
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 958#       发表于 2020-8-16 02:08
+
+
+
+
+这把带队友飞啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 959#       发表于 2020-8-16 02:16
+
+
+
+ 本帖最后由 面具13 于 2020-8-16 02:39 编辑 
+
+一直输不肯睡，非得再有个好表现再睡。
+
+又吃鸡了，但觉得自己没击杀太混，还想再玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 960#       发表于 2020-8-16 02:54
+
+
+
+
+阿夸刚那波一打三灭队帅的
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 961#         楼主| 发表于 2020-8-16 03:05
+
+
+
+
+港服上分效率高，观赏性又好，该抛弃日服了
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 962#       发表于 2020-8-16 03:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好几次一打三看得我尿了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">说起来越临近live越得闲直播是怎么回事，难道live都是播片吗
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 963#       发表于 2020-8-16 03:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">今晚的阿夸太可爱了whl
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+                 
