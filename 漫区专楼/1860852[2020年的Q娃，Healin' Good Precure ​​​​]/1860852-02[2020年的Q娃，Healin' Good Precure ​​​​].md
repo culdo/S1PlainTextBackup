@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-09 10:00** 
+> ## **本文件最后更新于2020-08-16 10:00** 
 
 
 
@@ -3271,7 +3271,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_u0DjD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_ivoQo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -4966,7 +4966,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_xR9Tu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_cvgSR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -14083,4 +14083,558 @@ doremi的联动就这个 还不如不官宣 当一个小彩蛋德了 反对dorem
 
 
 
-                       
+
+
+-----
+
+####  HGCG2  
+##### 2283#       发表于 2020-8-9 10:03
+
+
+
+ 本帖最后由 HGCG2 于 2020-8-9 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48366711&amp;ptid=1860852" target="_blank">真红眼教授 发表于 2020-8-9 09:08</a>
+
+这集感觉和佳也是女神味十足</blockquote>
+紫色的确有一种宗教式的魅力
+
+和佳却是那种能送你去巴黎加冕的村姑
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2284#       发表于 2020-8-9 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48367038&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-8-9 10:03</a>
+
+紫色的确有一种宗教式的魅力
+
+和佳却是那种能送你去巴黎加冕的村姑</blockquote>
+逐渐圣女化。。。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2285#       发表于 2020-8-9 12:03
+
+
+
+
+我也想撸几下拿铁，不过感觉太可怜了，每一话都要病一次<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">还有三森这不就是大号的哈酱吗
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2286#       发表于 2020-8-9 14:16
+
+
+
+
+怪不得让三森配。
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2287#       发表于 2020-8-9 14:54
+
+
+
+
+东映传统艺能，动起来后爱了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2288#       发表于 2020-8-9 18:43
+
+
+
+
+这集BGM立功了
+
+这bba还真有点月光姐的味道（指战力） 不知道几集被3人同化到一个程度呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+至于逗比化下下集一开始融入现代生活妥妥逗比<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 2289#       发表于 2020-8-9 20:27
+
+
+
+
+狗公主母女看着真的是....这集怪踢拉蒂都异常温柔，好好的当吉祥物不行吗，偏偏是当女神角色，实在不知怎么吐槽
+
+
+动画的三森看起来幼了好多
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2290#       发表于 2020-8-9 21:13
+
+
+
+<blockquote>HGCG2 发表于 2020-8-9 08:41
+透着一股“虔诚单纯而老练的女狂信者特有的无垢而充满压迫感并带着几分危险令人在征服她和被她当作异端审讯 ...</blockquote>
+这比喻……
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 2291#       发表于 2020-8-9 21:36
+
+
+
+
+三森一解除变身就是熟透了的九条光，越看越像<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2292#       发表于 2020-8-9 22:27
+
+
+
+
+83558716
+<img src="http://wx1.sinaimg.cn/large/5be77d9egy1ghkx0uqxtrj20nu0xce81.jpg" referrerpolicy="no-referrer">
+
+声优梗
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2293#       发表于 2020-8-9 23:21
+
+
+
+<blockquote>圆神最高 发表于 2020-8-9 14:16
+怪不得让三森配。</blockquote>
+为什么这么说
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2294#       发表于 2020-8-10 08:29
+
+
+
+
+每集都有粉黄贴贴。。。龟派气功一次打怪一次，她们才叫两情相悦！
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2295#       发表于 2020-8-10 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48371152&amp;ptid=1860852" target="_blank">leleq 发表于 2020-8-9 18:43</a>
+这集BGM立功了
+
+这bba还真有点月光姐的味道（指战力） 不知道几集被3人同化到一个程度呢</blockquote>
+预告里带走跳窗的画面看着就已经很逗了
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2296#       发表于 2020-8-10 14:41
+
+
+
+
+真就石雕复活的远古q娃，算是蒙对了一次
+
+和佳被捉的时候日向特别激动啊，闻到一丝暧昧的味道<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+看下集预告这不已经谐化了吗，光脚带着狗狗跑路
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2297#       发表于 2020-8-10 17:38
+
+
+
+
+竟然是上代Q娃，真就光之美大妈（？）
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2298#       发表于 2020-8-10 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48380920&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-8-10 14:41</a>
+
+真就石雕复活的远古q娃，算是蒙对了一次
+
+和佳被捉的时候日向特别激动啊，闻到一丝暧昧的味道。等等 ...</blockquote>
+现在三人之间的情况明显粉黄距离更近，搞不好蓝要找紫……
+
+
+
+
+
+
+
+-----
+
+####  不能摸的屁屁  
+##### 2299#       发表于 2020-8-10 20:18
+
+
+
+
+当年抱Q前期你们也是粉黄总在秀，蓝毛眉头皱，结果喜闻乐见异性恋<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2300#       发表于 2020-8-10 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48385329&amp;ptid=1860852" target="_blank">不能摸的屁屁 发表于 2020-8-10 20:18</a>
+
+当年抱Q前期你们也是粉黄总在秀，蓝毛眉头皱，结果喜闻乐见异性恋
+
+
+  -- 来自 有消息提醒的 Stage1 ...</blockquote>
+我怎么记得抱Q一开始就是安定的粉蓝……何况治Q现在也不是前期了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2301#       发表于 2020-8-10 20:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48385329&amp;ptid=1860852" target="_blank">不能摸的屁屁 发表于 2020-8-10 20:18</a>
+
+当年抱Q前期你们也是粉黄总在秀，蓝毛眉头皱，结果喜闻乐见异性恋
+
+
+  -- 来自 有消息提醒的 Stage1 ...</blockquote>
+虽然大友嘴里总是谁谁谁一对，谁谁谁又被迫害，其实心里都知道只是yy吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2302#       发表于 2020-8-10 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48383268&amp;ptid=1860852" target="_blank">風駿 发表于 2020-8-10 17:49</a>
+
+现在三人之间的情况明显粉黄距离更近，搞不好蓝要找紫……</blockquote>
+明明一开始是安定的三人贴贴，为什么会出现了偏差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+想了想可能是这几个问题，粉黄的个人回三人会一起参与，蓝的个人回却不好加入其中。多了单对单的机会也就造成了关系上的亲密，加上粉的接受能力很强（第一集对淫 兽讲话完全不惊讶），更容易跟上黄的思维，于是越混越熟。蓝要保持沉稳的形象，自然无法加入其中，与两人关系越来越疏远。不过如果紫会点老土冷笑话说不定蓝紫有希望<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不能摸的屁屁  
+##### 2303#       发表于 2020-8-10 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48385554&amp;ptid=1860852" target="_blank">風駿 发表于 2020-08-10 20:31:51</a>
+我怎么记得抱Q一开始就是安定的粉蓝……何况治Q现在也不是前期了</blockquote>抱Q一开始是纱福林→花花→大力，花花把大力当女神，一看大力就两眼放光，甚至还有蓝毛皱眉笑。
+记得最清楚的，大力入队花花立马兴奋说去一起去约会，还说三个人了就三个人约会，四个人了就四个人去约会，当时贴吧一堆梗图，蓝毛：那两个人呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2304#       发表于 2020-8-10 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48385939&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-8-10 20:56</a>
+
+明明一开始是安定的三人贴贴，为什么会出现了偏差
+
+想了想可能是这几个问题，粉黄的个人回三人会一 ...</blockquote>
+蓝的性格内敛稳重和粉黄形成反差，兔子吵架回粉成功变身回来对蓝微微一笑回头对黄吐舌头可爱的要死，我就知道蓝不妙了(
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2305#       发表于 2020-8-10 21:50
+
+
+
+ 本帖最后由 風駿 于 2020-8-10 21:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48386476&amp;ptid=1860852" target="_blank">不能摸的屁屁 发表于 2020-8-10 21:37</a>
+
+抱Q一开始是纱福林→花花→大力，花花把大力当女神，一看大力就两眼放光，甚至还有蓝毛皱眉笑。
+
+记得最清楚 ...</blockquote>
+刚入队状态不算数啦，照这么说花花一直在换攻略对象，之后还有红紫都是花花在攻略，结果红紫抱一块儿去了，直到最后去攻略社长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 2306#       发表于 2020-8-11 23:00
+
+
+
+<blockquote>JustW 发表于 2020-8-10 17:38
+竟然是上代Q娃，真就光之美大妈（？）</blockquote>
+预告里说是地球意志呼应狗妈的请求产生的精灵，跟上一代不是一个人只是长得一样。要是先代的话管自己搭档的女儿还叫様不是很怪吗
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2307#       发表于 2020-8-12 15:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48383115&amp;ptid=1860852" target="_blank">JustW 发表于 2020-8-10 17:38</a>
+
+竟然是上代Q娃，真就光之美大妈（？）</blockquote>
+这是把汁波密当年那个超级奶奶哏给做到极限了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2308#       发表于 2020-8-16 08:08
+
+
+
+
+逗比
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ghsb708z08j20u01vb7vy.jpg" referrerpolicy="no-referrer">
+
+
+平时毫无存在感的狗一下子说了那么多话，非常不适应
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ghsbdrtab8j21400miaby.jpg" referrerpolicy="no-referrer">
+
+
+キュアアース…なんてつよさだ… ​​​​
+
+
+
+
+新ED
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ghsbrgjw61j20u05l9u0x.jpg" referrerpolicy="no-referrer">
+
+
+要介助
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ghsby74lm9j20u00xt4c9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2309#       发表于 2020-8-16 08:36
+
+
+
+
+直接逗比化了啊
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2310#       发表于 2020-8-16 08:47
+
+
+
+
+这集虽然开始展现出天然的一面但好歹还算体面
+
+下集彻底破功，新换上ED还是马口P唱的，绝了
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2311#       发表于 2020-8-16 08:55
+
+
+
+
+德了 直接设定今天她生日 立马开始卖生日周边 结果周边写的是7月19日.... 都一个月了 都不回炉去改吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+设定20岁 实际上0岁 真 合法御姐(?) 看来不是用上学 别像去年某无业游民一样就行
+变身还是一样的朴素 然而bgm不一样 准备是和九条光美美野来末一样分开变
+ed2 3d舞台搭的也是不太好 今年歌也是没有救了 原本op难听是歌手的问题 结果让声优唱也不行
+
+
+
+
+
+                      
