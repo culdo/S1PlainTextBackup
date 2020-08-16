@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-16 04:05** 
+> ## **本文件最后更新于2020-08-16 18:05** 
 
 
 
@@ -16319,4 +16319,640 @@ lsp光想着找和自己小时候定过结婚约定的女孩
 
 
 
-                 
+
+
+-----
+
+####  cvql  
+##### 964#       发表于 2020-8-16 10:41
+
+
+
+
+耐久上钻他来了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 965#       发表于 2020-8-16 11:27
+
+
+
+
+白金1了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 966#       发表于 2020-8-16 11:28
+
+
+
+
+昨天钻1机器人带飞那把说是到了猎杀局了，看来深夜人少挂少是真的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 967#       发表于 2020-8-16 12:09
+
+
+
+
+这什么破嗓子？希望是刚睡醒没开嗓<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+昨晚直播完马上睡了？你骗谁呢，记录上有个-4有个和+49呢。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 968#       发表于 2020-8-16 12:16
+
+
+
+
+这明显头脑都不清醒状态<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">落地成盒的状态
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 969#       发表于 2020-8-16 12:20
+
+
+
+
+不过挡画面时卖萌还是挺可爱的。
+
+睡了3个小时好像。呵欠根本停不下来
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 970#       发表于 2020-8-16 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总是不好好睡觉
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 971#       发表于 2020-8-16 12:44
+
+
+
+
+队友有点强。。。不过自己输出也可以
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 972#       发表于 2020-8-16 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">好强的夸宝，感觉跟上次上钻的完全不同人。
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 973#       发表于 2020-8-16 12:50
+
+
+
+
+又要开始苟了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 974#       发表于 2020-8-16 13:36
+
+
+
+
+又开始玩猫了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 975#       发表于 2020-8-16 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">クリームパン连发，虽然是说猫的
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 976#       发表于 2020-8-16 13:38
+
+
+
+
+草，自己玩塔
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 977#       发表于 2020-8-16 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麦哥好解压，洋葱快乐死了。
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 978#       发表于 2020-8-16 13:59
+
+
+
+
+毕竟肥宅快乐兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 979#       发表于 2020-8-16 14:48
+
+
+
+
+这明明是吸猫直播
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 980#       发表于 2020-8-16 15:49
+
+
+
+
+一开场就没了两个队友，sololive走起。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 981#       发表于 2020-8-16 16:24
+
+
+
+
+终于能在直播时享受正常的apex游戏体验了，太不容易了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 982#       发表于 2020-8-16 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总的来说在往上爬，遮一遮效果还是挺明显的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 983#       发表于 2020-8-16 16:48
+
+
+
+
+昨天下播前到钻二，现在钻一，还挺顺利，今天耐久不会16h了，大概
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 984#       发表于 2020-8-16 17:02
+
+
+
+
+还差155分？上把太笨比了差点吃鸡
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 985#       发表于 2020-8-16 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这是白金不是钻石，钻一可难太多了。
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 986#       发表于 2020-8-16 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上把吃鸡分就够了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 987#       发表于 2020-8-16 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点顺
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 988#       发表于 2020-8-16 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然之前打16小时，狙击和窥屏是主要原因
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 989#       发表于 2020-8-16 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48449665&amp;ptid=1947500" target="_blank">stedckk 发表于 2020-8-16 17:10</a>
+
+这是白金不是钻石，钻一可难太多了。</blockquote>
+钻一怕不是真得后辈来带才能上去了，单排别想了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 990#       发表于 2020-8-16 17:23
+
+
+
+
+阿夸变强了，一天上了1000多分，好几次一打三，枪法和意识都好了太多，就是队友有时候真的太拉跨
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 991#       发表于 2020-8-16 17:25
+
+
+
+ 本帖最后由 kata魂 于 2020-8-16 17:33 编辑 
+
+因为决策失误没有吃鸡，因为助攻人头少分数低
+
+怎么感觉有一波大伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+行了，有惊无险下班了
+
+
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 992#       发表于 2020-8-16 17:32
+
+
+
+
+已经钻石了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 993#       发表于 2020-8-16 17:33
+
+
+
+
+等一个吃鸡
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 994#       发表于 2020-8-16 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">太强了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 995#       发表于 2020-8-16 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48449830&amp;ptid=1947500" target="_blank">面具13 发表于 2020-8-16 17:33</a>
+
+等一个吃鸡</blockquote>
+守卫今天晚上记得守我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 996#       发表于 2020-8-16 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天还是蛮顺利的，自己的枪法也不错，队友也不错。
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 997#       发表于 2020-8-16 17:46
+
+
+
+
+早点挡地图早就玩糖豆人了
+
+死线战士的buff啊
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 998#       发表于 2020-8-16 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">即便遮住了还是有人狙击到 这是多少人狙击阿，不过狙击人变少了观感直线上升，乱狙击属实折磨主播和观众。
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 999#       发表于 2020-8-16 17:52
+
+
+
+
+昨天23点开始突击到现在，从白金三开始冲到钻石，游戏时间大概12小时，上了1200分，比上次强了太多了，帅的很
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1000#       发表于 2020-8-16 17:57
+
+
+
+
+坐等糖豆人
+
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1001#       发表于 2020-8-16 18:02
+
+
+
+
+草，今天最大的收获是知道王安石是什么东西了
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1002#         楼主| 发表于 2020-8-16 18:04
+
+
+
+
+ONE ASH 能读成王安石也是挺有才的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                
