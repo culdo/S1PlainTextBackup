@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-16 18:05** 
+> ## **本文件最后更新于2020-08-18 00:06** 
 
 
 
@@ -14330,14 +14330,7 @@ md，出不了这张和要我弃坑有啥区别
 ####  jkl的咩咩酱  
 ##### 845#       发表于 2020-8-12 16:25
 
-
-
-
-一家四口，指夸久美子咩 还有一个是谁<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -14579,20 +14572,7 @@ apex鸽了，明天中午11点开了个新坑
 ####  jkl的咩咩酱  
 ##### 860#       发表于 2020-8-12 23:12
 
-
-
- 本帖最后由 jkl的咩咩酱 于 2020-8-12 23:15 编辑 
-
-观众里能有几个真玩过的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-阅历支撑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">夸完全就不是这一道上的主播，观众也不是来看她的“阅历”的
-
-而且那些游戏婆罗门们就是b事多又不打钱，还喜欢带节奏，是最应该要避开的观众群体吧
-
-
-
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -16635,8 +16615,9 @@ lsp光想着找和自己小时候定过结婚约定的女孩
 
 
 
+ 本帖最后由 Sanguine 于 2020-8-16 18:16 编辑 
 
-昨天下播前到钻二，现在钻一，还挺顺利，今天耐久不会16h了，大概
+昨天下播前到白金二，现在白金一，还挺顺利，今天耐久不会16h了，大概
 
 
 
@@ -16955,4 +16936,444 @@ ONE ASH 能读成王安石也是挺有才的<img src="https://static.saraba1st.c
 
 
 
-                
+
+
+-----
+
+####  面具13  
+##### 1003#       发表于 2020-8-16 18:08
+
+
+
+
+不过为了保险夸组最好还是把名字遮一下吧。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1004#       发表于 2020-8-16 18:15
+
+
+
+
+还好不用熬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">演唱会在前不需要深夜耐久辽
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1005#       发表于 2020-8-16 18:26
+
+
+
+ 本帖最后由 面具13 于 2020-8-16 18:53 编辑 
+
+还有神奇的糖豆人5连胜耐久成就可以搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+がお来打钱了。那么新衣服是不是已经到位了，就差找一个好时机公开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1006#       发表于 2020-8-16 21:35
+
+
+
+
+今晚的阿库马琳呢？
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1007#       发表于 2020-8-16 21:41
+
+
+
+
+可能有一个人睡过头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1008#       发表于 2020-8-16 22:14
+
+
+
+ 本帖最后由 fightonion 于 2020-8-16 22:42 编辑 
+
+海蓝宝石。。。。亡了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer"> 看来今天是无了正好好好休息下吧。
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1009#       发表于 2020-8-16 22:17
+
+
+
+
+船长昨晚跟面包狗卡比大战今天早晨，下午也直播了3个小时
+
+这俩人谁没醒还真不好说
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1010#       发表于 2020-8-16 23:11
+
+
+
+
+联动延期了
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1011#       发表于 2020-8-17 18:40
+
+
+
+
+b站这个二周年pv和歌真不搭，洋葱用这个声线真是遭不住
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1012#       发表于 2020-8-17 19:42
+
+
+
+
+那首歌，是当年收益化的时候拿夸乐器整过的一次活，还算是挺有意义的吧，老曲新唱 BV1vb411K7jk  7分钟那里
+
+<img src="https://img.saraba1st.com/forum/202008/17/194115nffnwvxx9ovt06vx.png" referrerpolicy="no-referrer">
+
+
+<strong>456.png</strong> (657.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-17 19:41 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1013#       发表于 2020-8-17 22:08
+
+
+
+
+好可爱的评论栏
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1014#       发表于 2020-8-17 22:32
+
+
+
+
+开始了开始了
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1015#       发表于 2020-8-17 22:33
+
+
+
+
+这吃瘪艺还得练啊，反应全部都一模一样的，太容易腻了
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1016#       发表于 2020-8-17 22:39
+
+
+
+
+明显不会当崽种那要挡在那个风车口子上
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1017#       发表于 2020-8-17 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个当闸总的掉下去了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1018#       发表于 2020-8-17 22:43
+
+
+
+
+抄作业太好用了，完全放弃使用自己金鱼一般的记忆力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1019#       发表于 2020-8-17 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏真的很快乐。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1020#       发表于 2020-8-17 22:57
+
+
+
+
+看不懂英语总被初见杀
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1021#       发表于 2020-8-17 23:00
+
+
+
+
+这蜂巢上手的真是快，说来丢人，我15级了跳这个还跳不来，老失误
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1022#       发表于 2020-8-17 23:03
+
+
+
+
+内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1023#       发表于 2020-8-17 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队友怎么都是内鬼
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1024#       发表于 2020-8-17 23:11
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-17 23:13 编辑 
+
+能稳定吃瘪的就团队战了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但其实不管是推球还是护球都是有策略可以发挥的，夸宝估计悟不出来，毕竟是放弃了思考水果的洋葱
+
+
+话音刚落，怎么被闸种拽住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1025#       发表于 2020-8-17 23:13
+
+
+
+
+哈哈哈 被人拉倒了就完蛋了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1026#       发表于 2020-8-17 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是服务器问题 还是阿夸的网有问题阿
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1027#       发表于 2020-8-17 23:48
+
+
+
+
+服务器不堪重负的问题
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1028#       发表于 2020-8-18 00:04
+
+
+
+
+笑出眼泪，这家伙在干嘛？
+
+
+
+
+
+               
