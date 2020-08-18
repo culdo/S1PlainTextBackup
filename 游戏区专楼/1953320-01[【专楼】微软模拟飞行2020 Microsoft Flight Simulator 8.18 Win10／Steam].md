@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-18 18:20** 
+> ## **本文件最后更新于2020-08-18 22:18** 
 
 
 
@@ -2099,4 +2099,158 @@ windows store买的，也是卡在蓝色进度条，看了下文件管理器，�
 
 
 
-                                              
+
+
+-----
+
+####  leystage  
+##### 116#       发表于 2020-8-18 18:50
+
+
+
+
+安装更新始终卡在 fs-base-0.1.77 有人遇到吗，还剩36.14GB不动了。。。
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 117#         楼主| 发表于 2020-8-18 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48475758&amp;ptid=1953320" target="_blank">leystage 发表于 2020-8-18 18:50</a>
+
+安装更新始终卡在 fs-base-0.1.77 有人遇到吗，还剩36.14GB不动了。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">按照Alpha的经验，这个时候只需要关掉游戏重新打开继续下载才行
+
+游戏里暂停再恢复是没用的
+
+
+
+
+
+
+
+-----
+
+####  永远喜欢刘人语  
+##### 118#       发表于 2020-8-18 19:56
+
+
+
+
+能用鼠标和键盘玩吗
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 119#       发表于 2020-8-18 20:24
+
+
+
+<blockquote>Totokei 发表于 2020-8-18 19:28
+按照Alpha的经验，这个时候只需要关掉游戏重新打开继续下载才行
+
+游戏里暂停再恢复是没用的 ...</blockquote>
+这个症状有点奇怪，重启没用。
+
+是这个文件死循环在 download 1% 2% writing 然后又 1% 2%
+
+我去删了 1.77 他就重新下载 1.78 几百兆，然后又死循环在 1.77…
+
+试着删掉了更多文件，现在死循环到其他地方去了。
+
+难道要我把已经下载的60G删了重来么。。。
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 120#         楼主| 发表于 2020-8-18 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48476943&amp;ptid=1953320" target="_blank">leystage 发表于 2020-8-18 20:24</a>
+
+这个症状有点奇怪，重启没用。
+
+是这个文件死循环在 download 1% 2% writing 然后又 1% 2%
+
+我去删了 1.77  ...</blockquote>
+我之前也是这样死循环，但试多几次好像就好了
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 121#       发表于 2020-8-18 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48476563&amp;ptid=1953320" target="_blank">永远喜欢刘人语 发表于 2020-8-18 19:56</a>
+
+能用鼠标和键盘玩吗</blockquote>
+能的，但是鼠标的操作精度完全不足以稳定操控飞机，一个手柄是至少的
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 122#       发表于 2020-8-18 21:23
+
+
+
+<blockquote>Totokei 发表于 2020-8-18 20:53
+我之前也是这样死循环，但试多几次好像就好了</blockquote>
+好，我多试试。。。
+
+
+
+
+
+
+
+-----
+
+####  没钱买手办  
+##### 123#       发表于 2020-8-18 21:24
+
+
+
+
+我国区屎腚只能用微软商店下了吗，不是很想呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+                                             
