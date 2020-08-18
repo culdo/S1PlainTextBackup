@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-15 12:03** 
+> ## **本文件最后更新于2020-08-18 16:03** 
 
 
 
@@ -5275,7 +5275,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_oS2o6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_OBz44" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20295,4 +20295,694 @@ v2.3.0</blockquote>这个感觉谁划都会带勾的，感觉是索尼触摸优�
 
 
 
-               
+
+
+-----
+
+####  yygundam  
+##### 1022#       发表于 2020-8-15 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48429265&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-8-14 16:37</a>
+
+第一次用这手势，有没办法返回只用右边，因为不少应用是拉左边拉出菜单
+
+
+—— 来自 Sony XQ-AT52, Android  ...</blockquote>
+这是原生安卓手势自己冲突的傻叉问题，现在有两个方法可以拉出左侧菜单：1. 在左侧边缘按住一会，等菜单拉出的动画出现，然后拉出菜单；2. 往斜上/斜下45度划出。前者很容易误操作，而后者嘛，反正我的手是没办法单手做出这个手势的，大拇指不够长，而且这个也容易误操作。。。
+
+
+总的来说原生安卓这手势真是一团糟。
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1023#       发表于 2020-8-15 21:14
+
+
+
+ 本帖最后由 roydimus 于 2020-8-15 21:18 编辑 
+
+裸奔接近一个月，磨损有点严重…
+
+后悔没买黑的了（
+
+
+— from Sony G8142, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
+
+
+
+
+
+
+TIM截图20200815211801.png
+(449.36 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-8-15 21:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/15/211816d6cez2idiaxng34t.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 1024#       发表于 2020-8-15 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48442477&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-8-15 21:14</a>
+裸奔接近一个月，磨损有点严重…
+
+后悔没买黑的了（</blockquote>
+裸奔就不要直接放桌上了，我都是拿东西垫着的
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1025#       发表于 2020-8-15 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48440360&amp;ptid=1915171" target="_blank">yygundam 发表于 2020-8-15 17:58</a>
+这是原生安卓手势自己冲突的傻叉问题，现在有两个方法可以拉出左侧菜单：1. 在左侧边缘按住一会，等菜单 ...</blockquote>
+所以十分推荐用单手模式去拉侧边栏……把画面缩小以后，在拉侧边栏，系统就判断你是屏幕内侧右滑而不是从屏幕边缘右滑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这个弱智的返回判断就不会触发了
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 1026#       发表于 2020-8-16 13:59
+
+
+
+ 本帖最后由 oskneo 于 2020-8-16 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48436840&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-8-15 10:17</a>
+索尼没做强制拉伸模式，所以无解。
+
+录屏可以用游戏增强器。</blockquote>
+貌似侧感的确好用很多，
+原来侧感是直接屏幕外的，虽然用套用贴膜后增加操作难度。
+但问题来了，怎样取消官方左右手势情况下去掉三大金刚？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1027#       发表于 2020-8-16 14:28
+
+
+
+ 本帖最后由 我很费纸 于 2020-8-16 14:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48448160&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-8-16 13:59</a>
+貌似侧感的确好用很多，
+原来侧感是直接屏幕外的，虽然用套用贴膜后增加操作难度。
+但问题来了，怎样取消 ...</blockquote>
+可以试一下切换到三金刚以后上网搜一下通用的强制沉浸的adb命令。
+
+以前可以直接用custom  navigation bar这个软件……X1/5开始不支持索尼了，所以只能去找adb命令自己强制隐藏导航栏了。
+
+个人目前的用法还是打开官方手势，侧感设定是双击侧感目录，下滑多任务，上滑单手模式，基本上挺好用的（我是不贴膜党，用的壳是那种在电源键部分整体切开，露出边框的），单手使用的时候，需要在左侧的操作基本都是用单手模式解决。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1028#       发表于 2020-8-16 14:34
+
+
+
+
+补充两句，侧感真的方向对了，边框操作给了手机很多自定义的选项，跟原生手势可以形成很好地补充。尤其是对于21：9这种过长的机型，没有侧感我感觉下拉通知栏要废掉我的手。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 1029#         楼主| 发表于 2020-8-16 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48448418&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-08-16 14:34:20</a>
+补充两句，侧感真的方向对了，边框操作给了手机很多自定义的选项，跟原生手势可以形成很好地补充。尤其是对 ...</blockquote>我寻思，小米不是屏幕内任意地方下滑，就是拉下通知栏吧，感觉比这种侧感更好用吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1030#       发表于 2020-8-16 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48448509&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-8-16 14:44</a>
+我寻思，小米不是屏幕内任意地方下滑，就是拉下通知栏吧，感觉比这种侧感更好用吧
+
+  -- 来自 能手机投票的 ...</blockquote>
+侧感滑一下边框就行了……屏幕内还要设计各种防误触或者避免与当前应用的下滑逻辑冲突，所以侧感难道不方便？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  fishmanzero  
+##### 1031#       发表于 2020-8-16 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48448509&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-8-16 14:44</a>
+我寻思，小米不是屏幕内任意地方下滑，就是拉下通知栏吧，感觉比这种侧感更好用吧
+
+  -- 来自 能手机投票的 ...</blockquote>
+大法侧感是全局触发的，而且除了手势操作还有快捷方式分屏、开关、启动app等等
+
+—— 来自 粗粮 K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 1032#         楼主| 发表于 2020-8-16 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48449060&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-08-16 15:48:15</a>
+侧感滑一下边框就行了……屏幕内还要设计各种防误触或者避免与当前应用的下滑逻辑冲突，所以侧感难道不方 ...</blockquote>忘记是全局的啦orz
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1033#       发表于 2020-8-16 18:28
+
+
+
+
+http://weibo.com/3127526680/JgbZErHOa
+
+打起来打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以X1M2的散热到底是个什么🐔儿水准，怎么熟悉的过热又又又出现了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+PS：为啥鹅球最新版又发不了图了。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1034#       发表于 2020-8-17 08:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48443395&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-8-15 22:28</a>
+裸奔就不要直接放桌上了，我都是拿东西垫着的</blockquote>
+平时都放在鼠标垫上或者用数据线架起来，看起来是没什么效果…
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1035#       发表于 2020-8-17 09:46
+
+
+
+<blockquote>引用第1032楼我很费纸于2020-08-16 18:28发表的  :
+
+http://weibo.com/3127526680/JgbZErHOa打起来打起来了所以X1M2......</blockquote>
+现在这天气要过热很简单啊，晒一下无限连拍或者4kHDR。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最搞笑的不是用默认相机程序嘛
+
+然后说photo pro太复杂不会用吗
+我寻思也有自动档怎么就不会用了
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  FML  
+##### 1036#       发表于 2020-8-17 10:19
+
+
+
+ 本帖最后由 FML 于 2020-8-17 11:00 编辑 
+
+无法在应用内添加桌面图标怎么破
+
+主屏幕设置  应用权限都给了
+
+就是我B站里想添加一个游戏wiki的快捷图标到桌面
+
+但是没有用 看了下相关权限 都给了下 还是无效
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1037#       发表于 2020-8-17 12:12
+
+
+
+<blockquote>我很费纸 发表于 2020-8-16 18:28
+http://weibo.com/3127526680/JgbZErHOa
+
+
+打起来打起来了</blockquote>
+散热应该跟以前的高端机差不多吧，夏天用着用着就发烫了。出门三十五六度的时候用用导航也会烫。
+
+
+但室内只要开空调就没啥问题，在28度的室温里各种拍啊玩啊感觉距离发热关相机还很遥远。
+
+
+至于相机嘛，我也觉得默认相机不太行，尤其是跟 Photo Pro 一比。倒不是画质，而是反应速度和对焦性能之类…
+
+
+但是为啥那群人可以为了最佳多媒体手机吵拍照那么久… 索尼是这家榜单的最佳多媒体手机常客了吧，只从屏幕和音频效果之类来看，没啥问题吧。
+
+搞得跟粉丝圈子吵架一样，太闲了…
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1038#       发表于 2020-8-17 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48459054&amp;ptid=1915171" target="_blank">leystage 发表于 2020-8-17 12:12</a>
+散热应该跟以前的高端机差不多吧，夏天用着用着就发烫了。出门三十五六度的时候用用导航也会烫。
+
+
+但室内 ...</blockquote>
+权当看戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+反正这不晒连续跑分温度实测曲线图的，一律当看戏。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+散热这种东西只看实测，能不能有足够莽的温度墙才是关键。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 1039#       发表于 2020-8-17 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48457740&amp;ptid=1915171" target="_blank">FML 发表于 2020-8-17 10:19</a>
+无法在应用内添加桌面图标怎么破
+
+主屏幕设置  应用权限都给了</blockquote>
+只有直播间可以添加到桌面，视频和专栏好像不行
+
+
+
+
+
+
+
+-----
+
+####  FML  
+##### 1040#       发表于 2020-8-17 14:42
+
+
+
+
+今天好像又整活出个bug
+
+
+上午切了好几次移动联通双卡的数据  移动4G 联通5G 
+
+下午发现蓝牙断了 用移动电源也充不进电
+
+重启就好了
+
+不知道两者有没有关联<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1041#       发表于 2020-8-17 15:00
+
+
+
+<blockquote>FML 发表于 2020-8-17 14:42
+今天好像又整活出个bug
+
+</blockquote>
+能够重启解决的不能算 Bug （暴论
+
+
+我则是遇到三四次微信导致 Home 假死，除了下拉通知栏外其他操作都没有响应的 bug。解决方案是下拉通知打开设置界面，然后上划打开应用清单，把微信杀了，问题解决
+
+
+默认主屏程序还是不够健壮
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1042#       发表于 2020-8-17 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开始战白平衡了
+
+
+指着手机屏幕说偏红
+
+
+然后我看原图正常准的一比
+
+
+感觉就是国内冷色看多了，一堆劣质的9000k的灯
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后用默认程序按快门不选焦点拍远景然后说糊
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 1043#       发表于 2020-8-18 00:04
+
+
+
+
+听说mk2掉漆挺严重的，有说法吗
+
+
+
+
+
+
+
+-----
+
+####  Airwolf  
+##### 1044#       发表于 2020-8-18 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48467031&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-8-18 00:04</a>
+听说mk2掉漆挺严重的，有说法吗</blockquote>
+是有点掉漆的调调，我那紫色背面看着也不经磨，得带套
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Airwolf  
+##### 1045#       发表于 2020-8-18 00:15
+
+
+
+
+另外我这连接WiFi也是经常出现WiFi不再范围内，很是苦恼啊，路由器就在边上
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1046#       发表于 2020-8-18 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48467031&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-8-18 00:04</a>
+
+听说mk2掉漆挺严重的，有说法吗</blockquote>
+疏油层磨掉了那没办法的。
+
+
+
+内部脱离目前看到的不多 都保修了。
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1047#       发表于 2020-8-18 01:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">迷的是xzp的镜面背板裸奔完全没问题，结果这次镜紫给整了个活
+
+
+
+
+
+
+
+-----
+
+####  利物浦  
+##### 1048#       发表于 2020-8-18 11:48
+
+
+
+
+X5M2的渲染图有点像z3c啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1049#       发表于 2020-8-18 11:59
+
+
+
+<blockquote>利物浦 发表于 2020-8-18 11:48
+X5M2的渲染图有点像z3c啊</blockquote>
+文艺复兴 XD
+
+把 Z 系的设计拿回来改改再来一次
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1050#       发表于 2020-8-18 14:20
+
+
+
+
+索尼日本推出无锁版 X1M2，12G内存256G存储。国行看来是12G了
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 1051#       发表于 2020-8-18 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48472787&amp;ptid=1915171" target="_blank">leystage 发表于 2020-8-18 14:20</a>
+索尼日本推出无锁版 X1M2，12G内存256G存储。国行看来是12G了</blockquote>
+等等党又赢了？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 1052#       发表于 2020-8-18 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48472787&amp;ptid=1915171" target="_blank">leystage 发表于 2020-8-18 14:20</a>
+索尼日本推出无锁版 X1M2，12G内存256G存储。国行看来是12G了</blockquote>
+日本价格好高
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+              
