@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-18 22:18** 
+> ## **本文件最后更新于2020-08-19 14:17** 
 
 
 
@@ -2253,4 +2253,512 @@ windows store买的，也是卡在蓝色进度条，看了下文件管理器，�
 
 
 
-                                             
+
+
+-----
+
+####  Totokei  
+##### 124#         楼主| 发表于 2020-8-18 22:39
+
+
+
+ 本帖最后由 Totokei 于 2020-8-18 22:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">折腾一晚上只下了三个G，火气越来越大了
+
+
+看了眼微博好像因为下载问题蒸汽评价已经变成褒贬不一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  永远喜欢刘人语  
+##### 125#       发表于 2020-8-18 23:22
+
+
+
+ 本帖最后由 永远喜欢刘人语 于 2020-8-18 23:34 编辑 
+
+怎么在跑道上刚准备起飞就crash了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外巡航高度是多少啊，一直在爬升
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 126#       发表于 2020-8-18 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48478558&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-18 22:39</a>
+折腾一晚上只下了三个G，火气越来越大了
+
+
+看了眼微博好像因为下载问题蒸汽评价已经变成褒贬不一了[f ...</blockquote>
+上UU加速吧，裸下真的是能下到人崩溃的
+
+
+
+
+
+
+
+-----
+
+####  永远喜欢刘人语  
+##### 127#       发表于 2020-8-18 23:52
+
+
+
+
+这客机高度怎么拉不上去啊，明明机头是向上的
+
+
+
+
+
+
+
+-----
+
+####  Maestro  
+##### 128#       发表于 2020-8-18 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48479334&amp;ptid=1953320" target="_blank">永远喜欢刘人语 发表于 2020-8-18 23:52</a>
+
+这客机高度怎么拉不上去啊，明明机头是向上的</blockquote>
+这是失速了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 129#       发表于 2020-8-19 00:04
+
+
+
+ 本帖最后由 Processed 于 2020-8-19 00:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48479334&amp;ptid=1953320" target="_blank">永远喜欢刘人语 发表于 2020-8-18 23:52</a>
+
+这客机高度怎么拉不上去啊，明明机头是向上的</blockquote>
+要爬升，先提速
+
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 130#         楼主| 发表于 2020-8-19 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">骚操作成功跑起了游戏，但有不完整的地方有bug，还得想办法验证文件完整性
+
+感想是国内地景真的不行，选择从jfk起飞载入起码五分钟然后往曼哈顿飞全程网络带宽占满。从深圳南起飞载入都不用两分钟，一路上建筑都是模板复制粘贴，甚至宝安机场也是在一片草里（应该是加载的问题）
+至少从现在成品来看，宣传时说游戏里可以看见你家这一句不适合我们（x
+
+
+
+
+
+
+
+-----
+
+####  redsibyl  
+##### 131#       发表于 2020-8-19 00:56
+
+
+
+<blockquote>永远喜欢刘人语 发表于 2020-8-18 23:52
+这客机高度怎么拉不上去啊，明明机头是向上的</blockquote>
+为什么鸡头向上却飞不高的可能原因，所在高度，风向，速度，高空迷航（你以为是向上，其实是在向下！），仪表盘坏了，失误打开的反推/减速板，并没有扣牢的运载货物/计算错误的重心。。。等等等等，然后就掉地上了
+
+
+
+
+
+
+
+-----
+
+####  D-JoeII  
+##### 132#       发表于 2020-8-19 01:00
+
+
+
+
+話說裡面有中文化的文檔，不知是不是沒做完
+
+
+
+
+
+
+
+-----
+
+####  永远喜欢刘人语  
+##### 133#       发表于 2020-8-19 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48479985&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-19 00:49</a>
+骚操作成功跑起了游戏，但有不完整的地方有bug，还得想办法验证文件完整性
+
+感想是国内地景真的不行 ...</blockquote>
+豪华版也没有中国机场吗
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 134#         楼主| 发表于 2020-8-19 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48480083&amp;ptid=1953320" target="_blank">永远喜欢刘人语 发表于 2020-8-19 01:03</a>
+豪华版也没有中国机场吗</blockquote>
+记得东亚的高清机场只有羽田
+其他全是自动生成的机场，但后期应该有人会发售收费mod吧，我看市场里都在卖orbx那些机场和地景了
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 135#         楼主| 发表于 2020-8-19 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48480060&amp;ptid=1953320" target="_blank">D-JoeII 发表于 2020-8-19 01:00</a>
+話說裡面有中文化的文檔，不知是不是沒做完</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">往好的地方想就是没做完先不放，坏的地方想就是做了一半叫停了…
+
+
+
+
+
+
+
+-----
+
+####  愚钝兔子  
+##### 136#       发表于 2020-8-19 01:36
+
+
+
+
+机能有限只能开medium看国内地景真是不能直视<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我还是飞国外吧
+
+
+
+
+
+
+
+-----
+
+####  forgotten  
+##### 137#       发表于 2020-8-19 02:23
+
+
+
+
+我用大疆fpv的遥控器试了下设置，要全部自己设。
+ 现在除了油门实在没办法（不能按杆量决定油门 只能设置上推加油门 下推减油门 放中间油门不变 反正有点蛋疼），起码pitch  roll yaw能用遥控器杆量控制了 。还行，飞了一会儿就适应了
+
+剩下4个开关理论上也可以用，不过我就懒得搞了，又不是不能飞<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N975F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  永远喜欢刘人语  
+##### 138#       发表于 2020-8-19 03:38
+
+
+
+
+哎，飞世界地图每次没飞多久就停止响应了
+
+
+
+
+
+
+
+-----
+
+####  无字仓颉  
+##### 139#       发表于 2020-8-19 03:57
+
+
+
+
+大一点的机场读盘读到天荒地久
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 140#       发表于 2020-8-19 06:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥我的航拍3D地景（纽约之类的地方）糊的不行。。。
+
+特效拉满了已经
+
+
+
+
+
+
+
+
+-----
+
+####  有口皆悲  
+##### 141#       发表于 2020-8-19 07:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48480890&amp;ptid=1953320" target="_blank">sdefrfg 发表于 2020-8-19 06:53</a>
+
+为啥我的航拍3D地景（纽约之类的地方）糊的不行。。。
+
+特效拉满了已经</blockquote>
+网速瓶颈？
+
+
+
+
+
+
+
+-----
+
+####  何然  
+##### 142#       发表于 2020-8-19 08:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">1050TI能玩么....
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 143#       发表于 2020-8-19 09:32
+
+
+
+
+已经开始下了，今夜回家飞起
+
+
+
+
+
+
+
+-----
+
+####  faithlifer  
+##### 144#       发表于 2020-8-19 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48481659&amp;ptid=1953320" target="_blank">000000 发表于 2020-8-19 09:32</a>
+已经开始下了，今夜回家飞起</blockquote>
+能下完吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 145#       发表于 2020-8-19 11:38
+
+
+
+
+昨晚玩了下，最大的感想就是该换电脑了……
+
+
+不过抛开下载/网络这些问题，整体还是很对味的，玩完甚至有种放松感<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 146#       发表于 2020-8-19 11:42
+
+
+
+
+等一个VR版+中文，到时候换3080ti战个痛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Xerxes_2  
+##### 147#       发表于 2020-8-19 12:01
+
+
+
+
+2060s居然自动给我选了个high-end画质
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 148#       发表于 2020-8-19 12:06
+
+
+
+
+话说感觉贴图有问题，地面是黑的… 是网络问题还是显卡问题还是没下载好
+
+
+
+
+
+
+
+-----
+
+####  桜庭ななみ  
+##### 149#       发表于 2020-8-19 12:47
+
+
+
+
+国内网络怎么样？裸联可以吗
+
+
+
+
+
+
+
+-----
+
+####  重巡羊舰  
+##### 150#       发表于 2020-8-19 13:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">可以用vr嘛，这游戏让我第一次有了想买vr的兴趣，再搭配个飞行摇杆……
+
+
+
+
+
+
+
+-----
+
+####  Narrative  
+##### 151#       发表于 2020-8-19 13:44
+
+
+
+
+泥潭有用1050ti的吗，能hold住吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烂菊花  
+##### 152#       发表于 2020-8-19 13:58
+
+
+
+
+小飞机还好，大飞机问题蛮多的，我2080ti都只有30帧，看资源管理器占用率也不高，就很奇怪。
+
+
+
+
+
+                                            
