@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-19 18:07** 
+> ## **本文件最后更新于2020-08-21 00:05** 
 
 
 
@@ -17842,4 +17842,520 @@ b站这个二周年pv和歌真不搭，洋葱用这个声线真是遭不住
 
 
 
-              
+
+
+-----
+
+####  fightonion  
+##### 1053#       发表于 2020-8-19 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这也能拉胯我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1054#       发表于 2020-8-19 18:37
+
+
+
+
+拉跨b站总能超出你的想象
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1055#       发表于 2020-8-19 19:22
+
+
+
+
+nb
+这包装质量
+真是司马
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 1056#       发表于 2020-8-19 19:22
+
+
+
+ 本帖最后由 米酒马路 于 2020-8-19 22:31 编辑 
+
+我火化了陈睿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+啊这，放叔叔一马
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1057#       发表于 2020-8-19 20:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">器材问题，今天没了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1058#       发表于 2020-8-19 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">阿。。。今天无了么
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 1059#       发表于 2020-8-19 21:02
+
+
+
+
+玩冰玩出事情来了吗
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1060#       发表于 2020-8-19 21:30
+
+
+
+
+额，这1k人在这个一年后开播的不公开的直播间自嗨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一场歌回的程序走完了，现在开始待机了
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1061#       发表于 2020-8-19 21:58
+
+
+
+
+听说客服已经开始联系补发了，看来投诉的不少
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1062#       发表于 2020-8-19 22:30
+
+
+
+ 本帖最后由 shiroslime 于 2020-8-20 12:28 编辑 
+
+发公告补一份了，双倍场刊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+认真看了下就场刊，有没有别的坏的<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+syl:邀请函也补发
+
+
+卧槽，邀请函印刷成色还不一样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+其他的质量不会也不一样吧
+
+
+zsyl：棒子也不一样<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1063#         楼主| 发表于 2020-8-20 13:45
+
+
+
+
+最近的采访 https://www.excite.co.jp/news/article/E1597893316383
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 1064#       发表于 2020-8-20 20:00
+
+
+
+
+阿b这所有东西都是次品啊，陈睿今晚你必出殡嗷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 1065#       发表于 2020-8-20 20:55
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/20/205308rrk266n2h4yn7692.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4c7a0f21a26be214f38381a68382c18f4742dea7.jpg</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-20 20:53 上传
+
+
+
+
+
+能卖个23333套吗？挺想要阿夸主题的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 1066#       发表于 2020-8-20 21:08
+
+
+
+
+经群主同意，在此宣传一下维权群：974594493，希望叔叔有事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1067#       发表于 2020-8-20 21:09
+
+
+
+
+没看懂，基础套装是订阅制，粉丝套装是买断制？那为什么粉丝套装包含基础套装？还是粉丝套装包含一个月的基础套装？
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1068#       发表于 2020-8-20 21:15
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-20 21:24 编辑 
+
+销量2万3？ 批站做梦吧
+不要钱的直播间牌子都没2万个
+
+
+
+刚看了木口小剧场，这群家伙棒读实在受不了，全身鸡皮疙瘩
+唯独白上吹雪还不错，莫鲁喵有配音履历？
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1069#       发表于 2020-8-20 21:16
+
+
+
+ 本帖最后由 fightonion 于 2020-8-20 21:20 编辑 
+
+大概觉得45元在很多人接受范围内吧 syl 为什么阿B不设置个44.5元呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1070#       发表于 2020-8-20 21:18
+
+
+
+
+6k6的那个加载动画应该有几率解锁，感觉怪丑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  米酒马路  
+##### 1071#       发表于 2020-8-20 21:19
+
+
+
+
+这周边质量问题摆在这，导致我并不想给叔叔交这45元丧葬费<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 1072#       发表于 2020-8-20 21:22
+
+
+
+
+这东西怎么看销量？
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1073#       发表于 2020-8-20 21:25
+
+
+
+
+估计基本都是买断，点装扮那里公告有最新的粉丝编号，应该约等于销量
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 1074#       发表于 2020-8-20 21:54
+
+
+
+
+团子和加载洋葱头可爱
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1075#       发表于 2020-8-20 22:01
+
+
+
+
+限时买断，后面再要买就只能按月付钱而且没有编号了
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1076#       发表于 2020-8-20 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让我做个梦期待一下吧，毕竟直播间牌子观众自己除了变粉了好像没什么了，字幕组应该也没提醒过这事，指不定还能因为可爱吸引圈外人买呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">能让我在进度条里拖着洋葱玩吗
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1077#       发表于 2020-8-20 22:27
+
+
+
+
+预约了1w6，还是有希望到2w3的吧
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1078#       发表于 2020-8-20 22:32
+
+
+
+
+真要卖23333个45，那就是105w了，怎么可能
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1079#       发表于 2020-8-20 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也想要进度条
+
+
+
+
+
+
+
+-----
+
+####  漆黑之花  
+##### 1080#       发表于 2020-8-20 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48499686&amp;ptid=1947500" target="_blank">离魂仙 发表于 2020-8-20 21:15</a>
+销量2万3？ 批站做梦吧
+不要钱的直播间牌子都没2万个</blockquote>
+据说配过小黄游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 1081#       发表于 2020-8-20 23:10
+
+
+
+
+有牌子大概有9万人左右
+
+2万那是粉丝团，一周内送过小心心or金瓜子的人数
+
+这个可以一人买多份，还有一些买来当表情包收集的人
+
+还是有希望的
+
+
+
+
+
+             
