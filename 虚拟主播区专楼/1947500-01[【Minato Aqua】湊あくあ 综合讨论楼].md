@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-21 20:06** 
+> ## **本文件最后更新于2020-08-21 22:05** 
 
 
 
@@ -19666,4 +19666,844 @@ n站那边比B快几分钟，估计台本已经提前给了b站，然后留出�
 
 
 
-           
+
+
+-----
+
+####  shiroslime  
+##### 1160#       发表于 2020-8-21 20:09
+
+
+
+
+摇来摇去好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1161#       发表于 2020-8-21 20:12
+
+
+
+
+回血time
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1162#       发表于 2020-8-21 20:16
+
+
+
+
+与其说是羽翼，不如说两柄孔明鹅毛扇拼在一起
+
+
+
+展望下一次搞个真正的演唱会
+
+洋葱头在后台演播室里通过监视器看到下面坐满了应援棒
+
+能实现就好了啊...
+
+毕竟“玩而优则唱”还蛮稀罕的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1163#       发表于 2020-8-21 20:18
+
+
+
+
+你再指![恳求
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1164#         楼主| 发表于 2020-8-21 20:26
+
+
+
+
+只有两首了，有encore吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1165#       发表于 2020-8-21 20:31
+
+
+
+
+要溜了吗？
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1166#       发表于 2020-8-21 20:34
+
+
+
+
+这原创曲的歌词，我不行了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1167#       发表于 2020-8-21 20:35
+
+
+
+
+可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1168#       发表于 2020-8-21 20:35
+
+
+
+
+这歌、这歌词太养gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">强心针续上了！
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 1169#       发表于 2020-8-21 20:38
+
+
+
+ 本帖最后由 hjcxiaowo 于 2020-8-21 20:39 编辑 
+
+居然没安可吗 这结束的有点突然<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1170#       发表于 2020-8-21 20:39
+
+
+
+
+没得安可<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1171#       发表于 2020-8-21 20:39
+
+
+
+ 本帖最后由 离魂仙 于 2020-8-21 20:40 编辑 
+
+<img src="http://tvax4.sinaimg.cn/large/622734bdly1ghypsxo9mhj20g60960xg.jpg" referrerpolicy="no-referrer">
+
+水晶鞋<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不要走，不要让那个聒噪的臭洋葱回来
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1172#       发表于 2020-8-21 20:39
+
+
+
+
+结束得好突然<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1173#       发表于 2020-8-21 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">怎么就没了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1174#       发表于 2020-8-21 20:40
+
+
+
+
+呜呜呜太棒了！送给噶吃的原创曲，好的不能再好了。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1175#       发表于 2020-8-21 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 1176#       发表于 2020-8-21 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">i
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1177#       发表于 2020-8-21 20:41
+
+
+
+
+工毛すぎる<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1178#       发表于 2020-8-21 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">没了啊，我还没看够呢
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1179#       发表于 2020-8-21 20:42
+
+
+
+
+这就无了?不合理不合理
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 1180#       发表于 2020-8-21 20:42
+
+
+
+
+没看够<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1181#         楼主| 发表于 2020-8-21 20:42
+
+
+
+
+这为什么不搞个安可曲啊，一句话就结束了
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 1182#       发表于 2020-8-21 20:43
+
+
+
+
+最后这句搞的好像要回马枪似的 结果真没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanrenqi  
+##### 1183#       发表于 2020-8-21 20:43
+
+
+
+
+唯一遗憾：没有安可
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1184#       发表于 2020-8-21 20:46
+
+
+
+
+说个题外话，个性装扮买完是12700多，说不定能蹭个进度条<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1185#       发表于 2020-8-21 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然耳朵收到了凌虐 但是眼睛很快乐。
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 1186#       发表于 2020-8-21 20:48
+
+
+
+ 本帖最后由 cIrcler 于 2020-8-21 20:50 编辑 
+
+戛然而止了，有点反应不过来。洋葱的背影消失了，她一次都没有回头。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 1187#       发表于 2020-8-21 20:49
+
+
+
+
+还没卖到2小时，感觉23333也有机会的
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1188#       发表于 2020-8-21 20:51
+
+
+
+
+live满足满足满足，剩下的该找阿B算周边的帐了
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1189#       发表于 2020-8-21 20:51
+
+
+
+
+你B这宣传,1800-2130还挂着呢
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1190#       发表于 2020-8-21 20:54
+
+
+
+
+最后一首唱的时候感觉就没什么气了，估计也没有安可的力气了吧
+
+
+
+
+
+
+
+-----
+
+####  月影镇魂曲  
+##### 1191#       发表于 2020-8-21 20:56
+
+
+
+
+现场等了好久跳出来没安可，估计孩子也累了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1192#       发表于 2020-8-21 21:05
+
+
+
+
+一想到阿夸之后没啥事了，可以随便直播打游戏，我就又高兴了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1193#       发表于 2020-8-21 21:07
+
+
+
+
+虽然偶像夸很耀眼，但我发现我还是更喜欢gamer夸
+
+然后这次原创曲确实被惊艳到，太好听了，等阿夸发个推安心睡觉了
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1194#       发表于 2020-8-21 21:07
+
+
+
+
+再多看一会洋葱
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1195#       发表于 2020-8-21 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我也喜欢夸哥打游戏，不过偶像夸也好
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1196#       发表于 2020-8-21 21:14
+
+
+
+ 本帖最后由 nevp 于 2020-8-21 21:19 编辑 
+
+偶像夸虽好，想到这是牺牲了一个月的直播换来的，还是有点五味杂陈
+
+syl 个性装扮卖了1w4了，进度条应该是没问题了，不知道能不能解锁2w3的那个
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1197#       发表于 2020-8-21 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">夸哥真可爱
+
+syl 用录播机录出来的录像看了一下声音好像出了点问题，跟直播的时候相比感觉声音有点时大时小<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1198#       发表于 2020-8-21 21:23
+
+
+
+ 本帖最后由 vorastrix 于 2020-8-21 21:28 编辑 
+
+https://115.com/s/sw3ppdj3zht#
+阿夸超色2020.7z
+访问码：c156
+
+
+那就1天好了.jpg我就不信会有这么多人有115会员
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 米酒马路| + 1|还是凭票换录像为好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1199#       发表于 2020-8-21 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48510484&amp;ptid=1947500" target="_blank">vorastrix 发表于 2020-8-21 21:23</a>
+
+https://115.com/s/sw3ppd73zht#
+
+阿夸超色2020.7z
+
+访问码：s419</blockquote>
+草，老哥别这么放出来啊
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1200#       发表于 2020-8-21 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">那啥，有nico源的么
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1201#         楼主| 发表于 2020-8-21 21:27
+
+
+
+
+live毕竟是付费的，录像还是别直接放出来吧
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1202#       发表于 2020-8-21 21:28
+
+
+
+
+同求一个nico源，阿b这个字幕看的有点麻<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1203#       发表于 2020-8-21 21:32
+
+
+
+
+可能没那么多人有115会员，但是只要有一个人有，他就可以成为新的传播源。
+
+不过卖录像的估计还是会很猖狂，qq群之类的地方应该很快也会传播开来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真心想白嫖的人几乎总能找到方法
+
+
+
+
+
+
+
+-----
+
+####  kouhaku89  
+##### 1204#       发表于 2020-8-21 21:33
+
+
+
+
+115会员不是人手一个的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1205#       发表于 2020-8-21 21:34
+
+
+
+
+没什么好说的，管好自己就够了，白嫖怪总能找到白嫖的方法。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1206#       发表于 2020-8-21 21:35
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/622734bdly1ghyrco18bdj209509qdi5.jpg" referrerpolicy="no-referrer">
+
+国产粘土吗
+
+
+-
+
+隔壁楼主都秒传百度云了，没啥好藏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1207#       发表于 2020-8-21 21:36
+
+
+
+
+反正live完了，还指望白嫖怪打sc补票吗，不过公开还是不太可取
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 1208#       发表于 2020-8-21 21:53
+
+
+
+
+我反正已经把你B告315了
+
+
+硬生生少了我一小时
+
+
+
+
+
+         
