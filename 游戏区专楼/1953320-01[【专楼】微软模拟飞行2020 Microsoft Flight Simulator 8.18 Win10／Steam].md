@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-19 14:17** 
+> ## **本文件最后更新于2020-08-21 12:18** 
 
 
 
@@ -40,6 +40,11 @@ Xbox（暂未有发售时间）
 
 
 部分媒体以及游戏主播已解禁上传视频的权限，内测玩家未解禁请注意NDA<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+ *本主题由 从来不吃青菜 于 2020-8-20 11:10 设置高亮* 
 
 
 
@@ -2761,4 +2766,599 @@ windows store买的，也是卡在蓝色进度条，看了下文件管理器，�
 
 
 
-                                            
+
+
+-----
+
+####  forgotten  
+##### 153#       发表于 2020-8-19 15:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48484643&amp;ptid=1953320" target="_blank">重巡羊舰 发表于 2020-8-19 13:39</a>
+可以用vr嘛，这游戏让我第一次有了想买vr的兴趣，再搭配个飞行摇杆…… ...</blockquote>
+9月首先支持hp reverb g2
+
+—— 来自 samsung SM-N975F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  littlezoo  
+##### 154#       发表于 2020-8-19 17:28
+
+
+
+
+感觉还是挺牛逼的，整个地球规模下，细节还能做这么好。  机舱内几乎所有按钮都是可以互动和有功能的，包括顶上的各种按钮都有单独的功能，不是单纯的装饰。  24小时动态光照动态天气效果，而且随时可以在飞行过程中实时调整效果，简直炸裂，体积云的效果比大表哥2还细腻。  好几次在驾驶舱视角放那飞着，恍惚间以为在看Youtube的第一人称飞行视频。。。太真实了。。。  贴几张图。。。。  <img src="https://s1.ax1x.com/2020/08/19/dlWo7D.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天神十三煞  
+##### 155#       发表于 2020-8-19 18:54
+
+
+
+
+我只有一个感想
+
+我需要rtx3090
+
+
+
+
+
+
+
+-----
+
+####  wave14  
+##### 156#       发表于 2020-8-19 18:57
+
+
+
+
+win8进不去游戏。债见退款中<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 157#       发表于 2020-8-19 19:36
+
+
+
+
+跳出有点严重，今天一天飞下来能坠机都算是完成旅途了
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 158#         楼主| 发表于 2020-8-19 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第二天重新打开游戏就是熟悉的下载90g界面
+
+但我tm文件夹有东西的啊
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 159#       发表于 2020-8-20 10:17
+
+
+
+
+谁知道这个游戏什么加速器好用吗？玩这个网真的太重要了
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 160#       发表于 2020-8-20 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48492808&amp;ptid=1953320" target="_blank">自由如疯 发表于 2020-8-20 10:17</a>
+谁知道这个游戏什么加速器好用吗？玩这个网真的太重要了</blockquote>
+UU
+
+
+
+
+
+
+
+-----
+
+####  杂色k  
+##### 161#       发表于 2020-8-20 10:40
+
+
+
+
+昨晚半夜飞纽约把我搞麻了，这地面下载也太慢了
+
+
+
+
+
+
+
+-----
+
+####  偶卖糕的  
+##### 162#       发表于 2020-8-20 10:48
+
+
+
+
+昨天看批站某女主播直播，从武汉天河飞广州白云在机场上空绕了三小时没找到去广州方向最后只得迫降在农田里下播睡觉……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  没钱买手办  
+##### 163#       发表于 2020-8-20 12:24
+
+
+
+
+挂了一晚上终于下好了，上班前键盘想试试，一看一堆组合键，然后把手柄插上去又感觉一推摇杆乱飞
+
+
+那么，有没有什么推荐的飞行摇杆呢
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 164#         楼主| 发表于 2020-8-20 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48494292&amp;ptid=1953320" target="_blank">没钱买手办 发表于 2020-8-20 12:24</a>
+挂了一晚上终于下好了，上班前键盘想试试，一看一堆组合键，然后把手柄插上去又感觉一推摇杆乱飞
+
+
+那么，有 ...</blockquote>
+新手入门的话就图马斯特的T16000M或者其换皮空客TCA摇杆吧，如果想搞全套的话9月还有TCA系列的节流阀刹车和襟翼。土豪的话有罗技Yoke乃至honeycomb之类的
+
+我在用的是TCA
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 没钱买手办| + 2|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  杂色k  
+##### 165#       发表于 2020-8-20 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48494292&amp;ptid=1953320" target="_blank">没钱买手办 发表于 2020-8-20 12:24</a>
+
+挂了一晚上终于下好了，上班前键盘想试试，一看一堆组合键，然后把手柄插上去又感觉一推摇杆乱飞
+
+
+那么，有 ...</blockquote>
+将来如果真的喜欢上模飞，还喜欢空战的话，可以看看图玛斯特的HOTAS Warthog，疣猪杆。穷苦社畜的梦想摇杆……<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 没钱买手办| + 2|看了下价格|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Narrative  
+##### 166#       发表于 2020-8-20 17:12
+
+
+
+
+微软这个下载怎么会傻逼到这种程度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  没钱买手办  
+##### 167#       发表于 2020-8-20 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48497205&amp;ptid=1953320" target="_blank">杂色k 发表于 2020-8-20 16:53</a>
+
+将来如果真的喜欢上模飞，还喜欢空战的话，可以看看图玛斯特的HOTAS Warthog，疣猪杆。穷苦社畜的梦想摇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下价格，有点贵
+
+不过仔细想想和我现在用的方向盘套装价格也差不多，还是先玩玩看，真的喜欢就考虑入<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hotsmile  
+##### 168#       发表于 2020-8-20 18:23
+
+
+
+
+模拟贴图2020，艹，我玩其他游戏线上都是顺畅玩，就这个一个城市逛了10分钟，贴图就是加载不出来，那个date实时也开了
+
+
+
+
+
+
+
+-----
+
+####  费老师  
+##### 169#       发表于 2020-8-20 22:25
+
+
+
+
+能否脱机下特定城市的高清？感觉飞到天上再加载很慢啊，毕竟国内挂UU还是没法控制速度
+
+
+
+
+
+
+
+-----
+
+####  Narrative  
+##### 170#       发表于 2020-8-20 22:28
+
+
+
+
+地图都加载不出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，准确说整个地面都消失掉了，飞机直接掉进虚空坠毁了
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 171#       发表于 2020-8-20 22:37
+
+
+
+
+飞了3天最大的感受就是降落的节奏真的难把握，每次都是坠毁在跑道外面一点这个太智障了
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 172#         楼主| 发表于 2020-8-20 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48500464&amp;ptid=1953320" target="_blank">Processed 发表于 2020-8-20 22:37</a>
+
+飞了3天最大的感受就是降落的节奏真的难把握，每次都是坠毁在跑道外面一点这个太智障了 ...</blockquote>
+忘记教程里有没有提到，跑道边有四盏灯（PAPI灯）其实是提醒你的高度是否正确的
+
+白灯多于红灯说明你的位置太高反之亦然
+
+
+然后我觉得动力控制也挺重要的，感觉下降率有点高的时候可以加点油门
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 173#       发表于 2020-8-20 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48500804&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-20 23:18</a>
+
+忘记教程里有没有提到，跑道边有四盏灯（PAPI灯）其实是提醒你的高度是否正确的
+
+白灯多于红灯说明你的位 ...</blockquote>
+多谢指点
+
+
+顺便问一下，现在我飞长距离航线的时候油总是不够用，是因为我的节流阀控制有问题吗
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 174#         楼主| 发表于 2020-8-20 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48500956&amp;ptid=1953320" target="_blank">Processed 发表于 2020-8-20 23:37</a>
+多谢指点
+
+
+顺便问一下，现在我飞长距离航线的时候油总是不够用，是因为我的节流阀控制有问题吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">基本飞超短航线（例如伦敦巴黎）你说的问题还没试过
+
+盲猜一个是飞行高度太低导致耗油量上升？
+
+
+
+
+
+
+
+-----
+
+####  lancasterliang  
+##### 175#       发表于 2020-8-20 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48500956&amp;ptid=1953320" target="_blank">Processed 发表于 2020-8-20 23:37</a>
+
+多谢指点
+
+
+顺便问一下，现在我飞长距离航线的时候油总是不够用，是因为我的节流阀控制有问题吗 ...</blockquote>
+你不会在航线设定的时候没改带油量吧……
+
+
+
+
+
+
+
+-----
+
+####  咖啡侠  
+##### 176#       发表于 2020-8-21 00:01
+
+
+
+
+i5 6500+16g+1080ti卡成狗，降到high效果后算勉强<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 177#       发表于 2020-8-21 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48501132&amp;ptid=1953320" target="_blank">lancasterliang 发表于 2020-8-20 23:59</a>
+
+你不会在航线设定的时候没改带油量吧……</blockquote>
+确实没改，下次改多点试试看
+
+
+
+
+
+
+
+-----
+
+####  人型战舰  
+##### 178#       发表于 2020-8-21 08:14
+
+
+
+
+北美yoke控制器全线断货，服了…
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 179#       发表于 2020-8-21 09:21
+
+
+
+
+这游戏的mod潜力蛮大的，期待以后能玩到精细的国内城市和机场
+
+
+
+
+
+
+
+-----
+
+####  小修  
+##### 180#       发表于 2020-8-21 09:46
+
+
+
+
+……这个游戏要cpu 9900k 不够用。 要内存,16g不够要32g。显卡更不必说。
+
+
+妖怪游戏。
+
+
+
+
+
+
+
+-----
+
+####  timmyzhang721  
+##### 181#       发表于 2020-8-21 10:27
+
+
+
+
+开发者版本的win还是没解决游戏启动问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  杂色k  
+##### 182#       发表于 2020-8-21 11:33
+
+
+
+
+如果有对螺旋桨感兴趣的新人的话，我自己也整理下一些螺旋桨的一些基本特性。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+螺旋桨这个东西，和喷气不同，它自己本身会对飞机各个轴产生一定的影响和偏移，如果不注意的话，可能会导致姿态的偏移和操作上的困难。简要来说有这么几个因素：
+
+1. 螺旋桨滑流(Prop wash)：螺旋桨吸入空气并向后排出，但是这个排出不是仅仅是水平的。向后排出的空气由于螺旋桨的搅动，是一个螺旋的气流，它会使得你的飞机进行水平方向的偏移。反映在操作上，就是需要你踩舵。
+
+
+2. 螺旋桨扭矩(Propeller Torque)：简单来说，根据角动量守恒，你的螺旋桨如果向右旋转，那么你的机身会产生相反，也就是向左的滚转倾向。这时候你需要去操作杆，保持飞机水平。副翼配平主要就是用来抵消这一种倾向，没有这个功能的飞机就只能靠飞行员自己多费点力了。
+
+
+3. 螺旋桨因素(P-Factor)：螺旋桨在高攻角状态下(或者简单一些，比如停在地面上，机头指天)，下沉桨叶的排气量大于另一边上抬桨叶的排气量，这是因为下沉桨叶的迎角比上抬桨叶的大。这就产生了不对称拉力，称之为螺旋桨因素(P—factor)。螺旋桨因素使飞机绕立轴向左偏。当飞机水平巡航时，这个因素影响不大。
+
+
+4. 陀螺进动(Gyroscopic Precession)：旋转的螺旋桨在受到外力干扰时，会有沿轴移动的倾向，不过在普通的固定翼螺旋桨飞机上，这个效应影响不大。
+
+
+综上，可以看出不利因素主要出现在高攻角或低速状态。这也就是起飞和降落时，需要精准操作。起飞时建议不要一上来油门就推到底，可以先推60%左右，等速度上来了，这些因素影响就小了。这时候推满油门起飞，你的轨迹就是一条漂亮的直线了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+参考网页：[http://wiki.flightgear.org/Understanding_Propeller_Torque_and_P-Factor](http://wiki.flightgear.org/Understanding_Propeller_Torque_and_P-Factor)
+
+
+
+
+
+
+                                           

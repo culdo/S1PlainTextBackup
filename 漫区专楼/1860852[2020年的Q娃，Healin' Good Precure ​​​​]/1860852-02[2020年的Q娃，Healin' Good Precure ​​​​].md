@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-16 10:00** 
+> ## **本文件最后更新于2020-08-21 12:00** 
 
 
 
@@ -3271,7 +3271,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_ivoQo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_Rce5w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -4966,7 +4966,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_cvgSR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Y5rBO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -14637,4 +14637,555 @@ ed2 3d舞台搭的也是不太好 今年歌也是没有救了 原本op难听是�
 
 
 
-                      
+
+
+-----
+
+####  真红眼教授  
+##### 2312#       发表于 2020-8-16 10:43
+
+
+
+
+今天的还没看，一集没到就破功了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2313#       发表于 2020-8-16 11:03
+
+
+
+
+几集没看了，日向居然有这么好的一个画面了。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">简直吸引不良的绝佳体质啊。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2314#       发表于 2020-8-16 13:35
+
+
+
+
+下集就谐星化还行，那只鼹鼠也终于被爆杀了，一直看他挺不爽
+
+新ed有点乱的感觉，而且歌觉得没旧的好
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2315#       发表于 2020-8-16 14:51
+
+
+
+
+森森森这战力有点强啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2316#       发表于 2020-8-16 14:52
+
+
+
+
+三人组加起来都都被压制，她一个人一打二直接秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2317#       发表于 2020-8-16 14:59
+
+
+
+
+正常情况大多数追加确实是加入后风光一阵然后被削，但也有特殊地位的比如哈酱……
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2318#       发表于 2020-8-16 15:07
+
+
+
+
+安定的板冈锦。话说这个追加刚出生就20岁直接串戏到隔壁魔王学院，还恰好歪嘴了
+
+
+<img src="https://img.saraba1st.com/forum/202008/16/150723yd8lzq7xxq9duu66.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200816145312.png</strong> (883.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-16 15:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 2319#       发表于 2020-8-16 18:13
+
+
+
+
+狗公主终于除了生病终于有用了...紫色的变身明显比其他人待遇好，以后同框又有格差了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+基神这就退场了？我倒是觉得他的戏比其他干部有意思
+
+
+
+
+
+
+
+-----
+
+####  最低人间肥宅  
+##### 2320#       发表于 2020-8-16 19:12
+
+
+
+
+感觉这两集追加战士回有点无聊啊  很突兀感觉
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 2321#       发表于 2020-8-16 19:30
+
+
+
+
+最近两集三人组的战斗严重甜点化，新ED歌感觉还行，舞是要走简洁复古风？中间有一段很像ガンバランスdeダンス，正好也是马口P唱的。
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 2322#       发表于 2020-8-16 19:41
+
+
+
+
+紫色
+穿越战士
+谐化
+precure xxxxx hurricane
+
+碰巧有马口p的ed<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2323#       发表于 2020-8-16 21:41
+
+
+
+
+又到了养娃环节了
+
+
+
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 2324#       发表于 2020-8-16 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">基神这就挂了吗，四个干部就他一个还比较有能耐其他三个不是摸鱼犯就是弱鸡，魔少年还很下品。没有基神就没有对人战了啊
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2325#       发表于 2020-8-16 22:30
+
+
+
+
+Q娃最小1岁——1天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+地球大招不错 变身总觉得狗太抢戏了 
+
+包子没了我还有点舍不得呢 感觉很久没见到了
+
+
+
+
+
+
+
+-----
+
+####  kirimori  
+##### 2326#       发表于 2020-8-16 22:48
+
+
+
+
+这不是上来就谐化了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“唉我怎么飞不了？”
+
+上集那只怪大半夜养到早上，结果也没养出个新种子，感情是养成强化结晶了，还剩两个用完是接着剧情杀养结晶还是换新怪
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2327#       发表于 2020-8-16 23:26
+
+
+
+ 本帖最后由 Sliurus 于 2020-8-17 13:17 编辑 
+
+老鼠居然下场了，还以为会是篡位做最终boss那种发展。仔细想想最近老鼠的出场率蛮高的，原来是最后的戏份
+
+搞了半天追加是淫 兽啊，没意思没意思。某种意义上q娃这次要养两个娃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说起来这集是不是画面有点崩
+
+新ed很一般，好怀念每周一贴
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 2328#       发表于 2020-8-17 02:52
+
+
+
+
+新ed是不是工期不足啊
+
+
+
+
+
+
+
+-----
+
+####  舞野咲  
+##### 2329#       发表于 2020-8-18 00:53
+
+
+
+
+阿斯这种对总计喜欢的东西以外的对象都毫无慈悲的性格。。。虽然以后应该不会再出现了吧仅限刚出场
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 2330#       发表于 2020-8-18 01:37
+
+
+
+
+非法御姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 2331#       发表于 2020-8-18 06:50
+
+
+
+
+讲真阿斯这个设定稍微有病点就是个ai毁灭世界的故事线，不过q娃棚八成会直接忘记这个性格设定
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2332#       发表于 2020-8-18 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48468430&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-8-18 06:50</a>
+
+讲真阿斯这个设定稍微有病点就是个ai毁灭世界的故事线，不过q娃棚八成会直接忘记这个性格设定 ...</blockquote>
+你指望Q娃演什么？
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2333#       发表于 2020-8-18 10:50
+
+
+
+
+q娃对敌人不向来是无慈悲的吗，虽然理论上是净化技
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2334#       发表于 2020-8-18 11:35
+
+
+
+
+我觉得阿丝显得更加无慈悲
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2335#       发表于 2020-8-18 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在觉得1天儿不会有好看的本子了。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2336#       发表于 2020-8-19 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48445777&amp;ptid=1860852" target="_blank">風駿 发表于 2020-8-16 08:47</a>
+
+这集虽然开始展现出天然的一面但好歹还算体面
+
+下集彻底破功，新换上ED还是马口P唱的，绝了 ...</blockquote>
+马口 P 这是多少年的定番了……如果没记错的话，宫本 Yes 5 ED2 就已经是她的了，这都超过十年了还没走啊。人家池田彩、工藤真由都离队这么多年了。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2337#       发表于 2020-8-19 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48448585&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-8-16 14:52</a>
+
+三人组加起来都都被压制，她一个人一打二直接秒了坐看削弱
+
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+新手保护期。不过这次这是**还是普通新手保护期难说。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2338#       发表于 2020-8-19 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48450768&amp;ptid=1860852" target="_blank">leghorn00 发表于 2020-8-16 19:30</a>
+
+最近两集三人组的战斗严重甜点化，新ED歌感觉还行，舞是要走简洁复古风？中间有一段很像ガンバランスdeダン ...</blockquote>
+Ganbalance 那是连着用了三年的经典 ED2 啊……
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2339#       发表于 2020-8-20 16:24
+
+
+
+
+ED2感觉不怎么喜欢
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2340#       发表于 2020-8-21 08:36
+
+
+
+[https://twitter.com/YoritaNatsu/status/1296474868691677190](https://twitter.com/YoritaNatsu/status/1296474868691677190)
+
+
+依田菜津(よりたなつ)@YoritaNatsu
+
+
+ちゆ、お誕生日おめでとう
+
+いつもありがとう、大好き！
+
+
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ghy4uye53yj20vd0u0e82.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2341#       发表于 2020-8-21 11:00
+
+
+
+[https://twitter.com/kamikitafutago/status/1296642882980388864](https://twitter.com/kamikitafutago/status/1296642882980388864)
+
+<img src="http://wx4.sinaimg.cn/large/0089PTsqly1ghy90ttd2mj30ho0p0x03.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
