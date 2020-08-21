@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-21 00:05** 
+> ## **本文件最后更新于2020-08-21 20:06** 
 
 
 
@@ -18358,4 +18358,1312 @@ zsyl：棒子也不一样<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-             
+
+
+-----
+
+####  erer  
+##### 1082#       发表于 2020-8-21 10:48
+
+
+
+
+在哪里预约？
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1083#       发表于 2020-8-21 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48503709&amp;ptid=1947500" target="_blank">erer 发表于 2020-8-21 10:48</a>
+
+在哪里预约？</blockquote>
+携带电话APP - 我的 - 个性装扮
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1084#       发表于 2020-8-21 12:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">请了假了，今晚我要在家里打CALL
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1085#       发表于 2020-8-21 12:02
+
+
+
+
+还不知道有没有时间看，难顶
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 1086#       发表于 2020-8-21 12:03
+
+
+
+
+有人来击剑吗？
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1087#       发表于 2020-8-21 13:04
+
+
+
+
+运气好今天休息，去网咖找个小角落看夸宝蹦蹦跳跳
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1088#       发表于 2020-8-21 16:17
+
+
+
+
+看了隔壁有人传的中日live周边对比图了，B站真的是拿了个大概的周边样式找了个三无工厂做了些低成本仿品啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+买了nico版的null老姐血赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道去现场的人能不能拿到原装的
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1089#       发表于 2020-8-21 17:21
+
+
+
+
+这毫无诚意的公告。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1090#       发表于 2020-8-21 17:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在现场的表示就是国内版，睿叔叔真棒。
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1091#       发表于 2020-8-21 18:03
+
+
+
+
+问个弱智问题,有除了录屏之外的方法录制吗?
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1092#       发表于 2020-8-21 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48508263&amp;ptid=1947500" target="_blank">vorastrix 发表于 2020-8-21 18:03</a>
+
+问个弱智问题,有除了录屏之外的方法录制吗?</blockquote>
+[https://github.com/HMBSbige/AutoSplitVideo](https://github.com/HMBSbige/AutoSplitVideo)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vorastrix| + 2||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1093#       发表于 2020-8-21 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48508277&amp;ptid=1947500" target="_blank">面具13 发表于 2020-8-21 18:04</a>
+
+https://github.com/HMBSbige/AutoSplitVideo</blockquote>
+感谢,这份恩情我是不会忘的,大概
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1094#       发表于 2020-8-21 18:42
+
+
+
+
+大概是最后一次live了，该找回点初心去看了
+
+
+
+
+
+
+
+-----
+
+####  提挈天地  
+##### 1095#       发表于 2020-8-21 18:47
+
+
+
+
+今天17:40购的b站票号013869，加上套票和场票国内最终应该能到两万张吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1096#       发表于 2020-8-21 18:48
+
+
+
+
+不同的票一起排的。没看到官方的消息，说不定不同场次的票也跟着一起排呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1097#       发表于 2020-8-21 18:49
+
+
+
+
+真能卖2w那就能有进度条了
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1098#       发表于 2020-8-21 18:51
+
+
+
+
+就算没2w，1w4进度条也有可能的，毕竟光票249，主题才40多
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1099#       发表于 2020-8-21 18:53
+
+
+
+
+来了
+
+
+
+
+
+
+
+-----
+
+####  提挈天地  
+##### 1100#       发表于 2020-8-21 18:54
+
+
+
+
+吓了我一跳，录制点晚了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1101#       发表于 2020-8-21 18:55
+
+
+
+
+声音好甜啊，爱了
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1102#       发表于 2020-8-21 19:01
+
+
+
+
+3362……你们也太快了
+
+
+
+
+
+
+
+-----
+
+####  提挈天地  
+##### 1103#       发表于 2020-8-21 19:03
+
+
+
+
+来了来了
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1104#       发表于 2020-8-21 19:04
+
+
+
+
+B站延迟一首歌，好气
+
+
+老年人舞蹈喷了
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1105#       发表于 2020-8-21 19:06
+
+
+
+
+草,站桩输出
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1106#         楼主| 发表于 2020-8-21 19:07
+
+
+
+
+真就广播体操啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1107#       发表于 2020-8-21 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">理解一下杂鱼体力，虽然非常可爱，但是果然还是有点草
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1108#       发表于 2020-8-21 19:10
+
+
+
+
+好傻哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1109#       发表于 2020-8-21 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">她要是能完整跳下来一套幅度大的才是最见鬼的
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1110#       发表于 2020-8-21 19:12
+
+
+
+
+这滑滑蛋的空气吉他也太羞耻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望录制现场围观群众少点
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1111#       发表于 2020-8-21 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1112#       发表于 2020-8-21 19:14
+
+
+
+
+草，不能给吉他建个模吗，这也太傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 1113#       发表于 2020-8-21 19:14
+
+
+
+
+说来……装扮里背景图泳装那张换了啊…
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  LightersFAN  
+##### 1114#       发表于 2020-8-21 19:15
+
+
+
+
+草，怎么还有空气吉他solo的
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1115#       发表于 2020-8-21 19:15
+
+
+
+
+废天使不错，把live做成MV，也算是V的优势了
+
+
+
+
+
+
+
+-----
+
+####  sakuracocoa  
+##### 1116#       发表于 2020-8-21 19:15
+
+
+
+
+日 本 新 说 唱
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 1117#       发表于 2020-8-21 19:16
+
+
+
+
+真就养生舞步啊，不过看在活动的洋葱面上可以原谅
+
+
+
+
+
+
+
+-----
+
+####  sakuracocoa  
+##### 1118#       发表于 2020-8-21 19:17
+
+
+
+
+蹦蹦跳跳好可爱
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1119#       发表于 2020-8-21 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可爱
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 1120#       发表于 2020-8-21 19:19
+
+
+
+
+这特效。这运镜，<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1121#       发表于 2020-8-21 19:20
+
+
+
+
+对着空气做MC环节，孩子都提不起情绪了，仿佛在录制小动画时棒读似的。新冠淦恁娘
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 1122#       发表于 2020-8-21 19:21
+
+
+
+
+啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  买表大户  
+##### 1123#       发表于 2020-8-21 19:22
+
+
+
+
+没有现场观众还是少了点氛围啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1124#       发表于 2020-8-21 19:22
+
+
+
+
+这歌词特效和运镜好夸张啊。
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 1125#       发表于 2020-8-21 19:22
+
+
+
+
+。。看了半天突然发现怎么有字幕的。。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1126#       发表于 2020-8-21 19:23
+
+
+
+
+这衣服做成3D很美，但有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是洋葱头不合适吗
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1127#       发表于 2020-8-21 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">果然有新3D，我死了
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1128#       发表于 2020-8-21 19:24
+
+
+
+
+n站那边比B快几分钟，估计台本已经提前给了b站，然后留出几分钟轴，而且这轴的还有点错位
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 1129#       发表于 2020-8-21 19:24
+
+
+
+
+哦哦哦哦 哦哦 哦 
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1130#       发表于 2020-8-21 19:24
+
+
+
+
+妈妈我看到仙女了，我要娶她
+
+
+
+
+
+
+
+-----
+
+####  sakuracocoa  
+##### 1131#       发表于 2020-8-21 19:25
+
+
+
+
+几把炸了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1132#       发表于 2020-8-21 19:25
+
+
+
+
+新，新衣服，3d的
+
+
+
+
+
+
+
+-----
+
+####  买表大户  
+##### 1133#       发表于 2020-8-21 19:25
+
+
+
+
+胸部装甲获得了加强
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1134#       发表于 2020-8-21 19:26
+
+
+
+
+太，太女孩子了这
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1135#       发表于 2020-8-21 19:26
+
+
+
+
+胸又大了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1136#       发表于 2020-8-21 19:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，一开口就笑到我了，可爱
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 1137#       发表于 2020-8-21 19:27
+
+
+
+
+那个阿夸气球挺好玩的。想要
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1138#       发表于 2020-8-21 19:29
+
+
+
+
+这支舞还不错
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1139#       发表于 2020-8-21 19:29
+
+
+
+
+还想吐槽这家伙左右横跳没踩到点上，仔细一看是音画不同步
+
+（这套衣服能自己多用用吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1140#       发表于 2020-8-21 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刘海飘逸了好多是错觉吗
+
+
+
+
+
+
+
+-----
+
+####  月影镇魂曲  
+##### 1141#       发表于 2020-8-21 19:29
+
+
+
+
+虽然阿B场地拉胯，但现场氛围还不错
+
+
+
+
+
+
+2020-08-21_19.28.44.jpg
+(24.71 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-21 19:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/21/192932mddg0mmeg2grnnn4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1142#       发表于 2020-8-21 19:30
+
+
+
+
+狐狸那套小黑之后还用过吗······可能就是一次性了，可惜
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1143#       发表于 2020-8-21 19:34
+
+
+
+
+这声线，我被击沉了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1144#       发表于 2020-8-21 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1145#       发表于 2020-8-21 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1146#       发表于 2020-8-21 19:35
+
+
+
+
+表情好色
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1147#       发表于 2020-8-21 19:35
+
+
+
+
+看出问题了，头好大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">头身比快赶上夏色祭了
+
+不过为什么表情都是潮红眯眯笑<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">太色了吧
+
+
+
+
+
+
+
+-----
+
+####  sakuracocoa  
+##### 1148#       发表于 2020-8-21 19:35
+
+
+
+
+这首有点本音 我冲了
+
+
+
+
+
+
+
+-----
+
+####  sakuracocoa  
+##### 1149#       发表于 2020-8-21 19:35
+
+
+
+
+这首有点本音 我冲了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1150#       发表于 2020-8-21 19:36
+
+
+
+
+间奏这盲人摸象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1151#       发表于 2020-8-21 19:45
+
+
+
+
+啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1152#       发表于 2020-8-21 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">好适合的选曲，好适合的舞美
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1153#       发表于 2020-8-21 19:54
+
+
+
+
+青春，指打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1154#       发表于 2020-8-21 19:54
+
+
+
+
+这模型手臂我来飞木口的🐴了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1155#       发表于 2020-8-21 19:54
+
+
+
+
+小仓唯的歌。估计还有一首田村大魔王的
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1156#       发表于 2020-8-21 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1157#       发表于 2020-8-21 19:57
+
+
+
+
+草,胸口这穿模
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 1158#       发表于 2020-8-21 20:00
+
+
+
+
+说实话 一开始那皮的奈子挺正常的 到现在fanart各种画大 画师也跟着补大 真的不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1159#       发表于 2020-8-21 20:06
+
+
+
+
+什么，已经过半了吗
+
+
+
+
+
+           
