@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-19 12:01** 
+> ## **本文件最后更新于2020-08-23 02:01** 
 
 
 
@@ -17759,4 +17759,616 @@ UW在这方面我记得是没怎么再深入讨论下去了，结尾倒是直接
 
 
 
-                  
+
+
+-----
+
+####  pokemon最爱  
+##### 3938#       发表于 2020-8-19 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48481834&amp;ptid=1550732" target="_blank">lacusforever 发表于 2020-8-19 09:49</a>
+
+一个转移的玩家号可以脑控大多数1级号，比游戏原设神级号强得多。
+
+随便量产的1级号也可以对神级号造成显 ...</blockquote>
+1、脑控是心意的效果，明日奈直叶诗乃三个整体上成长环境还算健康的女高中生（哦直叶好像还是JC来着）自然不会用这能力。
+
+2、UW人均脆皮耐久靠血条长，Admin防武器攻击也得给自己加上金属无效属性而且一样被桐人手上一把冰剑一把木剑打伤了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bonnwang  
+##### 3939#       发表于 2020-8-19 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48483866&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2020-8-19 12:28</a>
+1、脑控是心意的效果，明日奈直叶诗乃三个整体上成长环境还算健康的女高中生（哦直叶好像还是JC来着）自 ...</blockquote>
+三女神断手断脚xjb吐血是什么鬼
+
+
+
+
+
+
+
+-----
+
+####  pokemon最爱  
+##### 3940#       发表于 2020-8-19 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48483927&amp;ptid=1550732" target="_blank">bonnwang 发表于 2020-8-19 12:33</a>
+
+三女神断手断脚xjb吐血是什么鬼</blockquote>
+疼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实际上以三女神的血条长度不是因为疼痛带来的心意的话她们的断手断脚是差不多可以立刻长出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 3941#       发表于 2020-8-19 17:12
+
+
+
+
+
+#19 覚醒
+
+
+《アインクラッド》の悪夢から抜け出し、ついにキリトが意識を取り戻す。右手に《夜空の剣》、左手に折れた《青薔薇の剣》を握るキリトは、死者のリソースを吸収し巨大化した《友切包丁》を持つヴァサゴと対峙する。憎悪の心意を増幅させるヴァサゴの剣撃に、キリトはじりじりと押し込まれていく。そして《友切包丁》がキリトの身体を両断しようと迫ったそのとき、金色に輝く手が《夜空の剣》に添えられる。
+
+
+脚本：漆原虹平
+
+絵コンテ：中重俊祐
+
+演出：中重俊祐
+
+総作画監督：山本由美子
+
+作画監督：石川愛理、鈴木理彩、今岡大、監物ケビン雄太、森前和也、木村行隆、中重俊祐、山本由美子
+
+アクション作画監督：丸山大勝
+
+<img src="https://p.sda1.dev/0/0b0b26ca4c89e7710621b1a41a7b4594/EftBGfaUMAARcuW.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/ebf5fa37bea43bf38ccdb109dc7c19db/EftBKNlUcAAbKd0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5725715fc1b1dd866e545359b56090fc/EftBOE8UYAACmcq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/6bb4e79025e38876a72dd3225eb9719d/EftBPPdUEAIWlgM.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  璇瑢子R  
+##### 3942#       发表于 2020-8-19 23:04
+
+
+
+[https://bbs.nga.cn/read.php?tid=22983509&amp;_fp=2](https://bbs.nga.cn/read.php?tid=22983509&amp;_fp=2)
+
+
+病娇型饭圈。jpg
+
+
+
+
+
+
+
+-----
+
+####  takitaki  
+##### 3943#       发表于 2020-8-20 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48490019&amp;ptid=1550732" target="_blank">璇瑢子R 发表于 2020-08-19 23:04:08</a>
+病娇型饭圈。jpg</blockquote>刀剑吧是我上班摸鱼的快乐源泉之一<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+而且每周都能整出新活。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 3944#       发表于 2020-8-20 17:18
+
+
+
+<img src="https://p.sda1.dev/0/142bd2b20febba77998ab43e4fcd84f3/19.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f36bd86bc38901c7533d581bc48f9db7/Ef2dZaQUcAApdR_.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  takitaki  
+##### 3945#       发表于 2020-8-20 23:00
+
+
+
+
+人物的脸一直有种怪怪的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  桐谷和人  
+##### 3946#       发表于 2020-8-21 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48497497&amp;ptid=1550732" target="_blank">xingenge 发表于 2020-8-20 17:18</a></blockquote>
+亚丝娜的眼神怪怪的...
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 3947#       发表于 2020-8-21 17:03
+
+
+
+
+ソードアート・オンライン アリシゼーション WoU 第19話「覚醒」予告映像
+[https://www.youtube.com/watch?v=jZkqmDCaOS4](https://www.youtube.com/watch?v=jZkqmDCaOS4)
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4540405732278274?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  芝士排骨  
+##### 3948#       发表于 2020-8-22 23:09
+
+
+
+
+太诡异了，太诡异了，太诡异了。这战场气氛太诡异了
+
+
+
+
+
+
+
+-----
+
+####  芝士排骨  
+##### 3949#       发表于 2020-8-22 23:29
+
+
+
+
+亚丝娜飞行时那么一点糖也删了，哎，，制作组到底知不知道观众想看什么
+
+这季度亚丝娜给我的形象，既不是女剑士，也不是少女
+
+像是桐人背后一个幽怨无助的小媳妇
+
+
+
+
+
+
+
+-----
+
+####  pokemon最爱  
+##### 3950#       发表于 2020-8-22 23:29
+
+
+
+
+桐人在天上想起四方会谈差点摔下去然后当着用创世神账号的亚丝娜面对创世神发誓自己没出轨然后两人接吻的剧情被删了，差评，大差评<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Piano-Forest  
+##### 3951#       发表于 2020-8-23 00:14
+
+
+
+<img src="https://s1.ax1x.com/2020/08/23/dd5RBT.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skumi  
+##### 3952#       发表于 2020-8-23 00:26
+
+
+
+
+这删减就离谱
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3953#       发表于 2020-8-23 00:47
+
+
+
+
+什么几把东西
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 3954#       发表于 2020-8-23 00:49
+
+
+
+
+脑残粉聚集的刀剑贴吧都洗不动了么，我还想看看那群高贵的脑残粉继续讲笑话呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一个陆仁贾  
+##### 3955#       发表于 2020-8-23 01:01
+
+
+
+ 本帖最后由 一个陆仁贾 于 2020-8-23 01:03 编辑 
+
+<img src="https://p.sda1.dev/0/0fbe06999dd69713459c476f6006d994/IMG_F7C496F78B9EE63983F0C16F6E6DB54A.jpeg" referrerpolicy="no-referrer">
+哈哈哈哈，谁是真女主啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SPN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 3956#       发表于 2020-8-23 01:04
+
+
+
+
+这一点都不歪嘴，感觉桐人醒来后打完poh流流泪就一笔带过直接讲设定讨伐boss，一登场咻的把几万敌兵清扫干净，咻的全部队友复活，酝酿的情绪得不到一点释放，前六集直接白演，这是在图啥，明明捆绑都能讲半集<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  芝士排骨  
+##### 3957#       发表于 2020-8-23 01:04
+
+
+
+
+我看了约400部动画
+
+从演出的糟糕而言，刀剑uw可以说是数一数二了，事实上，我不敢说哪个一定比它还要尴尬。
+
+另外
+
+这个作品花了一大半的时间尬聊冗长的世界观设定，设定都是一次性使用，最后各种吃书，没有比这更可笑更可悲的了，
+
+如果说那些简单粗暴的爽文是第零层，uw则是在地下10层以下。作者仿佛故意和观众作对，换着法降低观感，把一切糟糕的玩法都来一遍。
+
+还有人拿它和这个季度re0对比，，，和uw动画一比，我感觉国家队、罪恶网管真好看，可以吹爆
+
+
+
+
+
+
+
+-----
+
+####  Koromoda  
+##### 3958#       发表于 2020-8-23 01:17
+
+
+
+
+前半段就这？说好的醒了装逼呢？这演出low到家了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xmcp  
+##### 3959#       发表于 2020-8-23 01:19
+
+
+
+
+来张迫害图<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202008/23/011851gq7453827n30lqt5.png" referrerpolicy="no-referrer">
+
+
+<strong>11.png</strong> (684.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-23 01:18 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/23/011852hp62p69dv2006p62.png" referrerpolicy="no-referrer">
+
+
+<strong>22.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-23 01:18 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ゴロー| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ゴロー  
+##### 3960#       发表于 2020-8-23 01:31
+
+
+
+
+优纪是后来小说打了补丁变成电子幽灵了吗，我记得第二季死透了
+
+
+
+
+
+
+
+-----
+
+####  爱尔米娜  
+##### 3961#       发表于 2020-8-23 01:33
+
+
+
+
+这话制作我TM不开弹幕看不下去了，反复诈尸，队友看戏，机油比亚总还先来和桐姥爷抱抱，总的来说制作组是刀剑黑，可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  爱尔米娜  
+##### 3962#       发表于 2020-8-23 01:38
+
+
+
+ 本帖最后由 爱尔米娜 于 2020-8-23 01:46 编辑 
+
+妈的，我怀疑是跟疫情有关，霓虹那边怨气很大特意整些阴间活出来
+
+
+
+
+
+
+
+-----
+
+####  扶扶老奶奶  
+##### 3963#       发表于 2020-8-23 01:39
+
+
+
+
+诈尸很奇怪吗，这地儿就叫昂得瓦鲁多，翻译成中文就是阴曹地府，所以有些阴间人出现也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hac0101  
+##### 3964#       发表于 2020-8-23 01:39
+
+
+
+
+这演的是个啥玩意？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  eienyami  
+##### 3965#       发表于 2020-8-23 01:50
+
+
+
+
+这都啥玩意啊。。。KISS呢？是和谐了还是特么就没有，还有优纪你怎么又出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我真的是看了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  アルメリア  
+##### 3966#       发表于 2020-8-23 01:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">桐老爷牛逼 即使抱着个人 飞得比反派和龙都快
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 3967#       发表于 2020-8-23 01:53
+
+
+
+ 本帖最后由 phaie 于 2020-8-23 01:54 编辑 
+
+看了一圈感觉很奇怪为什么poh空挥刀这段也有人在黑为什么poh不去砍桐人，其他像是优纪反复诈尸众人旁观这些点确实做得肉眼可见的不好确实该喷，但我觉得挥刀这一段很明显能看出poh想和桐人争夺天命啊，这种互相争夺什么东西的时候拿着东西挥舞之类的感觉是挺常见的分镜设计，说观感差也就罢了，但从逻辑上来说是没问题的。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tmmd  
+##### 3968#       发表于 2020-8-23 01:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48522013&amp;ptid=1550732" target="_blank">扶扶老奶奶 发表于 2020-8-23 01:39</a>
+
+诈尸很奇怪吗，这地儿就叫昂得瓦鲁多，翻译成中文就是阴曹地府，所以有些阴间人出现也很正常 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有本事把前妻也唤回来
+
+
+
+
+
+                 
