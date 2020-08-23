@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-21 12:18** 
+> ## **本文件最后更新于2020-08-24 00:13** 
 
 
 
@@ -3361,4 +3361,522 @@ i5 6500+16g+1080ti卡成狗，降到high效果后算勉强<img src="https://stat
 
 
 
-                                           
+
+
+-----
+
+####  muermaru  
+##### 183#       发表于 2020-8-21 15:12
+
+
+
+
+其实我飞教程的时候总感觉机头往下沉，不知道是电风扇的问题还是自己摇杆的问题
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 184#         楼主| 发表于 2020-8-21 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48506518&amp;ptid=1953320" target="_blank">muermaru 发表于 2020-8-21 15:12</a>
+其实我飞教程的时候总感觉机头往下沉，不知道是电风扇的问题还是自己摇杆的问题 ...</blockquote>
+教程的时候要调配平，好像前几章提了一嘴
+
+自由飞的时候好像有自动配平
+
+
+
+
+
+
+
+
+-----
+
+####  Narrative  
+##### 185#       发表于 2020-8-21 19:19
+
+
+
+
+下载了第三遍终于没有错误了，好机我飞！
+
+
+
+
+
+
+
+-----
+
+####  lancasterliang  
+##### 186#       发表于 2020-8-21 19:27
+
+
+
+
+哪位朋友有游戏里这俩奖状的manual能分享一下么<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ArowRocher  
+##### 187#       发表于 2020-8-22 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48492825&amp;ptid=1953320" target="_blank">Processed 发表于 2020-8-20 10:19</a>
+
+UU</blockquote>
+win10版能用吗，没找到游戏启动路径
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 188#         楼主| 发表于 2020-8-22 08:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48511841&amp;ptid=1953320" target="_blank">ArowRocher 发表于 2020-8-22 00:24</a>
+win10版能用吗，没找到游戏启动路径</blockquote>
+win10版可以
+
+开始加速之后再打开游戏，在任务管理器我看流量都转到uu上面了
+
+
+
+
+
+
+
+-----
+
+####  Pettabuz  
+##### 189#       发表于 2020-8-22 11:46
+
+
+
+
+aircraft overstressed是啥意思 我感觉我啥都没做就没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烂菊花  
+##### 190#       发表于 2020-8-22 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48514117&amp;ptid=1953320" target="_blank">Pettabuz 发表于 2020-8-22 11:46</a>
+
+aircraft overstressed是啥意思 我感觉我啥都没做就没了</blockquote>
+做的机动动作太大过载了
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 191#         楼主| 发表于 2020-8-22 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么同一局着陆挑战结束了重开还要完整加载一次，载入一次比实际开飞机还要久真的...
+
+感觉排行榜上都是怪物，多伦多那一关第一次排名1w6，第二次基本落到蓝框里无弹跳也就四千出头
+
+什么时候可以出回放功能欣赏一下也好啊
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 192#         楼主| 发表于 2020-8-22 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">载入时间太劝退了
+
+看完一个视频发现载入条还满着但不进去实际画面，然后晃了晃鼠标发现都休眠了
+
+
+
+
+
+
+
+-----
+
+####  lokken  
+##### 193#       发表于 2020-8-22 18:45
+
+
+
+
+想问一下，XGP版本的游戏不能在游戏外下载那90G么？store里没找到直接下载90G的选择
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 194#         楼主| 发表于 2020-8-22 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48517829&amp;ptid=1953320" target="_blank">lokken 发表于 2020-8-22 18:45</a>
+
+想问一下，XGP版本的游戏不能在游戏外下载那90G么？store里没找到直接下载90G的选择 ...</blockquote>
+都不能，无论哪里的版本都是下载个启动器
+
+
+
+
+
+
+
+-----
+
+####  lokken  
+##### 195#       发表于 2020-8-22 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48518225&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-22 19:20</a>
+
+都不能，无论哪里的版本都是下载个启动器</blockquote>
+一开启动器机器就已经全负荷了，感觉我这Y9000P要转不动了
+
+
+
+
+
+
+
+-----
+
+####  烂菊花  
+##### 196#       发表于 2020-8-22 19:45
+
+
+
+
+很好奇STEAM版是不是下完了就过2小时，想退款都没的退了
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 197#       发表于 2020-8-22 21:44
+
+
+
+ 本帖最后由 isa2456 于 2020-8-22 23:02 编辑 
+
+选国内机场载入到最后进度条不动了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是我的问题还是网的问题还是游戏的问题. 可以了，每回到菜单才重新进一次世界都要重启游戏才行。还有为啥好糊啊，我还开着uu来着
+
+
+
+
+
+
+
+-----
+
+####  setree  
+##### 198#       发表于 2020-8-22 22:28
+
+
+
+
+问个问题，教程起飞那关我解了刹车锁后点火，飞机原地打滑是怎么回事...
+
+
+
+
+
+
+
+-----
+
+####  YoumuChan  
+##### 199#       发表于 2020-8-22 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48520378&amp;ptid=1953320" target="_blank">setree 发表于 2020-8-22 22:28</a>
+
+问个问题，教程起飞那关我解了刹车锁后点火，飞机原地打滑是怎么回事...</blockquote>
+教程已经点了火吧，推节流阀就行了吧
+
+
+
+
+
+
+
+-----
+
+####  YoumuChan  
+##### 200#       发表于 2020-8-22 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48500804&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-20 23:18</a>
+
+忘记教程里有没有提到，跑道边有四盏灯（PAPI灯）其实是提醒你的高度是否正确的
+
+白灯多于红灯说明你的位 ...</blockquote>
+没有，教程里让对准跑道数字，通过threshold以后flare
+
+
+
+
+
+
+
+-----
+
+####  ArowRocher  
+##### 201#       发表于 2020-8-23 02:17
+
+
+
+
+这游戏是不是没有默认冷启动？
+
+还有按键一直无法自定义设置，连个加速器才出来设置按键的下拉菜单，神秘
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 202#       发表于 2020-8-23 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48518494&amp;ptid=1953320" target="_blank">烂菊花 发表于 2020-8-22 07:45</a>
+
+很好奇STEAM版是不是下完了就过2小时，想退款都没的退了</blockquote>
+不会 G胖说下载不算时间可以申请退款
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 203#         楼主| 发表于 2020-8-23 10:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">贴吧看见手动下载地图的办法
+
+http://tieba.baidu.com/p/6899199969
+
+但光是旧金山的高质量地图就要10g
+
+
+
+
+
+
+
+
+-----
+
+####  sniffer  
+##### 204#       发表于 2020-8-23 11:25
+
+
+
+
+前两天看zard直播，水友里有海航机长连麦全程教学
+
+
+
+
+
+
+
+-----
+
+####  Processed  
+##### 205#       发表于 2020-8-23 15:22
+
+
+
+
+所以飞机配平这个有什么参数可以在仪表盘上看出来吗，XJB按完全不知道发生了什么
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 206#       发表于 2020-8-23 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48525534&amp;ptid=1953320" target="_blank">Processed 发表于 2020-8-23 15:22</a>
+所以飞机配平这个有什么参数可以在仪表盘上看出来吗，XJB按完全不知道发生了什么 ...</blockquote>
+塞斯纳配平轮旁边有个指针显示配平位置，第三人称HUD里也有显示配平位置
+
+— from samsung SM-G950F, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  神知道的sjd  
+##### 207#       发表于 2020-8-23 20:48
+
+
+
+
+机舱外视角降落还行，驾驶员视角怎么都降落不好。。。
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 208#       发表于 2020-8-23 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48528086&amp;ptid=1953320" target="_blank">神知道的sjd 发表于 2020-8-23 20:48</a>
+
+机舱外视角降落还行，驾驶员视角怎么都降落不好。。。
+
+
+— from samsung SM-G970F, Android 10 of S1 Next  ...</blockquote>
+降落的时候把视角调高点。。默认视角驾驶员应该是蹲在仪表盘前面开飞机的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神知道的sjd  
+##### 209#       发表于 2020-8-23 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48528190&amp;ptid=1953320" target="_blank">sdefrfg 发表于 2020-8-23 21:02</a>
+降落的时候把视角调高点。。默认视角驾驶员应该是蹲在仪表盘前面开飞机的 ...</blockquote>
+233，蹲着还行
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  费老师  
+##### 210#       发表于 2020-8-23 22:45
+
+
+
+
+找不到东京塔，能看到的麻烦回复我一下，看看是不是我一个人的问题
+
+
+
+
+
+
+
+-----
+
+####  setree  
+##### 211#       发表于 2020-8-23 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48523255&amp;ptid=1953320" target="_blank">Totokei 发表于 2020-8-23 10:04</a>
+
+贴吧看见手动下载地图的办法
+
+
+http://tieba.baidu.com/p/6899199969</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我拉了个苏锡+魔都的中精度（机场&amp;地标建筑高精度），目前下载时间：12小时37分钟，下载进度44%
+
+估计要下一天
+
+
+
+
+
+                                          
