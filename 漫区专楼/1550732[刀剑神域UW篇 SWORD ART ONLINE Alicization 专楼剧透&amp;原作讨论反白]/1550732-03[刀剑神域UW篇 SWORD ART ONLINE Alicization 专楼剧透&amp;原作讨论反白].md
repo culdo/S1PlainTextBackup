@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-23 02:01** 
+> ## **本文件最后更新于2020-08-23 14:01** 
 
 
 
@@ -18371,4 +18371,569 @@ UW在这方面我记得是没怎么再深入讨论下去了，结尾倒是直接
 
 
 
-                 
+
+
+-----
+
+####  灵魂收割机  
+##### 3969#       发表于 2020-8-23 02:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48522083&amp;ptid=1550732" target="_blank">phaie 发表于 2020-8-23 01:53</a>
+
+看了一圈感觉很奇怪为什么poh空挥刀这段也有人在黑为什么poh不去砍桐人，其他像是优纪反复诈尸众人旁观这些 ...</blockquote>
+大概想一下确实能想明白POH在干嘛，但是那个演出效果很生草，至少该给点镜头提示。
+
+
+
+
+
+
+
+-----
+
+####  pokemon最爱  
+##### 3970#       发表于 2020-8-23 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48522074&amp;ptid=1550732" target="_blank">アルメリア 发表于 2020-8-23 01:51</a>
+
+桐老爷牛逼 即使抱着个人 飞得比反派和龙都快</blockquote>
+这个是桐人用的飞行方式的原因，桐人文库版这里的飞行方式是脚底生成风素喷出进行飞行速度达到了喷气式飞机的水平？（比起WEB直接变成一道光的飞法已经削了很多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  shadow001  
+##### 3971#       发表于 2020-8-23 02:23
+
+
+
+
+桐老爺你是buster machine幾號機?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2020/08/23/jS3H2mOYFyoZMp5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  evangelina  
+##### 3972#       发表于 2020-8-23 03:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48521972&amp;ptid=1550732" target="_blank">爱尔米娜 发表于 2020-8-23 01:33</a>
+
+这话制作我TM不开弹幕看不下去了，反复诈尸，队友看戏，机油比亚总还先来和桐姥爷抱抱，总的来说制作组是刀 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202008/23/033331xikjajgd56kgkzuk.gif" referrerpolicy="no-referrer">
+
+
+<strong>BBh2yhyewncvyun3y4vy3.gif</strong> (1.21 MB, 下载次数: 1)
+
+下载附件
+
+2020-8-23 03:33 上传
+
+
+
+
+
+
+
+砍空气太好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hlazd  
+##### 3973#       发表于 2020-8-23 03:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这都演的什么玩意
+
+
+
+
+
+
+
+-----
+
+####  mcq_2  
+##### 3974#       发表于 2020-8-23 07:57
+
+
+
+
+明显就是在拖戏。原著到这里基本最多剩两话的剧情了。硬生生的拖出四五话来。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  X(iaolw)S  
+##### 3975#       发表于 2020-8-23 08:01
+
+
+
+
+回升到5.1分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 3976#       发表于 2020-8-23 08:08
+
+
+
+
+怎么蠢怎么来，中日观众口味差异这么大吗？
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 3977#       发表于 2020-8-23 08:24
+
+
+
+
+让你们说他会按着书来
+
+
+
+
+
+
+
+-----
+
+####  lyf1944  
+##### 3978#       发表于 2020-8-23 08:54
+
+
+
+
+反复消费优纪实在让人不能忍，SAO和现实世界不多的联系紧密的泪点。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DIG-AL00, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  hqtkkb  
+##### 3979#       发表于 2020-8-23 09:33
+
+
+
+
+还行啊——啊我是指bgm
+
+
+
+
+
+
+
+-----
+
+####  ads147147  
+##### 3980#       发表于 2020-8-23 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48522319&amp;ptid=1550732" target="_blank">evangelina 发表于 2020-8-23 03:33</a>
+
+砍空气太好笑了</blockquote>
+太草了。要不是a1和日升不是一家，我真想说有这经费干嘛不给隔壁BDR，人家为了赶进度精英怪都是一刀秒就为了省战斗卡给合体。
+
+
+
+
+
+
+
+-----
+
+####  StarFuture  
+##### 3981#       发表于 2020-8-23 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48523119&amp;ptid=1550732" target="_blank">hqtkkb 发表于 2020-8-23 09:33</a>
+
+还行啊——啊我是指bgm</blockquote>
+打斗开始之前出现了一段诡异的BGM<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YaZ  
+##### 3982#       发表于 2020-8-23 10:13
+
+
+
+
+这也太草了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  璇瑢子R  
+##### 3983#       发表于 2020-8-23 10:52
+
+
+
+
+可以改名诈尸神域了。。。
+
+
+不诈尸不舒服斯基
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 3984#       发表于 2020-8-23 11:09
+
+
+
+
+不是，说好的醒来之后爽一下呢，怎么一点都不爽啊
+
+
+
+
+
+
+
+-----
+
+####  bonnwang  
+##### 3985#       发表于 2020-8-23 11:28
+
+
+
+
+终于明白了
+这uw是女性向番
+
+
+
+
+
+
+
+-----
+
+####  蓝川澈  
+##### 3986#       发表于 2020-8-23 11:57
+
+
+
+
+关了声音再加个1.25倍速表示还行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ATRO  
+##### 3987#       发表于 2020-8-23 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">吃瓜群众站桩围观比水比特瓦根还生艹，之前推轮椅时倒是挺来劲<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gooddays  
+##### 3988#       发表于 2020-8-23 12:09
+
+
+
+ 本帖最后由 Gooddays 于 2020-8-23 12:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48522083&amp;ptid=1550732" target="_blank">phaie 发表于 2020-8-23 01:53</a>
+看了一圈感觉很奇怪为什么poh空挥刀这段也有人在黑为什么poh不去砍桐人，其他像是优纪反复诈尸众人旁观这些 ...</blockquote>
+问题在于天命这东西可以靠不断空斩去争夺的吗？再加上如果目标是用武器接触天命，不是应该伸出武器看准目标去碰触吗？斩来斩去的动作大部分也碰触不到天命吧。
+
+最莫名其妙在于动画显示他即使把武器伸到最尽好像也碰触不到天命，他挥了这么多下还没发现自己高度不足的问题？Poh 那画面像一个企图在地上挥刀斩天上飞鸟的傻子。
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 3989#       发表于 2020-8-23 12:14
+
+
+
+
+评论区<blockquote>雷纳图-芬里尔
+
+优吉欧：他们又打不过了<img src="http://i0.hdslb.com/bfs/emote/a651db36701610aa70a781fa98c07c9789b11543.png" referrerpolicy="no-referrer">
+
+优纪：我们下去帮他们一下<img src="http://i0.hdslb.com/bfs/emote/c3043ba94babf824dea03ce500d0e73763bf4f40.png" referrerpolicy="no-referrer">
+
+来自安卓客户端 11小时前</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说评论区很多人都在说删桐亚糖，你就是春物同款制作组？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyer  
+##### 3990#       发表于 2020-8-23 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48523797&amp;ptid=1550732" target="_blank">bonnwang 发表于 2020-8-23 11:28</a>
+
+终于明白了
+
+这uw是女性向番</blockquote>
+不许侮辱女性！这对她们来说也太恶毒了！<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小红飞翼  
+##### 3991#       发表于 2020-8-23 12:25
+
+
+
+
+亚丝娜虽然是刀剑第一摇钱树 但动画地位的确不咋地 后面两集希望不要把你亚刻画成第三者 
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 3992#       发表于 2020-8-23 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524105&amp;ptid=1550732" target="_blank">Gooddays 发表于 2020-08-23 12:09:06</a>
+问题在于天命这东西可以靠不断空斩去争夺的吗？再加上如果目标是用武器接触天命，不是应该伸出武器看准 ...</blockquote>因为poh也能凭空吸啊，前面演出效果就是举着刀然后源源不断地就过来了，只不过现在吸不过桐人都被桐人吸走了。前面举刀吸发现吸不过来然后气急败坏地挥刀想看看是否还能吸回来，这么突出一个无能狂怒我觉得是挺正常的分镜设计，而且毕竟高度摆在哪你要让poh跳起来砍不是更生草<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这类桥段要是放在其他番里我想大家可能笑笑就过去了，但现在刀剑的风气是一有点观感差就要往死里黑着实有些过了。uw动画是烂什么都没讲清脚本不合格这点没人洗得了，不过把什么点都要揪出来批判一番倒也不必。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pokemon最爱  
+##### 3993#       发表于 2020-8-23 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524105&amp;ptid=1550732" target="_blank">Gooddays 发表于 2020-8-23 12:09</a>
+
+问题在于天命这东西可以靠不断空斩去争夺的吗？再加上如果目标是用武器接触天命，不是应该伸出武器看准目 ...</blockquote>
+跟高度无关，就算够到他也夺取不了天命资源，因为小说设定上他的武器性质是吸收死亡，而青蔷薇记忆解放释放的天命是慢慢从被冻者身体里夺取出来的不是直接打死释放的。他的动作也只是试图阻止桐人的黑剑吸收天命。当然动画没有解释这点做出来的效果也极其生草就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Gooddays  
+##### 3994#       发表于 2020-8-23 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524306&amp;ptid=1550732" target="_blank">phaie 发表于 2020-8-23 12:31</a>
+因为poh也能凭空吸啊，前面演出效果就是举着刀然后源源不断地就过来了，只不过现在吸不过桐人都被桐人吸走 ...</blockquote>
+那要看动画，例如天龙舞，甲铁城，鬼灭的 Boss 丑态是被长久拿来取笑的。SAO 的问题是作者让人感到时常丑化反派，大家开始审美疲劳了吧。
+
+再加上 Poh 虽然是想吸天命，但这不是解决桐人的唯一手段，跑过去斩桐人也是一个选择，对于觉得应选择斩桐人的读者来说，Poh 发现吸不了天命后还在乱挥刀的动作自然有问题。
+
+所以这不是 Poh 想干什么，而是 Poh 那一刻是否能选择更好的行动，除非 “斩桐人” 这行为是那一刻绝对不应做的，否则 Poh 那挥刀免不了被批评。
+
+
+
+
+
+
+
+
+-----
+
+####  pokemon最爱  
+##### 3995#       发表于 2020-8-23 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524692&amp;ptid=1550732" target="_blank">Gooddays 发表于 2020-8-23 13:17</a>
+
+那要看动画，例如天龙舞，甲铁城，鬼灭的 Boss 丑态是被长久拿来取笑的。SAO 的问题是作者让人感到时常丑 ...</blockquote>
+桐人在吸收空间资源砍过去有啥用还不是立刻被奶回去了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  芝士排骨  
+##### 3996#       发表于 2020-8-23 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524352&amp;ptid=1550732" target="_blank">pokemon最爱 发表于 2020-8-23 12:35</a>
+
+跟高度无关，就算够到他也夺取不了天命资源，因为小说设定上他的武器性质是吸收死亡，而青蔷薇记忆解放释 ...</blockquote>
+说实话，心意这个设定本身就是强行解释，甚至还吃书
+
+
+树木啊，花啊。一个ai实验舱里设置的物体怎么还会有记忆？
+
+
+心意不是意志力覆盖系统吗？说白了就是想啥来啥，那为什么还需要武器限制能力？如果加百列是个“幻想冰冻”的中二病，是不是他也可以像蔷薇之剑一样随意把人冻住？
+
+
+心意是意志力覆盖系统，是个需要主观想象的行为，优吉欧不说，优记为啥还能主动和亚丝娜搭话？她和uw没半毛钱关系，而且亚丝娜也没主动想她。
+
+
+战场上，不说中美韩玩家，那些uw的战士经历了那么多死亡战斗，他们就没有心意吗？他们对逝者的心意不如几个孩子？他们砍杀这么多人，对死亡的理解会不如poh？
+
+
+
+
+
+
+
+-----
+
+####  phaie  
+##### 3997#       发表于 2020-8-23 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524692&amp;ptid=1550732" target="_blank">Gooddays 发表于 2020-08-23 13:17:17</a>
+那要看动画，例如天龙舞，甲铁城，鬼灭的 Boss 丑态是被长久拿来取笑的。SAO 的问题是作者让人感到时常丑 ...</blockquote>问题在于对poh来说他和桐人也不是什么生死战必须要抓住每一个可把握的点去攻击，毕竟退一万步来说他最多让桐人下线又不能真的让他去死，而前一集也描述了他对桐人扭曲的感情想折磨他让他绝望。所以这里有种“我就不信了老子还弄不过你”“再多试几下说不定就能让我吸到了，这样就欣赏到桐人绝望的表情了”之类的想法不到最后一刻不放弃还是说得过去的。解决桐人不是第一位，poh想得是能让他愉悦地进行这一切，散布自己的恐惧，否则一开始桐人自闭时直接杀了他不就好了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 3998#       发表于 2020-8-23 14:01
+
+
+
+
+什么sb演出，和前半塔顶打administrator一样一大群人围着boss就是要边缘ob，反正大家确信桐人能吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+有纪两集下来反复复活三四遍，原本也不太多的背后灵感动正式归零。还有后面就不能一边飞一边通讯吗？剧情说时间很紧张但你这停下来慢条斯理的对话实在看不出哪里紧张了。
+
+
+至于bgm运用我觉得还行吧，看了隔壁租借女友后看什么都觉得不错了，不过桐人打poh时不知道为什么人声完全被bgm和音效盖过了，这很影响能不能燃起来啊
+
+
+剧情和前面说的的一样，先不说这动画有没有把某些设定细节做出来，这剧情在小说能自圆其说并不代表不sb
+
+
+
+
+
+                

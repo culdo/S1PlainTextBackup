@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-23 12:02** 
+> ## **本文件最后更新于2020-08-23 14:02** 
 
 
 
@@ -1229,10 +1229,11 @@ syl 今天两场见面会v区流量直逼外野，楼gachi还是很强的啊<img
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| dilemma| + 1|好评加鹅|
 | gundamf91| + 1|好评加鹅|
 | 二岩枫| + 1|好评加鹅|
 
@@ -1845,4 +1846,497 @@ suki
 
 
 
-                                              
+
+
+-----
+
+####  暗心舞踏  
+##### 9095#       发表于 2020-8-23 12:06
+
+
+
+
+傻紫和船长都是上了414线下会的祝福pv的，现在0来往难道就是不认识了吗，真没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 9096#       发表于 2020-8-23 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48523707&amp;ptid=1945537" target="_blank">kolu33 发表于 2020-8-23 11:14</a>
+bls的那个界面，嘉宾介绍从左往右第一位是阿夸，但是当初第二名明明是花丸啊，这样不好吧 ...</blockquote>
+而且花丸的名字都不打全，我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9097#       发表于 2020-8-23 12:20
+
+
+
+
+阿b草台总是超乎你的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9098#       发表于 2020-8-23 12:21
+
+
+
+
+难道说睿站看到花丸家炸了就果断的抛弃了吗，天狗们要是炸了，阿咩也会是这个下场吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 9099#       发表于 2020-8-23 12:36
+
+
+
+
+ 花丸粉丝去质问下，才有回答吧，不问就装死夹私货搞鬼是B站一贯风格啊
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9100#       发表于 2020-8-23 12:40
+
+
+
+
+花丸家怎么就炸了，什么时候的事
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9101#       发表于 2020-8-23 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524400&amp;ptid=1945537" target="_blank">JY要塞 发表于 2020-8-23 12:40</a>
+
+花丸家怎么就炸了，什么时候的事</blockquote>
+前几个月，粉丝内部争斗，运营和v本人下场站队，然后就boom了
+
+syl 花丸的粉头里可是有病栋老gachi这类的生物，不炸见鬼了，只是早晚的问题
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9102#       发表于 2020-8-23 12:50
+
+
+
+
+官方字幕组和两个和官方合作的海盗组之间的事，相互争抢人力资源，还出了人肉冲塔的事，最后官方下场站队，金主出走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9103#       发表于 2020-8-23 12:53
+
+
+
+
+草这也太.... 不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9104#       发表于 2020-8-23 12:56
+
+
+
+
+所以今年斗虫就少了一个对手了，个人感觉威胁比较大的就星街和圣皇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9105#       发表于 2020-8-23 12:56
+
+
+
+
+天狗老内斗了，不用不安
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9106#       发表于 2020-8-23 12:57
+
+
+
+
+维阿众人跟阿希难道没有竞争力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 9107#       发表于 2020-8-23 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然现在mea流量有点弱了，但个人比较容易控制还算一个优势，只要分子钱够阿B应该还是愿意捧的吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9108#       发表于 2020-8-23 12:59
+
+
+
+
+猜一个魔女吧，☔橄榄所有日v
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9109#       发表于 2020-8-23 13:00
+
+
+
+
+看营收明显是国v了，阿b还是掌控了未来
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9110#       发表于 2020-8-23 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524517&amp;ptid=1945537" target="_blank">Mr.shelter 发表于 2020-8-23 12:53</a>
+
+草这也太.... 不安</blockquote>
+不安个毛线，你咩饭圈费拉不堪，内斗都只敢在窝里斗，还得靠anti给你咩本人传话
+
+看看人家唱见+古风圈，打得v本人脑浆都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9111#       发表于 2020-8-23 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524579&amp;ptid=1945537" target="_blank">A2014720 发表于 2020-8-23 13:00</a>
+
+看营收明显是国v了，阿b还是掌控了未来</blockquote>
+今年就看冰糖还是vr了，勒夫不敢插一脚吧
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9112#       发表于 2020-8-23 13:03
+
+
+
+ 本帖最后由 単推し人 于 2020-8-23 13:10 编辑 
+
+杏在404越混越好之后就越来越不想理这边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到年底还不知道啥状况呢，vr和冰糖确实是有竞争力的
+
+不过vr打钱力是蛮足的单个人的粉丝量却都很少，除非bls给他们搞个团体演唱会，要不给个人搞体量不一定够吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9113#       发表于 2020-8-23 13:11
+
+
+
+
+谁知道今年后半年会不会蹦出来一个现象级的，还是养老吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9114#       发表于 2020-8-23 13:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">年年都在凉了和养老
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9115#       发表于 2020-8-23 13:21
+
+
+
+
+快进到编排毕业
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9116#       发表于 2020-8-23 13:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都没到10月3号你们怎么又开始编排斗虫了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 9117#       发表于 2020-8-23 13:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">上次12月自我催眠，这次8月底就要自我催眠了吗。你们是想冲掉单次直播打钱的新纪录吗
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9118#       发表于 2020-8-23 13:27
+
+
+
+
+等等现在最关键的问题是十一长假真的能如期搞出来这个bls吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9119#       发表于 2020-8-23 13:33
+
+
+
+
+等一下，突然想起来，既然极光公主服都有了，是不是该有对应的一首bls原创主题曲呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9120#       发表于 2020-8-23 13:34
+
+
+
+
+那新曲是跟之前一样自己独立找人完成的还是也有阿B的参与呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9121#       发表于 2020-8-23 13:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正三首原创曲大概率都要走一遍，没准还会现场切换形态啥的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9122#       发表于 2020-8-23 13:37
+
+
+
+
+说不定中午那场就是bls主题曲呢，感觉挺适合的，也符合叔叔的一掰二的形象😆
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9123#       发表于 2020-8-23 13:38
+
+
+
+
+感觉第三首的曲风很大几率可以拉动本土盘啊。应该不是我滤镜问题吧。
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9124#       发表于 2020-8-23 13:38
+
+
+
+
+重新看了一遍新曲那段，她怎么这么帅哦
+
+
+
+
+
+                                             
