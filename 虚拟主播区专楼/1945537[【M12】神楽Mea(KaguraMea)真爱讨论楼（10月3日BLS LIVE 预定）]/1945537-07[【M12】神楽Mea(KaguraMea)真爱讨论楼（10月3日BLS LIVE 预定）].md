@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-23 14:02** 
+> ## **本文件最后更新于2020-08-23 18:02** 
 
 
 
@@ -1148,7 +1148,7 @@ syl 今天两场见面会v区流量直逼外野，楼gachi还是很强的啊<img
 
 
 
- 本帖最后由 鷹書たかしょ 于 2020-8-23 01:23 编辑 
+ 本帖最后由 鷹書たかしょ 于 2020-8-23 14:09 编辑 
 
 这回有线上直播感觉内容没什么好repo的，说下线下会场的见闻吧。
 
@@ -1164,7 +1164,7 @@ syl 今天两场见面会v区流量直逼外野，楼gachi还是很强的啊<img
 
 整体还是很满意的，给10分，12分给她，-2分给阿B草台及拉垮环节。
 对了，场贩的周边种类还是太少了，和套票送的没差多少，希望下回种类能丰富点，明信片亚克力牌都可以弄弄。
-还是太短了，每场都有种意犹未尽的感觉，感觉两场加起来内容还不如去年她自己办的414的一半多，当然这会有唱歌，也是一部分原因。
+还是太短了，每场都有种意犹未尽的感觉，感觉两场加起来内容还不如去年她自己办的414的一半多，当然这回有唱歌，也是一部分原因。
 期待10月BLS。
 
 
@@ -2339,4 +2339,1091 @@ syl 花丸的粉头里可是有病栋老gachi这类的生物，不炸见鬼了�
 
 
 
-                                             
+
+
+-----
+
+####  A2014720  
+##### 9125#       发表于 2020-8-23 14:08
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 14:10 编辑 
+
+做梦一下，b能搞出极光ddd和现场变身，那我就…
+
+隔壁怎么来了一堆奇怪的人啊，不是又又又又又出圈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也许单纯的伸手党和视频贩子吧，是我想多了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9126#       发表于 2020-8-23 14:15
+
+
+
+
+除了奸商外，见面会口碑不错，想补票的估计不少吧
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 9127#       发表于 2020-8-23 14:15
+
+
+
+
+气抖冷，看个个人势18线小主播都要白嫖的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9128#       发表于 2020-8-23 14:16
+
+
+
+
+单纯只看看不说话的人比较多吧，这有啥好不安，你楼都有一群视奸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草还有要加微信的，是挺怪的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9129#       发表于 2020-8-23 14:19
+
+
+
+
+有狗
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9130#       发表于 2020-8-23 14:21
+
+
+
+
+楼里有女粉吗，加个微信
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9131#       发表于 2020-8-23 14:23
+
+
+
+
+所以昨天下午那场是开播了之后也没法补票的吗？那阿b属实艹蛋，这样就少了很多临时进来看的啊，圣皇那场七点开八点好像才售票结束<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9132#       发表于 2020-8-23 14:32
+
+
+
+
+有没有便宜出mea框的老哥私信我
+
+
+
+
+
+
+
+-----
+
+####  百鬼绫目  
+##### 9133#       发表于 2020-8-23 14:42
+
+
+
+
+魔法少女mea
+
+
+基础-蓝莓装甲
+
+
+换装-草莓装甲
+
+换装-柠檬装甲
+
+换装-蜜桃装甲
+
+
+最终-极光公主
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9134#       发表于 2020-8-23 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48525269&amp;ptid=1945537" target="_blank">百鬼绫目 发表于 2020-8-23 14:42</a>
+
+魔法少女mea
+
+
+基础-蓝莓装甲</blockquote>
+最终不应该是水果拼盘吗？？？
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9135#       发表于 2020-8-23 14:56
+
+
+
+
+不知道是不是mea的主意，但极光公主这个意象和名号实在是太帅太美了，我喜欢帅气的女人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 9136#       发表于 2020-8-23 15:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/23/150531rpzbjj0zzfvzkmml.jpg" referrerpolicy="no-referrer">
+
+
+<strong>32132.jpg</strong> (211.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-23 15:05 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/23/150532iqzlhzy7kqukhdk2.png" referrerpolicy="no-referrer">
+
+
+<strong>32322.png</strong> (150.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-23 15:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 9137#       发表于 2020-8-23 15:09
+
+
+
+
+大腿里也没光啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9138#       发表于 2020-8-23 15:12
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 15:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我初看三视图看到裙子里的颜色，莫名想到的是星之彩，对就是这个<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9139#       发表于 2020-8-23 15:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节目效果如此爆炸的场次却不能切片，流量民恐怕已经吐血身亡了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9140#       发表于 2020-8-23 15:26
+
+
+
+
+应该是化身暗黑事业民免费传播片源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9141#       发表于 2020-8-23 15:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么什么都有暗黑的
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9142#       发表于 2020-8-23 15:32
+
+
+
+
+这是敌我同源<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9143#       发表于 2020-8-23 15:55
+
+
+
+
+我是暗黑健康民<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9144#       发表于 2020-8-23 15:59
+
+
+
+
+这绿紫黑的渐变颜色让我有种五彩斑斓的黑的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9145#       发表于 2020-8-23 16:15
+
+
+
+
+等等看隔壁v综说阿B百万新衣服，那么咩咩也会有这个待遇吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9146#       发表于 2020-8-23 16:21
+
+
+
+
+草，去隔壁问了一句怎么还让加微信的，录播多转几个地方就找到了，阿b不留录像真的离谱，门票降低点卖录播都能赚一笔了，话说今天是彻底不播了吗，什么时候能等到后日谈呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9147#       发表于 2020-8-23 16:53
+
+
+
+
+贷款bls也就罢了，还百万粉，暑假一过增速慢下来都明年的事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9148#       发表于 2020-8-23 17:08
+
+
+
+
+对了 隔壁阿苔和舞元准备搞夫妻直播了 你楼独角兽可以放心了 舞咩cp要无疾而终了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9149#       发表于 2020-8-23 17:10
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 17:11 编辑 
+
+如月组长合唱，这是双喜临门啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+期待已久的双人合唱，好起来了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 9150#       发表于 2020-8-23 17:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">这可恶的苔苔，就是用6年前的自己出去钓鱼，然后再占为己有。不过舞元她就拿去玩修罗场吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9151#       发表于 2020-8-23 17:11
+
+
+
+
+线下联动，指跟如月
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9152#       发表于 2020-8-23 17:12
+
+
+
+
+和小绿跑ktv去了可还行，好起来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9153#       发表于 2020-8-23 17:12
+
+
+
+
+这么看是玩了一天？好！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9154#       发表于 2020-8-23 17:13
+
+
+
+
+贴贴！贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9155#       发表于 2020-8-23 17:14
+
+
+
+
+呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9156#       发表于 2020-8-23 17:17
+
+
+
+
+上次和koyori联动已经有超级兔子人了，这次是什么，不会是线下合唱吧。
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9157#       发表于 2020-8-23 17:17
+
+
+
+
+草，线下还行，之前不是说物理距离挺远的吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9158#       发表于 2020-8-23 17:18
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9159#       发表于 2020-8-23 17:18
+
+
+
+
+小绿这几天和家里人来东京旅游了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9160#       发表于 2020-8-23 17:19
+
+
+
+
+这辈子居然有机会看到她第二次线下联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9161#       发表于 2020-8-23 17:19
+
+
+
+
+下属上门讨说法了，高性能PC呢
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9162#       发表于 2020-8-23 17:19
+
+
+
+
+真的是歌回联动草<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9163#       发表于 2020-8-23 17:20
+
+
+
+
+惊了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9164#       发表于 2020-8-23 17:20
+
+
+
+
+俺寻思小绿发bl推的时候其实麻也在场？快见到绿麻合照
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9165#       发表于 2020-8-23 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48526481&amp;ptid=1945537" target="_blank">cgz 发表于 2020-8-23 17:19</a>
+
+这辈子居然有机会看到她第二次线下联动</blockquote>
+其实不是第二次 
+
+之前起码有三次线下 暗黑女子会 和口吃神那次 还有贴贴人圣经那次
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9166#       发表于 2020-8-23 17:21
+
+
+
+
+好好好
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9167#       发表于 2020-8-23 17:24
+
+
+
+
+说不定是刚被推荐完一轮bl，就顺势发了个推
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 9168#       发表于 2020-8-23 17:25
+
+
+
+
+杞忧民呢，日本，线下，ktv封闭空间，疫情没控制住，要素太齐全了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9169#       发表于 2020-8-23 17:27
+
+
+
+
+我来莓良心了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+QQ图片20200823172205_副本.png
+(923.96 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-23 17:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/23/172714va05500r00pp6p2h.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dualist彩| + 1|思路广|
+| makourisu| + 1|好评加鹅|
+| 肚子疼了| + 1|基德基德|
+| ashero| + 1|大人，食大便了|
+| Mr.shelter| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9170#       发表于 2020-8-23 17:27
+
+
+
+
+真想卡拉OK在家里也能搞吧，在油管播估计是在家里
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9171#       发表于 2020-8-23 17:29
+
+
+
+
+〇〇湾沸腾<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9172#       发表于 2020-8-23 17:30
+
+
+
+
+330完整复刻，你楼连体人还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9173#       发表于 2020-8-23 17:31
+
+
+
+
+两条推都是网页发的，除非你咩姐买了个笔记本带去ktv了，否则其实就是把如月叫到家里玩了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 9174#       发表于 2020-8-23 17:31
+
+
+
+
+meall党大胜利。被动诱受的威力真的可怕。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9175#       发表于 2020-8-23 17:33
+
+
+
+
+此时此刻恰如彼时彼刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9176#       发表于 2020-8-23 17:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好耶！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9177#       发表于 2020-8-23 17:34
+
+
+
+
+贴贴！！！
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9178#       发表于 2020-8-23 17:39
+
+
+
+
+神乐组好耶！贴贴万岁！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9179#       发表于 2020-8-23 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到摸如月大腿
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9180#       发表于 2020-8-23 17:41
+
+
+
+ 本帖最后由 単推し人 于 2020-8-23 17:45 编辑 
+
+如月和noe昨天其实都和咩一起在阿b分部那吧，然后今天顺道就和如月再玩会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这么想软软冰岂不是神乐组全员都见过了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+再想一下电脑，同时正好拿给noe?对上了，都对上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9181#       发表于 2020-8-23 17:44
+
+
+
+
+夜宵到底是谁啊，快进到4人线下麻将<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">晚上盖大通铺
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9182#       发表于 2020-8-23 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么彼时彼刻....恰如此时此刻。竟能如此相像？
+
+
+这代表色还真应景，小绿果然是个擅长制造绿色的铝人（指noe缺席）
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 9183#       发表于 2020-8-23 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">好耶
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9184#       发表于 2020-8-23 17:46
+
+
+
+ 本帖最后由 単推し人 于 2020-8-23 17:48 编辑 
+
+发散一下昨天是阿咩看noe电脑太差一直事故借着见面会的机会从阿b那要了台电脑，或者就是阿咩买的，真是好组长啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
