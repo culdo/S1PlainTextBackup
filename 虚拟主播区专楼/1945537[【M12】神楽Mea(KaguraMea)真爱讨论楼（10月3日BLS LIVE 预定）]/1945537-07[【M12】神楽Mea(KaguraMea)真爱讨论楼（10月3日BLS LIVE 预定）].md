@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-23 18:02** 
+> ## **本文件最后更新于2020-08-23 20:03** 
 
 
 
@@ -3125,7 +3125,7 @@ syl 花丸的粉头里可是有病栋老gachi这类的生物，不炸见鬼了�
 
 
 QQ图片20200823172205_副本.png
-(923.96 KB, 下载次数: 0)
+(923.96 KB, 下载次数: 1)
 
 
 
@@ -3160,10 +3160,11 @@ QQ图片20200823172205_副本.png
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Sanguine| + 1|欢乐多|
 | Dualist彩| + 1|思路广|
 | makourisu| + 1|好评加鹅|
 | 肚子疼了| + 1|基德基德|
@@ -3426,4 +3427,2303 @@ meall党大胜利。被动诱受的威力真的可怕。
 
 
 
-                                           
+
+
+-----
+
+####  离心  
+##### 9185#       发表于 2020-8-23 18:06
+
+
+
+
+好耶！
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9186#       发表于 2020-8-23 18:08
+
+
+
+
+以后夜宵出道可就是夜神月组合，但noe怎么办
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9187#       发表于 2020-8-23 18:09
+
+
+
+
+这是设备又拉跨了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9188#       发表于 2020-8-23 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48526669&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-8-23 17:46</a>
+发散一下昨天是阿咩看noe电脑太差一直事故借着见面会的机会从阿b那要了台电脑，或者就是阿咩买的，真是好组 ...</blockquote>
+你这跟贴贴人虚空制糖有啥区别
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 9189#       发表于 2020-8-23 18:10
+
+
+
+
+醒醒，紫色的还在关西呢。之前也没说出门了。我估计都没来东京，
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9190#       发表于 2020-8-23 18:10
+
+
+
+
+快进到颜出
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9191#       发表于 2020-8-23 18:10
+
+
+
+
+说是稍等一下，可能趁机会把如月办了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9192#       发表于 2020-8-23 18:10
+
+
+
+
+🌿，无所谓，除非mea和别人直播磨豆腐，一般我都不会信贴贴的。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9193#       发表于 2020-8-23 18:11
+
+
+
+
+感觉你楼的暗黑贴贴人都是磨豆腐派啊，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9194#       发表于 2020-8-23 18:11
+
+
+
+
+这不是糖，这是关心体贴下属的好组长形象啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且没那么虚空吧，昨天不是说要送高配电脑吗，就算游戏输了但应该也送了吧，要不无缘无故提送电脑干啥
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9195#       发表于 2020-8-23 18:11
+
+
+
+ 本帖最后由 草牛 于 2020-8-23 18:13 编辑 
+
+已经开始磨豆腐了，马上就是双头龙
+极端粉丝总是有相似之处的，脑补完幻灭可不要怪你咩姐哦
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9196#       发表于 2020-8-23 18:12
+
+
+
+
+那你这是二创了，别入脑啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9197#       发表于 2020-8-23 18:12
+
+
+
+
+开始特色快进了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9198#       发表于 2020-8-23 18:13
+
+
+
+
+极道组长ntr组员<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9199#       发表于 2020-8-23 18:14
+
+
+
+
+看来是完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，在一个宾馆睡了，还一起洗澡了？我tm3倍快进，听着声音应该是在家里
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9200#       发表于 2020-8-23 18:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道你咩姐是个爱对妹子动手动脚的lsp，但lsp（恋尸癖）是什么新的方向，你们又在给她新装什么xp系统
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽，开房了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 9201#       发表于 2020-8-23 18:15
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9202#       发表于 2020-8-23 18:15
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 18:21 编辑 
+
+“我不能对不起noe<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">”
+或者
+“noe对不起<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，如月她实在是太棒了”
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 9203#       发表于 2020-8-23 18:18
+
+
+
+
+这自动快进了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9204#       发表于 2020-8-23 18:18
+
+
+
+
+奇怪为啥用静态图
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9205#       发表于 2020-8-23 18:18
+
+
+
+
+全程姨母笑的在看直播，上次是什么时候，哦，2019年啊
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9206#       发表于 2020-8-23 18:18
+
+
+
+
+快进结束了，已经睡过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9207#       发表于 2020-8-23 18:19
+
+
+
+
+线下除非2个摄像头，否则动捕只能捕捉一个的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9208#       发表于 2020-8-23 18:20
+
+
+
+
+mea如月是真的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9209#       发表于 2020-8-23 18:20
+
+
+
+
+啊这，noe太惨了⑧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9210#       发表于 2020-8-23 18:22
+
+
+
+
+太贴了，我太感动了，泪目
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9211#       发表于 2020-8-23 18:22
+
+
+
+
+组内不合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9212#       发表于 2020-8-23 18:24
+
+
+
+
+咩姐带头泄露现场内容<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9213#       发表于 2020-8-23 18:25
+
+
+
+
+最近色图确实多了一点<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9214#       发表于 2020-8-23 18:26
+
+
+
+
+吵死了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9215#       发表于 2020-8-23 18:26
+
+
+
+
+ライオン無理す
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9216#       发表于 2020-8-23 18:27
+
+
+
+
+如月你这样还算是二次元吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9217#       发表于 2020-8-23 18:27
+
+
+
+
+二刺螈请你停止你的行为
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9218#       发表于 2020-8-23 18:29
+
+
+
+
+不要把一般人和二次元爱全开的家伙相提并论
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9219#       发表于 2020-8-23 18:29
+
+
+
+
+foo↑ foo↑<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9220#       发表于 2020-8-23 18:30
+
+
+
+
+呜呜呜，如月一出声阿咩在和池面线下卡拉OK
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9221#       发表于 2020-8-23 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无懂哥说下这是在家里还是？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9222#       发表于 2020-8-23 18:31
+
+
+
+
+这是家里吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你咩组cp起手都是睡过的太pro了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9223#       发表于 2020-8-23 18:32
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9224#       发表于 2020-8-23 18:32
+
+
+
+
+如月这是陪领导唱歌，唱的好也不是，唱的不好也不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9225#       发表于 2020-8-23 18:32
+
+
+
+
+这debu麦你们还听不出来么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9226#       发表于 2020-8-23 18:33
+
+
+
+
+这小屁孩的青春感阳角力渗出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9227#       发表于 2020-8-23 18:33
+
+
+
+
+真实 不唱也不是
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9228#       发表于 2020-8-23 18:33
+
+
+
+
+都是阳角啊，给死宅展示下阳角的现充活力吧！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9229#       发表于 2020-8-23 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别搞啊
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9230#       发表于 2020-8-23 18:35
+
+
+
+
+阳角的光好刺眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9231#       发表于 2020-8-23 18:35
+
+
+
+
+这波是上司职权骚扰下属
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9232#       发表于 2020-8-23 18:35
+
+
+
+
+我笑死了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9233#       发表于 2020-8-23 18:35
+
+
+
+
+抹布洗
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9234#       发表于 2020-8-23 18:36
+
+
+
+
+还是贴贴好啊，可以有效减缓姨化速度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9235#       发表于 2020-8-23 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，你是来唱歌的还是来说相声的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9236#       发表于 2020-8-23 18:36
+
+
+
+
+好欢乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9237#       发表于 2020-8-23 18:37
+
+
+
+
+小屁孩好烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  石破天  
+##### 9238#       发表于 2020-8-23 18:37
+
+
+
+
+好开心啊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9239#       发表于 2020-8-23 18:37
+
+
+
+
+听到了键盘声应该是家里
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9240#       发表于 2020-8-23 18:37
+
+
+
+
+这女人就是来玩的
+多来点
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9241#       发表于 2020-8-23 18:37
+
+
+
+
+她开心，我开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9242#       发表于 2020-8-23 18:38
+
+
+
+
+第一次觉得mea歌回好刺耳草<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9243#       发表于 2020-8-23 18:38
+
+
+
+
+明天如月因为左脚踏进办公室被开除
+
+
+
+
+
+
+
+-----
+
+####  Kifusou  
+##### 9244#       发表于 2020-8-23 18:39
+
+
+
+
+太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">嘴角一直扯着
+
+这就是青春洋溢的女子会吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9245#       发表于 2020-8-23 18:39
+
+
+
+
+看到弹幕说了，确实，不知为何有点感动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9246#       发表于 2020-8-23 18:40
+
+
+
+
+咩有组员合唱真好啊，以后多搞点吧
+草字还没打完她就开始糊唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9247#       发表于 2020-8-23 18:41
+
+
+
+
+会不会出现好不容易合唱然而一首歌都没法剪辑的悲剧
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 9248#       发表于 2020-8-23 18:41
+
+
+
+
+在咩家的話這會到幾點 快進到兩人同寢配信
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9249#       发表于 2020-8-23 18:42
+
+
+
+
+这不就是ktv唱法吗……
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9250#       发表于 2020-8-23 18:42
+
+
+
+
+这就是青春啊
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9251#       发表于 2020-8-23 18:42
+
+
+
+
+氛围真好啊，真好啊（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9252#       发表于 2020-8-23 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">“等一下，不要在大家看不到的地方妨碍我！”
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我是不是想歪了？
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9253#       发表于 2020-8-23 18:43
+
+
+
+
+职场黑暗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9254#       发表于 2020-8-23 18:43
+
+
+
+
+咩姐终于没忍住，伸出了罪恶的手<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9255#       发表于 2020-8-23 18:44
+
+
+
+
+小绿提前适应职场黑暗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kifusou  
+##### 9256#       发表于 2020-8-23 18:44
+
+
+
+
+咩姐上手了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大概只是做鬼脸干扰
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9257#       发表于 2020-8-23 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你咩姐老.毛手毛脚了
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 9258#       发表于 2020-8-23 18:44
+
+
+
+
+陪领导唱歌是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9259#       发表于 2020-8-23 18:45
+
+
+
+
+mea不是一直都是腿控么，摸大腿是日常
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9260#       发表于 2020-8-23 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想想做鬼脸可能比较靠谱吧，每个人都上手和她自己说的铁直女人设也不符。虽然这人说的哪里真哪里假也不知道。
+
+又开始瞎扯了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9261#       发表于 2020-8-23 18:49
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 18:51 编辑 
+
+神回
+
+不愧是资深偶像厨，太有节目效果了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9262#       发表于 2020-8-23 18:51
+
+
+
+
+厄介死宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9263#       发表于 2020-8-23 18:51
+
+
+
+
+想看她动手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9264#       发表于 2020-8-23 18:52
+
+
+
+
+noe做错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9265#       发表于 2020-8-23 18:55
+
+
+
+
+这就是领导唱k没有来的下场啊
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 9266#       发表于 2020-8-23 18:55
+
+
+
+
+社畜明天要上班不能唱卡拉OK
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9267#       发表于 2020-8-23 18:56
+
+
+
+
+神乐组联动好啊，多和年轻的女孩一起玩，少和大妈一起玩会沾上姨气的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9268#       发表于 2020-8-23 18:56
+
+
+
+ 本帖最后由 A2014720 于 2020-8-23 18:58 编辑 
+
+神乐mea我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+快停止职场骚扰<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9269#       发表于 2020-8-23 18:58
+
+
+
+
+这是职场欺凌啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9270#       发表于 2020-8-23 18:58
+
+
+
+
+这绝对上手了 听到拍开手的声音了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">好耶
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9271#       发表于 2020-8-23 18:59
+
+
+
+
+在跳大神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把如月笑死了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9272#       发表于 2020-8-23 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这就是日本职场的黑暗面吗，i了i了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9273#       发表于 2020-8-23 19:01
+
+
+
+
+是黑暗面，是黑暗面，不是大碗宽面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 9274#       发表于 2020-8-23 19:04
+
+
+
+
+米奇法师
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9275#       发表于 2020-8-23 19:06
+
+
+
+
+这人线下联动说明最近对自己外表又有自信了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9276#       发表于 2020-8-23 19:06
+
+
+
+
+好思路，多来点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9277#       发表于 2020-8-23 19:07
+
+
+
+
+最近练舞练瘦了吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 9278#       发表于 2020-8-23 19:07
+
+
+
+
+虽然和外表无关。但是大部分人像她一样经历昨天那些，应该今天都是自信爆棚的。
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9279#       发表于 2020-8-23 19:08
+
+
+
+
+是复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9280#       发表于 2020-8-23 19:09
+
+
+
+
+如果这样meall党要站起来了吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 9281#       发表于 2020-8-23 19:11
+
+
+
+
+难受 宁愿被摸的是我
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 9282#       发表于 2020-8-23 19:12
+
+
+
+
+求求你放过如月，来摸我吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9283#       发表于 2020-8-23 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">要好好唱一首了吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9284#       发表于 2020-8-23 19:13
+
+
+
+
+打起来了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9285#       发表于 2020-8-23 19:14
+
+
+
+
+刺激
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9286#       发表于 2020-8-23 19:14
+
+
+
+
+hso
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 9287#       发表于 2020-8-23 19:14
+
+
+
+
+合唱好棒
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9288#       发表于 2020-8-23 19:14
+
+
+
+
+现在现在就希望能好好唱一首，剪个合唱出来
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9289#       发表于 2020-8-23 19:14
+
+
+
+
+最新情报，小绿反击挠回去的时候你麻没反应，看来不怎么怕痒
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 9290#       发表于 2020-8-23 19:15
+
+
+
+
+能不能来首chocolate box<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9291#       发表于 2020-8-23 19:15
+
+
+
+
+皮糙肉厚实锤
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9292#       发表于 2020-8-23 19:15
+
+
+
+ 本帖最后由 clvan_ 于 2020-8-23 19:16 编辑 
+
+之前不是说这月有合唱投稿吗草，刚说完就来了还行。
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9293#       发表于 2020-8-23 19:15
+
+
+
+
+是ptsd fan club<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9294#       发表于 2020-8-23 19:16
+
+
+
+
+好麻好麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 9295#       发表于 2020-8-23 19:16
+
+
+
+
+又是刀哥俱乐部
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9296#       发表于 2020-8-23 19:16
+
+
+
+
+刀哥俱乐部
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9297#       发表于 2020-8-23 19:16
+
+
+
+
+王力宏你
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9298#       发表于 2020-8-23 19:16
+
+
+
+
+就不能是小绿不敢挠回去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9299#       发表于 2020-8-23 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这俩的合唱卫星居然是12哥俱乐部，媚中警告
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9300#       发表于 2020-8-23 19:16
+
+
+
+
+我不理解樱花妹的审美，以及王力宏怎么你了
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 9301#       发表于 2020-8-23 19:17
+
+
+
+
+不要刀哥俱乐部<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9302#       发表于 2020-8-23 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日v入驻之后王力宏的生命危机越来越严重了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9303#       发表于 2020-8-23 19:17
+
+
+
+
+讲道理她又没怎么唱过刀哥俱乐部，你们的ptsd哪里来的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9304#       发表于 2020-8-23 19:18
+
+
+
+
+刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真好玩啊，真好啊
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9305#       发表于 2020-8-23 19:18
+
+
+
+
+第一次b限唱过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9306#       发表于 2020-8-23 19:18
+
+
+
+
+所以晚上还有吗还有吗呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 9307#       发表于 2020-8-23 19:18
+
+
+
+
+是的我也记得第一次那个拉胯b限唱过
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9308#       发表于 2020-8-23 19:18
+
+
+
+
+草，ptsd俱乐部不是玩梗吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 9309#       发表于 2020-8-23 19:19
+
+
+
+
+今晚不出意外还得睡一起吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9310#       发表于 2020-8-23 19:19
+
+
+
+
+这是好的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9311#       发表于 2020-8-23 19:19
+
+
+
+
+草看到条弹幕笑死了
+
+咩哥，咩哥不要啊
+
+让我康康你防腐正常不正常啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是什么阴间玩意
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9312#       发表于 2020-8-23 19:20
+
+
+
+
+楼友竟然都知道刀哥，看来都是老批小将了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9313#       发表于 2020-8-23 19:20
+
+
+
+
+啊啊啊啊啊yhm联动真好啊这就是青春吗 完全不够看<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+打起来那一段好评，建议把歌回你咩动手部分全部cut出来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9314#       发表于 2020-8-23 19:21
+
+
+
+
+对了 是不是有个AV是上僵尸的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9315#       发表于 2020-8-23 19:22
+
+
+
+
+淦，为什么要让我回忆起来
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9316#       发表于 2020-8-23 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48527414&amp;ptid=1945537" target="_blank">nightmare902015 发表于 2020-8-23 19:18</a>
+是的我也记得第一次那个拉胯b限唱过</blockquote>
+不拉跨啊，那次可是美好的回忆啊，羞涩青涩的阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9317#       发表于 2020-8-23 19:23
+
+
+
+
+记得之前挖小绿的时候，小绿的腿还挺不错的，难怪你麻完全停不下来
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9318#       发表于 2020-8-23 19:25
+
+
+
+
+我记得小紫的也不错吧，小麻腿控说微存？
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 9319#       发表于 2020-8-23 19:26
+
+
+
+
+绿熊那次就实锤了好么
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9320#       发表于 2020-8-23 19:27
+
+
+
+
+小紫腿也还行，不过看中的应该是比麻还平的胸
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 9321#       发表于 2020-8-23 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48527447&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-8-23 19:23</a>
+不拉跨啊，那次可是美好的回忆啊，羞涩青涩的阿咩</blockquote>
+“q：你油管那么厉害，b限怎么没发现啊？
+a：jinzhang”
+
+我倒是也赞同是美好的回忆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且当时不少人比她还紧张
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9322#       发表于 2020-8-23 19:28
+
+
+
+
+贴贴正统在你楼<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+不过今晚效果确实挺棒的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9323#       发表于 2020-8-23 19:33
+
+
+
+
+那个bls直播间页面就在那放着吗，这不引流啊<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9324#       发表于 2020-8-23 19:42
+
+
+
+ 本帖最后由 単推し人 于 2020-8-23 19:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48527475&amp;ptid=1945537" target="_blank">nightmare902015 发表于 2020-8-23 19:27</a>
+“q：你油管那么厉害，b限怎么没发现啊？
+a：jinzhang”</blockquote>
+关于初次b限我只有歌非常好听，她非常可爱的印象了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9325#       发表于 2020-8-23 19:43
+
+
+
+
+说起来，今天神乐社长当众ntr了小绿，小紫直播时间推迟，你楼的磨豆腐厨可以开始发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
