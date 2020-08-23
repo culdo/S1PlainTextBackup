@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-22 18:04** 
+> ## **本文件最后更新于2020-08-23 22:05** 
 
 
 
@@ -21056,4 +21056,413 @@ syl，周边那事客服说可以退款了，退的是周边831，但不知道�
 
 
 
-        
+
+
+-----
+
+####  买表大户  
+##### 1239#       发表于 2020-8-22 18:08
+
+
+
+
+让阿B变成洋葱的形状<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1240#       发表于 2020-8-22 19:57
+
+
+
+ 本帖最后由 vorastrix 于 2020-8-22 19:58 编辑 
+
+草,发错楼了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 米酒马路| + 1|再给好哥哥来一个|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1241#       发表于 2020-8-22 21:33
+
+
+
+
+看推说最后有告知突然心中一惊，怕不是live很努力很辛苦现在也结束了该摸了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1242#       发表于 2020-8-22 21:38
+
+
+
+
+告知难道不是原创曲的事情嘛？85%的概率
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1243#       发表于 2020-8-22 21:41
+
+
+
+
+原创曲安卓怎么买来着？
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1244#       发表于 2020-8-22 22:09
+
+
+
+[https://cowtransfer.com/s/a20b3e270a054c](https://cowtransfer.com/s/a20b3e270a054c)
+
+01 #あくあ色ぱれっと
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贝伦二世| + 1|感谢  果然没买的地方|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1245#       发表于 2020-8-22 22:33
+
+
+
+ 本帖最后由 面具13 于 2020-8-22 22:46 编辑 
+
+今天嗓子哑了。又来养认知厨，会私下搜核心粉推特这发言以前我听过黄兔子讲过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1246#       发表于 2020-8-22 22:58
+
+
+
+
+孩子长大了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1247#       发表于 2020-8-22 23:03
+
+
+
+
+除了粘土人，居然还有手办<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1248#       发表于 2020-8-22 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">成长了，还有了这么多朋友，太好了
+
+SYL 粘土人和手办，这能不买？
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1249#       发表于 2020-8-22 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">无共感，能好好说话吗，别鬼叫了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1250#       发表于 2020-8-22 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">我的钱包
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1251#       发表于 2020-8-22 23:04
+
+
+
+
+今天这总结太有大结局感了吧
+
+
+要出手办了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1252#       发表于 2020-8-22 23:06
+
+
+
+
+crew破产
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1253#       发表于 2020-8-22 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近被花式割韭菜，财布有点瘪啊，不买又觉得亏了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1254#       发表于 2020-8-22 23:09
+
+
+
+
+妹啊还能唱哭的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1255#       发表于 2020-8-22 23:11
+
+
+
+
+怎么说呢，这大概也算あく虐吧，我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1256#       发表于 2020-8-22 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">聋了
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1257#       发表于 2020-8-22 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要进化成脑子里只有洋葱的脑瘫级crew了
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1258#       发表于 2020-8-22 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">我要被脑控了
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1259#       发表于 2020-8-22 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gachi超级加倍
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1260#       发表于 2020-8-22 23:20
+
+
+
+
+这一刻的心情，想保持到明年
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1261#       发表于 2020-8-23 21:00
+
+
+
+
+话说原创曲在iTunes Music上跌到第8了
+虽然第2和第8我都没啥概念
+
+
+
+
+
+       
