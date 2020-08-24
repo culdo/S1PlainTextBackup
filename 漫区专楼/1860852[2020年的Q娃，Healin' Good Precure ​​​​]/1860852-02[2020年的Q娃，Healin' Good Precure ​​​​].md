@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-21 12:00** 
+> ## **本文件最后更新于2020-08-24 16:01** 
 
 
 
@@ -3271,7 +3271,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_Rce5w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_wNilL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -4966,7 +4966,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Y5rBO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_m4w08" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -15188,4 +15188,670 @@ ED2感觉不怎么喜欢
 
 
 
-                     
+
+
+-----
+
+####  HGCG2  
+##### 2342#       发表于 2020-8-23 07:55
+
+
+
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0e7ry8mqj21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+开场高浓度青山
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0e9ugszzj21400mi4qq.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0e9wdvlij21400minpd.jpg" referrerpolicy="no-referrer">
+
+
+“绪川先生的灵压消失了！”
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ecx7fk1j21400miu0x.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0ecz0ywfj21400mie82.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gi0ed0frsdj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ed6nvdxj21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ed8in51j21400mikjl.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0edbuvksj21hc0u0kjn.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0edbahywj21hc0u0kjo.jpg" referrerpolicy="no-referrer">
+
+
+总之森森森就是拿铁的饲主的设定了
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gi0egkupasj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0egjsskpj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0eglb7wcj21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+
+青山脸和今天的剧情简直绝配
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gi0ejkw649j21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gi0ejlmw6hj21400mi1ky.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ejni9tzj21400miqv5.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gi0ejnw7rij21400mix6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0ejp50isj21400minpd.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0ejy0ddpj21400miqv5.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ek5gvjqj21hc0u0e82.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gi0ek9qh4jj21400mi1ky.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gi0ekjflbyj21hc0u0x6q.jpg" referrerpolicy="no-referrer">
+
+
+“和佳你为什么对我这么好”
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gi0ennsdftj21400minpd.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0enrlorkj21400mi1ky.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0entcldzj21400mie81.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gi0enswvmcj21400mie4v.jpg" referrerpolicy="no-referrer">
+
+
+总算又对上了
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ex9n5z3j21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gi0ex98iqzj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2343#       发表于 2020-8-23 08:31
+
+
+
+
+依我看，妄图组和佳与干部少年CP的到这里是彻彻底底凉了
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 2344#       发表于 2020-8-23 09:04
+
+
+
+
+和干部小哥CP我反对！
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2345#       发表于 2020-8-23 12:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所以あすみ就当家里蹲了吗
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2346#       发表于 2020-8-23 13:02
+
+
+
+
+又是马口P
+
+
+
+
+
+
+
+-----
+
+####  dragrass  
+##### 2347#       发表于 2020-8-23 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524504&amp;ptid=1860852" target="_blank">isa2456 发表于 2020-08-23 12:51:36</a>
+所以あすみ就当家里蹲了吗</blockquote>第二个不卖转学梗的追加q娃？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  李霞  
+##### 2348#       发表于 2020-8-23 13:09
+
+
+
+<img src="https://s1.ax1x.com/2020/08/23/dw6NqJ.jpg" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/08/23/dw6tr4.jpg" referrerpolicy="no-referrer">
+
+
+表情包
+
+pan.baidu.com/s/1pLKZaTd
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2349#       发表于 2020-8-23 13:12
+
+
+
+
+不要打撸伊森不要打撸伊森<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的社花PTSD又犯了啊啊啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 2350#       发表于 2020-8-23 13:16
+
+
+
+
+顺便cure earth应该是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不只是保护期的问题
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  isa2456  
+##### 2351#       发表于 2020-8-23 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524601&amp;ptid=1860852" target="_blank">dragrass 发表于 2020-8-23 13:02</a>
+
+第二个不卖转学梗的追加q娃？
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+毕竟身体年龄20岁，怎么跟着上初中
+
+
+
+
+
+
+
+-----
+
+####  雪城穗乃香  
+##### 2352#       发表于 2020-8-23 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48524687&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-8-23 13:16</a>
+顺便cure earth应该是真的强不只是保护期的问题
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+魔法太阳：“喔”
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2353#       发表于 2020-8-23 14:57
+
+
+
+
+我同意和佳和干部小歌
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2354#       发表于 2020-8-23 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48525360&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-8-23 14:57</a>
+
+我同意和佳和干部小歌</blockquote>
+东映一直在拆啊
+
+
+
+
+
+
+
+-----
+
+####  exam00  
+##### 2355#       发表于 2020-8-23 16:47
+
+
+
+
+放病毒的都该死------政治正确
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2356#       发表于 2020-8-23 16:48
+
+
+
+
+生草地球，0岁无口人，非常有意思的一集，为アスミ辩护的时候和佳作画异常的动感，事后アスミ感想也很严格，以后看来是天然黑了233只是这集手擦伤有点怪，一是没有表现出来救人的时候明明是抱住的怎么会手掌擦伤，二是小擦伤打一拳都会痛（原来变身不会自动疗伤），明明你们平时都经常被打趴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+开头提供商标两个都刚好挡住了アスミ的脸笑到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狂马王  
+##### 2357#       发表于 2020-8-23 16:59
+
+
+
+
+夹不起蔬菜那段开2倍速反复听“eng eng”真有意思
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 2358#       发表于 2020-8-23 17:26
+
+
+
+
+这3+1的变身还会继续下去吗
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2359#       发表于 2020-8-23 20:13
+
+
+
+
+艾苏米变身，拿铁这算是带病上阵吗？
+
+
+
+
+
+
+
+-----
+
+####  李霞  
+##### 2360#       发表于 2020-8-23 20:22
+
+
+
+
+威化食玩卡
+
+<img src="https://s1.ax1x.com/2020/08/23/d05ogs.jpg" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/08/23/d05I3j.jpg" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/08/23/d055CQ.jpg" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/08/23/d05h4g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2361#       发表于 2020-8-23 23:30
+
+
+
+ 本帖最后由 leleq 于 2020-8-23 23:33 编辑 
+
+这集我脑子第一反应是这么个20岁外国花姑娘放家里没问题么 然后再看和佳妈妈看安舒米的眼神总觉得好好笑 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+和佳骗起人来意外的擅长 未来小骗人精预定？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+这狗变身参与度太高的问题出来了 上一秒还病殃殃的下一秒就连跑带条的变身了……撕裂感挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+对了这集能算是洗澡回么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2362#       发表于 2020-8-23 23:40
+
+
+
+
+诺多卡居然若无其事地捡了个人回家，这孩子必成大器<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">，有股隐隐约约的后宫王气质。辩解时候的声线异常可爱。
+两人洗澡的同人短漫已经有了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，创作速度还真是惊人啊
+大友当初嫌弃人家bba，现在却香起来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2363#       发表于 2020-8-24 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529493&amp;ptid=1860852" target="_blank">leleq 发表于 2020-8-23 23:30</a>
+这集我脑子第一反应是这么个20岁外国花姑娘放家里没问题么 然后再看和佳妈妈看安舒米的眼神总觉得好好笑 [f ...</blockquote>
+弹幕看到个 拿铁：“だるいぜぃ”笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 2364#       发表于 2020-8-24 08:33
+
+
+
+
+所以说有怪必生病这个设定不能改改吗？槽点太大了，明明小怪都升级了
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 2365#       发表于 2020-8-24 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到和佳圆话的手段如此高超，看不出以前是个病恹恹的孩子啊
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2366#       发表于 2020-8-24 11:23
+
+
+
+<img src="http://wx3.sinaimg.cn/mw690/e7cbae74gy1gi1odnlxakj212z0u0e83.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/mw690/e7cbae74gy1gi1odj2tc8j20kt19rhdu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  出轨的三头龙  
+##### 2367#       发表于 2020-8-24 11:42
+
+
+
+
+杀菌，杀菌，杀菌
+
+杀菌消毒<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2368#       发表于 2020-8-24 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529554&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-8-23 23:40</a>
+
+诺多卡居然若无其事地捡了个人回家，这孩子必成大器，有股隐隐约约的后宫王气质。辩解时候的声线异 ...</blockquote>
+我有一个朋友想看这个小短漫.jpg
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2369#       发表于 2020-8-24 14:04
+
+
+
+
+新加入的真的不上学吗
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2370#       发表于 2020-8-24 14:19
+
+
+
+
+引坂理绘可算有活干了，还是最近大热的久保新连载的burn the witch。
+
+万一反响很好变成长篇连载，哪就是一张长期饭票了，不过女主是日野茜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200824141622.png
+(8.23 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-24 14:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/141853vyeye76crvi5czur.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 2371#       发表于 2020-8-24 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48534649&amp;ptid=1860852" target="_blank">达达葱2 发表于 2020-8-24 14:04</a>
+新加入的真的不上学吗</blockquote>
+引坂配音角色是男主手里的小型“Dragon”，既不是男主也不是两个女主。
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2372#       发表于 2020-8-24 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48534996&amp;ptid=1860852" target="_blank">cmyk1234 发表于 2020-8-24 14:35</a>
+
+引坂配音角色是男主手里的小型“Dragon”，既不是男主也不是两个女主。</blockquote>
+这样的话还是太可惜了，看不懂片假名我还在那儿猜是哪个女角色，不过如果男主跟宠物是不可分割的搭档的话，那也是一种长期饭票了，就跟皮卡丘一样。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2373#       发表于 2020-8-24 15:10
+
+
+
+<blockquote>cmyk1234 发表于 2020-8-24 14:35
+引坂配音角色是男主手里的小型“Dragon”，既不是男主也不是两个女主。</blockquote>
+为啥引用我……
+
+
+
+
+
+
+
+-----
+
+####  liu2000310  
+##### 2374#       发表于 2020-8-24 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48525189&amp;ptid=1860852" target="_blank">雪城穗乃香 发表于 2020-8-23 14:27</a>
+
+魔法太阳：“喔”</blockquote>
+暗示强化没份后期处处吃瘪？<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    

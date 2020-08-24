@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-24 14:02** 
+> ## **本文件最后更新于2020-08-24 16:05** 
 
 
 
@@ -7498,4 +7498,607 @@ syl，我觉得不能光靠想着阴兵吧，反正我给小号也买了一套�
 
 
 
-                                   
+
+
+-----
+
+####  Mr.shelter  
+##### 9423#       发表于 2020-8-24 14:03
+
+
+
+
+那怪文书还影响她心情呢，这个最要不得<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9424#       发表于 2020-8-24 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48534624&amp;ptid=1945537" target="_blank">A2014720 发表于 2020-8-24 14:02</a>
+
+那次谢罪怪文书涨了好多粉的，写</blockquote>
+不能光看粉丝数啊，重要的是收入啊收入
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9425#       发表于 2020-8-24 14:05
+
+
+
+
+m楼里充满了对🦄的恶意<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">建议在m楼立法禁止虚空贷款迫害🦄的行为
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9426#       发表于 2020-8-24 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，大家不都想看有趣的mea吗，不是想要热度吗，我是一片苦心啊，想当年你咩姐推特多潇洒，喷的七进七出，然后被封了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9427#       发表于 2020-8-24 14:08
+
+
+
+
+那是年少轻狂，现在你麻老矣
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9428#       发表于 2020-8-24 14:09
+
+
+
+
+我看其他偶像一直都是独角兽的态度，唯独对咩咩不是.... 咱只希望她私下过的好一点，有人照顾，发疯的时候也有依靠<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这就够了。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9429#       发表于 2020-8-24 14:12
+
+
+
+
+🦄也想要活下去啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+在我的视角里面你们现在都是xby<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9430#       发表于 2020-8-24 14:14
+
+
+
+
+小博禹就是疯了的独角兽啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9431#       发表于 2020-8-24 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">巧了，我看你也挺像小博禹的，发的一些东西跟发疯前的小博禹是一模一样
+
+
+不过我对独角兽的态度就汗你咩姐对gachi的态度一样，你可以自己心里独角兽但别到处乱跳惹人嫌，到处乱跳整天水论坛的结果就是被针对，你有闲工夫又不想学日语，不如每天坚持往这楼里转发几个fanart好不好？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9432#       发表于 2020-8-24 14:23
+
+
+
+
+水论坛是我最近好不容易发现的爱好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+往这楼里搬fanart没啥用啊，这楼里又没有新人，还不如我往一些与v圈无关的游戏群之类的地方搬一些你咩好看的fanart，有时候还能涨粉，实际上我也一直在干<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9433#       发表于 2020-8-24 14:37
+
+
+
+
+看了眼装扮销量，如果之后每天能日增1000，那解锁全部内容还是没问题的（昨天晚上12点大概卖了12100套，现在卖了12900套左右），但销量增速肯定是越来越慢的。。。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9434#       发表于 2020-8-24 14:39
+
+
+
+
+阿b真是个带恶人，想方设法的把粉丝注意力转移到数字上
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9435#       发表于 2020-8-24 15:01
+
+
+
+
+等阴兵就行了，2w套什么概念阿b没想过嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9436#       发表于 2020-8-24 15:22
+
+
+
+
+官组都开始转各路自定义头像框了，这玩意要买了装扮才能用，促销一波
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9437#       发表于 2020-8-24 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">反正这玩意转完买了之后就是自己看自己了，我是没有特别去看别人的编号好不好啊、靠不靠前啊之类的。本质给咩零花钱+打开批站之后心情愉快一些。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9438#       发表于 2020-8-24 15:27
+
+
+
+<blockquote>シオン诗音 发表于 2020-8-24 15:26
+官组多转几个啊，哦有几个贴贴要素太多不方便转吗反正这玩意转完买了之后就是自己看自己了， ...</blockquote>
+贴贴的和单人的都转了啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9439#       发表于 2020-8-24 15:28
+
+
+
+
+贴贴内容太多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9440#       发表于 2020-8-24 15:29
+
+
+
+
+突然转这么多，又不怕掉粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9441#       发表于 2020-8-24 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48535443&amp;ptid=1945537" target="_blank">Leutnant某囧 发表于 2020-8-24 15:27</a>
+
+贴贴的和单人的都转了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有10天呢，我再发动几个朋友买买去
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9442#       发表于 2020-8-24 15:35
+
+
+
+
+那个10天是优惠的时间吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9443#       发表于 2020-8-24 15:37
+
+
+
+
+话说七夕诶，阿B会请她来B限吗
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9444#       发表于 2020-8-24 15:37
+
+
+
+
+你楼对这东西这么关心的么，你咩就几千活粉，多了都是赚的，别斗虫斗魔怔了，被人当韭菜割<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9445#       发表于 2020-8-24 15:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着想笑，差那么多呢，一天转三次都不一定能够数
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9446#       发表于 2020-8-24 15:40
+
+
+
+
+七夕活动页面都出了，基本都是国v，外加爱丽丝鹿乃那几个
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9447#       发表于 2020-8-24 15:44
+
+
+
+
+快进到你们把钱花光没人跟我抢bls票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9448#       发表于 2020-8-24 15:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天整这些东西很重要吗，还不如出个肉呢
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9449#       发表于 2020-8-24 15:50
+
+
+
+
+观察下，很多人就是买了第一套不想买第二套，叔叔的锅
+
+
+
+
+
+
+
+-----
+
+####  Pseudoephedrine  
+##### 9450#       发表于 2020-8-24 15:54
+
+
+
+
+隔壁不仅一个人买好几套还抽奖送人，高下立判
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9451#       发表于 2020-8-24 15:55
+
+
+
+
+只是觉得就咩姐一个v这种待遇，挺难受的，hanser和泠鸢的解锁条件是19999，时间也差的远，估计只有咩姐这套没有完整功能了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9452#       发表于 2020-8-24 15:57
+
+
+
+
+看来是完不成指标了，要被睿叔叔抛弃了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9453#       发表于 2020-8-24 15:59
+
+
+
+
+快进到被睿叔叔放弃，转战t台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 9454#       发表于 2020-8-24 15:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">感觉v区运营错误的估计了mea粉的内圈程度。
+真的是过气主播了。只剩一点老粉了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9455#       发表于 2020-8-24 16:00
+
+
+
+
+过气了过气了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">该出发了，不然来不及了
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9456#       发表于 2020-8-24 16:00
+
+
+
+
+我出发了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9457#       发表于 2020-8-24 16:02
+
+
+
+
+一个45，一万个45万，两万个90万，你咩姐在阿b最火的时候一个月都难赚90万，差不多得了，而且最关键的问题是这就一个app主题，除了几个表情包基本一点屁用都没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9458#       发表于 2020-8-24 16:03
+
+
+
+
+如果我是一般路人粉只能买一套的话我也买大亏的装扮，一个是大亏的图好看得多，还有就是大亏已经全解锁了直接就有主题。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9459#       发表于 2020-8-24 16:04
+
+
+
+
+而且看样子确实能抢完，真限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
