@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-24 22:04** 
+> ## **本文件最后更新于2020-08-25 02:02** 
 
 
 
@@ -11424,7 +11424,7 @@ file:///D:/mea/1598275707564.png新麻图(，够麻<img src="https://static.sara
 
 
 1598275707564.png
-(490.49 KB, 下载次数: 0)
+(490.49 KB, 下载次数: 1)
 
 
 
@@ -11853,6 +11853,1731 @@ B400698D-1012-4A1B-97CF-F07AEFB52481.jpeg
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                           
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ashero| + 1|呜呜呜|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9672#       发表于 2020-8-24 22:05
+
+
+
+
+这也太狠了，基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">希望咩咩明天至少一播啊.... 我的失恋歌回... 
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9673#       发表于 2020-8-24 22:07
+
+
+
+
+冷鸟的那套出了这么久，现在也就是不到两万九销量。诸位是不是释然一些了。
+syl，从之前挺久我就提了不少次啥时候出mea装扮的事情，好像之前还说过可以跟夸皇销量斗虫了，不知道是否在一定程度上助长了这股杞忧的氛围<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9674#       发表于 2020-8-24 22:09
+
+
+
+
+这也要基德吗。我感觉时雨老哥不是会在意这种事的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 9675#       发表于 2020-8-24 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539244&amp;ptid=1945537" target="_blank">Ky·Kiske 发表于 2020-8-24 21:42</a>
+一个问题，在哪看销量？</blockquote>
+点进去能看到公告，谁买了第几号这种
+目前是13393
+
+— from HUAWEI LIO-AN00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9676#       发表于 2020-8-24 22:11
+
+
+
+
+小女孩儿只好赤着脚走，一双小脚冻得红一块青一块的。她的旧军服里兜着许多装扮，手里还拿着一套。这一整天，谁也没买过她一套装扮，谁也没给过她一个钱。她在一座房子的墙角里坐下来，蜷着腿缩成一团。她觉得更冷了。她不敢回家，因为她没卖掉一套装扮，没挣到一个钱，陈睿爸爸一定会打她的。再说，家里跟街上一样冷。他们头上只有个房顶，虽然最大的裂缝已经用草和破布堵住了，风还是可以灌进来（）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9677#       发表于 2020-8-24 22:12
+
+
+
+
+“少逛s1”
+
+一天1w还有啥说的，我等bls极光mea限定套装
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9678#       发表于 2020-8-24 22:14
+
+
+
+
+少逛S1
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9679#       发表于 2020-8-24 22:22
+
+
+
+
+BLS要是能去现场我一定要打个“少逛S1，你的生活会更有意义”的牌子(
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9680#       发表于 2020-8-24 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你楼人实在太恶毒了，怕了怕了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“少逛s1”
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9681#       发表于 2020-8-24 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539432&amp;ptid=1945537" target="_blank">thisisaspider 发表于 2020-8-24 21:59</a>
+希望明年你家里人数对折</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">shield
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 9682#       发表于 2020-8-24 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539470&amp;ptid=1945537" target="_blank">59268416 发表于 2020-8-24 22:03</a>
+
+建议事业民都去推苔总，你看mea不去蹭舞元，本人亲自上，多么上心啊，哭了
+
+
+  -- 来自 能搜索的 Sta ...</blockquote><blockquote>舞元不知道社内某人的联系方式，找mea要的
+
+
+你们2434有点意思啊</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就是你把舞元话题引来的？
+
+
+话说这是要的谁的联系方式啊，gbr么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，你麻终究彩虹人啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9683#       发表于 2020-8-24 22:39
+
+
+
+
+holo不给蹭只能蹭彩虹了，快进到星川拉你麻和双叶apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9684#       发表于 2020-8-24 23:01
+
+
+
+
+大家都中了叔叔的计了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9685#       发表于 2020-8-24 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">凉了
+等一个工口服务麻酱
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9686#       发表于 2020-8-24 23:05
+
+
+
+
+呜呜,球球学校能放我国庆出门,不然在上海看不了线下太扎心了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9687#       发表于 2020-8-24 23:08
+
+
+
+
+你们这样子，叔叔会很高兴的吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9688#       发表于 2020-8-24 23:11
+
+
+
+
+叔叔，我要买靓号！叔叔！
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 9689#       发表于 2020-8-24 23:14
+
+
+
+
+一天没看你楼结果你麻又又又又又要凉了吗？
+
+懂了，马上进行【呜呜呜小麻要过气了赶快和我回家结婚吧】环节
+
+
+我先来<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9690#       发表于 2020-8-24 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推新增关注，女粉（
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9691#       发表于 2020-8-24 23:15
+
+
+
+ 本帖最后由 単推し人 于 2020-8-24 23:33 编辑 
+
+再怎么蹭霓虹也不会有多少人给她打钱了，nico票那一百出头的销量真让人看透了，没有中国盘她就真要变成底边v了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚|-1|请去杞忧楼|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9692#       发表于 2020-8-24 23:18
+
+
+
+
+nmd一天销量四五十万凉nm凉，滚滚滚爬爬爬
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9693#       发表于 2020-8-24 23:19
+
+
+
+
+来， 跟着哥哥念：
+
+
+南无喝啰怛那哆啰夜耶．南无阿唎耶，婆卢羯帝烁钵啰耶．菩提萨埵婆耶． 摩诃萨埵婆耶．摩诃迦卢尼迦耶．唵，萨皤啰罚曳．数怛那怛写．南无 悉吉栗埵伊蒙阿唎耶．婆卢吉帝室佛啰愣驮婆．南无那啰谨墀．酰利摩诃 皤哆沙咩. 萨婆阿他豆输朋，阿逝孕，萨婆萨哆那摩婆萨哆，那摩婆伽，摩罚特豆．
+
+
+怛侄他．唵，阿婆卢酰．卢迦帝．迦罗帝．夷酰唎．摩诃菩提萨埵， 萨婆萨婆．摩啰摩啰，摩酰摩酰唎驮孕．俱卢俱卢羯蒙．度卢度卢罚阇耶帝． 摩诃罚阇耶帝．陀啰陀啰．地唎尼．室佛啰耶．遮啰遮啰．摩么罚摩啰．穆帝隶．伊酰伊酰．室那室那．阿啰参佛啰舍利． 罚沙罚参．佛啰舍耶．呼嚧呼嚧摩啰．呼嚧呼嚧酰利．娑啰娑啰，悉唎悉唎． 苏嚧苏嚧．菩提夜菩提夜．菩驮夜菩驮夜．弥帝唎夜．那啰谨墀．
+
+
+地利瑟尼那．波夜摩那 ．娑婆诃．悉陀夜．娑婆诃．摩诃悉陀夜．娑婆诃．悉陀喻艺．室皤啰耶． 娑婆诃．那啰谨墀．娑婆诃．摩啰那啰．娑婆诃．悉啰僧阿穆佉耶，娑婆诃． 娑婆摩诃阿悉陀夜．娑婆诃．者吉啰阿悉陀夜．娑婆诃．波陀摩羯悉陀夜．娑婆诃．那啰谨墀皤伽啰耶． 娑婆诃．摩婆利胜羯啰夜．娑婆诃．南无喝啰怛那哆啰夜耶，南无阿唎耶． 婆嚧吉帝．烁皤啰夜．娑婆诃．唵，悉殿都．漫多啰．跋陀耶，娑婆诃．
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9694#       发表于 2020-8-24 23:22
+
+
+
+
+非要等彻底没人看了才着急是不是？？？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9695#       发表于 2020-8-24 23:23
+
+
+
+
+多宣传 多烤肉 少杞忧...
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9696#       发表于 2020-8-24 23:25
+
+
+
+
+说了很多次了，空水论坛没屁用，怕她凉的自己拿出行动，分享行动办法，而不是像个复读机一样整天说要凉了要凉了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9697#       发表于 2020-8-24 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9698#       发表于 2020-8-24 23:26
+
+
+
+
+想要不凉就多b限 不要阴间tc
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 9699#       发表于 2020-8-24 23:28
+
+
+
+
+晚上视奸你楼，感觉真不该来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9700#       发表于 2020-8-24 23:28
+
+
+
+
+师傅别念了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+王权没有永恒，更何况她早不是什么狗屁冲国女王了
+
+她凉了就看不到她了吗，还是说不看她了，那就这样吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9701#       发表于 2020-8-24 23:30
+
+
+
+
+她这一个月tc多不是tmd因为忙着整线下累的一比才这样的？她自己都抱怨了几次不愿意这样，真当她不懂啊？而且她搞线下学跳舞是为了谁？不会真像个sb似得以为是叔叔的任务吧？
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9702#       发表于 2020-8-24 23:30
+
+
+
+ 本帖最后由 thisisaspider 于 2020-8-24 23:32 编辑 
+
+建议屏蔽那些钱没几个屁话多的还不做事的楼友，和欧美粉一样。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SYL，阴间TC怎么了，虽然追不上，但我上班补差点笑出声来。
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9703#       发表于 2020-8-24 23:33
+
+
+
+
+矩阵是无意识巨魔，真可怕
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9704#       发表于 2020-8-24 23:34
+
+
+
+
+我不知道该有什么感觉
+
+
+因为我完全无法理解
+
+
+这是文化差异吧
+
+
+因为我就是一个开心最重要的人
+
+
+会故意读一些没什么实际用处而且难的课程
+
+
+一门课不喜欢就最低限度投入， 就算成绩不好也无所谓
+
+
+我对事业民没有共情...
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 9705#       发表于 2020-8-24 23:34
+
+
+
+ 本帖最后由 素人不相识 于 2020-8-24 23:35 编辑 
+
+国内最大的问题，我感觉不是宣传的问题了，你咩姐在v圈知名度还是有的。最关键的问题是风评问题。
+
+随便啥地方都能车轱辘黑屁你咩姐，可不没路人想来看吗
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9706#       发表于 2020-8-24 23:35
+
+
+
+
+再怎么着急也没用，等到她真的要凉的那天就是我出发的时刻了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9707#       发表于 2020-8-24 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你楼有些想法真的非常朴实，总觉得念叨两句mea你应该这样，这样，这样就仿佛她能听到你说话一样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9708#       发表于 2020-8-24 23:40
+
+
+
+
+是不是她凉了灵堂上会有一群anti冲进来说“嘻嘻，三字母终于死了呢”啊，还是一群人会退坑反踩“这人果然不行呢”，还是真的上fc2了啊
+啊，好烦，我要睡觉，我要明天看她直播，我要看bls<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9709#       发表于 2020-8-24 23:43
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-8-24 23:55 编辑 
+
+其实nico那边陆续还有人付费看录像，别说得和本土真没人了一样
+
+不过说实话我觉得把开头的live部分免费公开可能可以骗到更多买票的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 9710#       发表于 2020-8-24 23:44
+
+
+
+
+其实我要是anti，我会留一手，把控好力度，不让你咩姐凉
+
+咩姐凉了，一个最大的靶子没了，国内v圈怕不是更加混乱，指不定就祸水东流到自家主子身上
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9711#       发表于 2020-8-24 23:46
+
+
+
+
+数字厨都特么魔怔了，就这玩意还能把人整成这幅样子？
+
+以后是不是无论什么都要去和业界头部硬碰硬，碰不过就是凉了啊？？
+
+你也不看看现在是在和谁比，我真的仏了，能不能清醒一点。
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9712#       发表于 2020-8-24 23:47
+
+
+
+
+只是在和自己比而已
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989|-1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9713#       发表于 2020-8-24 23:53
+
+
+
+
+不知道的今天来这楼可能以为她明天就要隐退了，这真的是刚举办完线下活动还放了大型live卫星后的氛围吗，可能真的是要有木口c位sc和订阅，2324联动的最高同接和阿b蝗虫过境般的mmr粉丝和舰长才能勉强不算凉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 说白了就是这傻逼装扮数字和没播的过，有播觉得啥都好，没播觉得啥都凉
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 9714#       发表于 2020-8-24 23:55
+
+
+
+ 本帖最后由 MAO_DREAMER 于 2020-8-24 23:57 编辑 
+
+看多了底边v，你咩姐舰长数比维阿任何一个v都多，这有什么好担心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9715#       发表于 2020-8-24 23:57
+
+
+
+
+。。。睿叔叔这波还是牛逼的
+我挺好奇你们都在焦虑啥，矩阵他一个偶像厨害怕你咩姐凉了就没活动办了还说得过去，其他人是怎么想的啊，你咩姐一个体户够吃饭不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9716#       发表于 2020-8-24 23:58
+
+
+
+
+你楼数字民真是一道绝景<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9717#       发表于 2020-8-25 00:01
+
+
+
+
+今年不比去年更好？和自己比能得出要凉了的结论？B站过了巅峰期就是要凉了，油管明显上升比去年快啊我寻思，我还以为名次排到300开外了呢，一打开排行榜，这不把明治都给超了？那谁替明想想？
+
+我真的仏了和杏比你上升的没别人快我还认，你要跟自己比觉得没以前好那你可真的牛批，好端端的一个人，下半年还要办live，结果搞得跟明天就要隐退了似的，这就是居安思危的精神吗？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9718#       发表于 2020-8-25 00:01
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 00:05 编辑 
+
+如果能把两场live抽30分钟录像拿出来免费放一下应该会很好，特别是唱新原创曲那段，真的精彩啊，阿b不能看回放真的可惜，光凭这个应该都能涨不少粉
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9719#       发表于 2020-8-25 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">少说话多干事，这不又多推销出去一套，还发现一个老同学居然也看V。
+
+另外前段时间的tc真就是时间上不好凑出来/酒店里没法用电脑播404或者B限所以开tc跟你们唠唠嗑，这还diss的多少沾点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+最近不播的时候少打开打开论坛多贡献点播放量也是好事啊，我先来：
+[https://www.bilibili.com/video/BV1G54y1B7Ue](https://www.bilibili.com/video/BV1G54y1B7Ue)
+[https://www.bilibili.com/video/BV1aa4y147Fy](https://www.bilibili.com/video/BV1aa4y147Fy)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9720#       发表于 2020-8-25 00:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+我很喜欢没有收益化的她，但我觉得现在更好一点。516我觉得她完蛋了呢，但是两年下来只证明了我是傻逼
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9721#       发表于 2020-8-25 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540364&amp;ptid=1945537" target="_blank">素人不相识 发表于 2020-8-24 23:34</a>
+
+国内最大的问题，我感觉不是宣传的问题了，你咩姐在v圈知名度还是有的。最关键的问题是风评问题。
+
+随便啥地 ...</blockquote>
+反驳，围绕mea看待问题格局实在太小。
+
+风评是次要的，非要说风评问题，我还能说
+
+“近一年以来V圈完成正式饭圈化。导致V圈在大众风评下降和观众成分发生严重变化，拒绝了大量潜在观众”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|几乎已经不关心除咩以外的v圈信息了，视野.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 9722#       发表于 2020-8-25 00:05
+
+
+
+
+你们一个话题能水这么多楼我是没想到的
+
+闲的无聊可以学日语啊
+
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 9723#       发表于 2020-8-25 00:05
+
+
+
+
+风怒编辑
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9724#       发表于 2020-8-25 00:07
+
+
+
+
+等等超明治了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9725#       发表于 2020-8-25 00:09
+
+
+
+
+七夕快乐 楼友们 咩咩今天说不定会播
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9726#       发表于 2020-8-25 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540675&amp;ptid=1945537" target="_blank">Mr.shelter 发表于 2020-8-25 00:07</a>
+等等超明治了吗</blockquote>
+早超了，下个月参加几个联动超过茄子也不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9727#       发表于 2020-8-25 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那么七夕快乐，今年也是单身，只有咩咩陪我了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9728#       发表于 2020-8-25 00:10
+
+
+
+<blockquote>Mr.shelter 发表于 2020-8-25 00:07
+等等超明治了吗</blockquote>
+明治最近比较摸，听别人说休息了十几天才播一次
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9729#       发表于 2020-8-25 00:11
+
+
+
+<blockquote>シオン诗音 发表于 2020-8-25 00:09
+那么七夕快乐，今年也是单身，只有咩咩陪我了</blockquote>
+日本七夕节过了。。。咩姐会不会在中国七夕节播还不好说
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9730#       发表于 2020-8-25 00:11
+
+
+
+
+学学剪辑也行，我马上就要开始戒麻清修了，手头有个活感觉也整不完了，帮帮忙呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1bb411F7Sh](https://www.bilibili.com/video/BV1bb411F7Sh)
+
+这个教程我去考组剪的时候连2.10都没学完（其实现在这里面的很多我也还不会<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|干货|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9731#       发表于 2020-8-25 00:12
+
+
+
+
+风评？现在管人还有风评？
+
+现在你咩就是我目前觉得风评最好的管人之一，其他鬼知道她们到底是什么东西，哪天里垢一暴说不定就是个标准反华见光死
+
+谈风评最好把自己从所谓管人圈里撇出去再谈
+
+
+我现在除了你咩其他管人一概不看甚至包括如月，原因不是毒唯，就是tm觉得不该踏进这垃圾圈子
+
+就跟页游群不谈时政一样，这种不信任感通过各路脑瘫已经在我心中种满了梁木，救不回来
+
+
+我现在看管人圈就跟看见跟风异世界穿越文一样，看见别的管人的表情包都有点避之不及的感觉
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 単推し人| + 1|虽然是毒唯，但是同感|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9732#       发表于 2020-8-25 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">我到觉得如果她真的厉害那就能够找到新的观众，她如果就这样变成一个底边v说明以前的一切都完全是巧合堆砌而成的，完全没有办法成为你们口中所说的高同接高收入的顶层v
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只想说的是别祈忧了，真想帮忙就去做一些你能做到的事
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9733#       发表于 2020-8-25 00:14
+
+
+
+
+麻酱能不能现在阴间时间突击一下
+
+要加班到5点 诺大的就我一个人好寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9734#       发表于 2020-8-25 00:14
+
+
+
+
+今天成功给4个打游戏认识的朋友推销（或者威逼利诱?）了装扮，我也没有光杞忧也在行动的，各位七夕快乐，祝每个爱她的人也都能被她所爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 9735#       发表于 2020-8-25 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540642&amp;ptid=1945537" target="_blank">thisisaspider 发表于 2020-8-25 00:04</a>
+
+反驳，围绕mea看待问题格局实在太小。
+
+风评是次要的，非要说风评问题，我还能说
+
+“近一年以来V圈完成正式 ...</blockquote>
+几乎已经不关心除咩以外的v圈信息了，视野限制了我的格局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，才知道原来评分理由还有字数限制的
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9736#       发表于 2020-8-25 00:19
+
+
+
+
+B动了 等一手突击<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9737#       发表于 2020-8-25 00:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">又动了又动了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9738#       发表于 2020-8-25 00:21
+
+
+
+
+小麻，动啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9739#       发表于 2020-8-25 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540710&amp;ptid=1945537" target="_blank">Cla0221 发表于 2020-8-25 00:11</a>
+
+学学剪辑也行，我马上就要开始戒麻清修了，手头有个活感觉也整不完了，帮帮忙呗
+
+https://www.bilibi ...</blockquote>
+对了，我说的是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剪辑门槛真的很低的，至于思路多学习大up的游戏剪辑就好。精力发散不完要在论坛发散的真的可以学来试试。即使在工作岗位上，多个技能也是多个可能啊。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9740#       发表于 2020-8-25 00:25
+
+
+
+
+mea已经超过了很多当年的前辈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+另外天天杞忧这个杞忧那个真没啥用，mea好的时候还好，真遇到挫折可不就贷款成功当场发疯了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所谓提纯
+
+还好我已经从去年这种状态毕业了，打了一天星际真开心
+
+
+怎么还有人惦记我的草
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9741#       发表于 2020-8-25 00:27
+
+
+
+
+呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，楼友这么努力，我也要做加把劲骑士
+
+技术和艺术都是人类释放表达欲的工具，希望自己有能力为她表达爱与梦想<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9742#       发表于 2020-8-25 00:29
+
+
+
+
+临睡前吐个黑泥，睡醒删（病栋并感）：没买你咩的装扮还拿别的装扮的表情包在评论区使劲发“装扮滞销，救救孩子”的人不会觉得自己很幽默吧？
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9743#       发表于 2020-8-25 00:40
+
+
+
+
+其实你们应该把隔壁某人的销量看成是holo箱推的销量才对啊。你一个人打人家一个箱，拿头比啊，说白了你咩这个数量很正常，没什么问题。还是看自己需求来，支持全看自己能力。我反正买了两套赠了一套，没有那么多钱就做个粉丝的本分。解锁不了无非是B站提前准备好的东西砸手里了，下次就没什么豆虫的事情来拉你咩做垫背的。这是好事。麻烦楼友来辩证的看问题好吧。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9744#       发表于 2020-8-25 00:41
+
+
+
+
+节日快乐
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9745#       发表于 2020-8-25 00:45
+
+
+
+
+活动不找咩可不是件好事，你咩被阿b看不上更不是件好事
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9746#       发表于 2020-8-25 00:45
+
+
+
+ 本帖最后由 A2014720 于 2020-8-25 00:52 编辑 
+
+如果多b限就能解决问题，那问题就去tmd吧
+可能是有很多东西没抓住，但我觉得已经可以了，直播有趣好看就够了
+
+阿b又能看的上谁呢，不全是cylx，人家忙着主流进出，关她什么事，整个虚拟区都没怎么好好搞，是把今年bml上的星姐再演一遍吗，还是这垃圾周边，这见面会半小时的延迟，这越来越多的斗虫？
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9747#       发表于 2020-8-25 00:47
+
+
+
+
+如果被阿b看不上的话，可是连fmt都办不了的😅😅😅
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9748#       发表于 2020-8-25 00:50
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-8-25 01:16 编辑 
+
+还在这个话题?
+
+感觉像是被情场老手玩弄在手掌心的备胎
+
+得到了一点好处就对对方的态度处处在意患得患失
+
+如果得不到的话那又怎么样呢
+
+本来就是锦上添花的东西
+
+得到了还要担心对方收回
+
+何必呢
+
+当你觉得谁谁谁的态度重要的时候， 你已经不自由了
+
+金钱的奴隶， 数字的奴隶， 自身所有物的奴隶?
+
+本末倒置， 手段变成了目的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9749#       发表于 2020-8-25 00:51
+
+
+
+
+说白了也只有在意活动的人才会担心这个，我是觉得不办活动没什么不好
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9750#       发表于 2020-8-25 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540724&amp;ptid=1945537" target="_blank">Ky·Kiske 发表于 2020-8-25 00:12</a>
+
+风评？现在管人还有风评？
+
+现在你咩就是我目前觉得风评最好的管人之一，其他鬼知道她们到底是什么东西，哪 ...</blockquote>
+qs,最近传的bfmmana回归还有家主转生都给我这种感觉,这圈子已经够尼玛烂了为什么还要投入到这片苦水中,真的对着这已经完全不同于18年19年的圈子还有留恋吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9751#       发表于 2020-8-25 01:01
+
+
+
+
+啊B大部分活动就是豆虫而已。
+除非有像live这样的重大利好，否则我不建议参加。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9752#       发表于 2020-8-25 01:08
+
+
+
+
+没有阿b宣发就没有流量？对，是少点，那以前没宣发的时候是怎么过来的，对，时代是不同了，但是是大家都知道她曾经是个卖粉丝礼物和人同居的就不看了，还是v圈就是恶臭二刺螈饭圈，里面人都是人下人舔狗，v的中之人更都是不敢见人的人就不看了。她的核心和这些有关系吗
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 9753#       发表于 2020-8-25 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不知道你们在疑虑啥，又开始yhm时间了？ 天狗自肃导致路人粉增长过慢和被洗出去不是很正常的事情吗，现在反过来觉得粉丝少要凉的话，当年就别管烂梗人和贴贴人不就好了。有得必有失
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9754#       发表于 2020-8-25 01:20
+
+
+
+
+她的核心粉都杀了很多很多了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9755#       发表于 2020-8-25 01:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你们真该体验一下18年一个月播几天，饭盒没福利，干死金主的mea，那是你们记忆中的美好时代
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 9756#       发表于 2020-8-25 01:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">差不多得了
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 9757#       发表于 2020-8-25 01:32
+
+
+
+
+都是事业民   都是事业民   还能不能好了
+
+不打算 付诸行动的话 建议不要多思考这种问题  徒增痛苦
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 9758#       发表于 2020-8-25 01:33
+
+
+
+
+我买了全套周边 但是我没买批站套装 我给你们道歉了 对不起 对不起。对不起<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9759#       发表于 2020-8-25 01:37
+
+
+
+
+“不付诸行动的话 建议不要多思考这种问题  徒增痛苦” +1
+
+我最近除了上班时间都挺快乐的，没法和杞忧楼友产生共情，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 9760#       发表于 2020-8-25 01:43
+
+
+
+
+不过这玩意🈶🧠的不会在意
+稍微沾点的干着急 🈶舅舅mea那味了
+要是能骗点mmr来买也是好事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+                        
