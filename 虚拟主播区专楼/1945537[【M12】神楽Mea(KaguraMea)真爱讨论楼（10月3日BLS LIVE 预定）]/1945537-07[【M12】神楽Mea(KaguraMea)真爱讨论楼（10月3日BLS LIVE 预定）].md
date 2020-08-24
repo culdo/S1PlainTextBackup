@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-24 00:02** 
+> ## **本文件最后更新于2020-08-24 10:03** 
 
 
 
@@ -790,7 +790,7 @@ syl 今天两场见面会v区流量直逼外野，楼gachi还是很强的啊<img
 <img src="https://img.saraba1st.com/forum/202008/22/230543d266itg0z4rqigpw.jpg" referrerpolicy="no-referrer">
 
 
-<strong>4形态2.jpg</strong> (650.64 KB, 下载次数: 1)
+<strong>4形态2.jpg</strong> (650.64 KB, 下载次数: 3)
 
 下载附件
 
@@ -803,7 +803,7 @@ syl 今天两场见面会v区流量直逼外野，楼gachi还是很强的啊<img
 <img src="https://img.saraba1st.com/forum/202008/22/234814eu2b6uhir7mzidhi.jpg" referrerpolicy="no-referrer">
 
 
-<strong>4形态3.jpg</strong> (637.37 KB, 下载次数: 2)
+<strong>4形态3.jpg</strong> (637.37 KB, 下载次数: 4)
 
 下载附件
 
@@ -3160,10 +3160,11 @@ QQ图片20200823172205_副本.png
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| czkt615477| + 1|鲨疯辣|
 | Sanguine| + 1|欢乐多|
 | Dualist彩| + 1|思路广|
 | makourisu| + 1|好评加鹅|
@@ -6094,10 +6095,11 @@ meall可不是贴贴，meall本质是以mea为中心，把其他人当挂件的�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| シオン诗音| + 1|思路广|
 | 呓亘| + 1|zqsg好评|
 
 
@@ -6449,8 +6451,11 @@ S1不需要穿西装。然后别人单人配信和联动时尊重下人家liver�
 
 
 
+ 本帖最后由 A2014720 于 2020-8-24 00:06 编辑 
 
 阿b割韭菜不要太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+昨天听着咩推销阿b的周边还是有梁木的，自己那周边质量作成什么样了没数吗
 
 
 
@@ -6465,11 +6470,674 @@ S1不需要穿西装。然后别人单人配信和联动时尊重下人家liver�
 
 
 
+ 本帖最后由 ylssb10438 于 2020-8-24 00:09 编辑 
 
-一是隔壁出的早而且质量高，二是人家箱推有很多买账，换个狐狸夏哥心心啥的卖的也不会慢的
-
-
-
+一是隔壁出的早而且质量高，二是人家箱推有很多买账，换个狐狸夏哥心心啥的卖的也不会慢的本来我也不想买的，买了才发现海报能换pretender那张，不懂为啥不用那张宣传，而且表情包梗太少了
 
 
-                                     
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9368#       发表于 2020-8-24 00:04
+
+
+
+
+她自己选的图不怎么样罢了，要不是抢数字我才不愿买这个😓
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9369#       发表于 2020-8-24 00:05
+
+
+
+
+不会真有人在app上花钱吧，不会吧不会吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9370#       发表于 2020-8-24 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是的，如果我还是铁血ttr那我肯定两边都买一套支持一下她们，但现在我就买了咩一套，前面的说法还是有问题的。
+
+syl，我觉得不能光靠想着阴兵吧，反正我给小号也买了一套去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 9371#       发表于 2020-8-24 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚买了一套 支持下小羊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9372#       发表于 2020-8-24 00:07
+
+
+
+ 本帖最后由 A2014720 于 2020-8-24 00:13 编辑 
+
+本来就没几张图可用…要上井皇立绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+晚点上极光效果可能好点，开泥头车撵阿b去了
+上极光来个bls特供什么的…这阿b<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9373#       发表于 2020-8-24 00:07
+
+
+
+
+草，油管上今天的档怎么没了，还说回味一下，希望能早些烤出来吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9374#       发表于 2020-8-24 00:13
+
+
+
+<blockquote>A2014720 发表于 2020-8-24 00:07
+本来就没几张图可用…要上井皇立绘吗</blockquote>
+那第三张放个草莓果酱打算做出live2d的图为什么不换成momo老师帮她画的头像那副，粉红果酱都比第三张好，还有这主题是淡蓝色的，真要解锁和那三张黄黑粉颜色一点也不搭，有什么解锁的必要吗🤗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9375#       发表于 2020-8-24 00:14
+
+
+
+
+呜呜，我要极光服，我要灰裤袜高跟极光闪闪咩踩我<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9376#       发表于 2020-8-24 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529787&amp;ptid=1945537" target="_blank">时雨rain 发表于 2020-8-24 00:13</a>
+那第三张放个草莓果酱打算做出live2d的图为什么不换成momo老师帮她画的头像那副，粉红果酱都比第三张好， ...</blockquote>
+我估计因为一个是商业约稿一个是fanart<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9377#       发表于 2020-8-24 00:23
+
+
+
+<blockquote>暗心舞踏 发表于 2020-8-24 00:18
+我估计因为一个是商业约稿一个是fanart</blockquote>
+那我情愿要最新曲绘那几张
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9378#       发表于 2020-8-24 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529787&amp;ptid=1945537" target="_blank">时雨rain 发表于 2020-8-24 00:13</a>
+那第三张放个草莓果酱打算做出live2d的图为什么不换成momo老师帮她画的头像那副，粉红果酱都比第三张好， ...</blockquote>
+都这样了…我眼里区别不大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+路人眼里更看个顺眼和熟悉吧，当然我觉得纯路人基本不会买这东西
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9379#       发表于 2020-8-24 00:32
+
+
+
+
+这没啥好讨论的啊，这东西价格也不算高，路人看个眼熟随手能买也是一方面啊，你价格翻个倍就能检测粉丝纯度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9380#       发表于 2020-8-24 00:33
+
+
+
+ 本帖最后由 草牛 于 2020-8-24 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529865&amp;ptid=1945537" target="_blank">A2014720 发表于 2020-8-24 00:24</a>
+都这样了…我眼里区别不大
+
+路人眼里更看个顺眼和熟悉吧，当然我觉得纯路人基本不会买这东西 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你听他胡扯吧，我看老爱选的那几张也普通，表情甚至只有10个，该叫好不还是叫好
+
+哦对了，再动动脑，你最新那三首歌曲绘都是仿物语的服装设计画的，你拿出来卖，不要命了？
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9381#       发表于 2020-8-24 00:51
+
+
+
+ 本帖最后由 睥睨寰宇荡红尘 于 2020-8-24 00:52 编辑 
+
+(┯_┯)买了两套，送了一套。被ET勒索了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9382#       发表于 2020-8-24 00:52
+
+
+
+ 本帖最后由 笋狐 于 2020-8-24 00:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐还少了个阿睿用泳装色图虚假宣传吸引lsp的因素
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9383#       发表于 2020-8-24 01:00
+
+
+
+
+总会到2w3的 慢慢等 慢慢等
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 9384#       发表于 2020-8-24 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48529531&amp;ptid=1945537" target="_blank">暗心舞踏 发表于 2020-8-23 23:36</a>
+23333套肯定没问题，真到期限了上阴兵都要给你填上，要卖得快就多安利下路人来掏钱吧 ...</blockquote>
+这阴兵是谁出啊，总不能是B站出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退一万步B站真的出了阴兵，你指标没完成能有好果汁吃吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9385#       发表于 2020-8-24 02:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48530186&amp;ptid=1945537" target="_blank">寒星 发表于 2020-8-24 01:26</a>
+
+这阴兵是谁出啊，总不能是B站出吧退一万步B站真的出了阴兵，你指标没完成能有好果汁吃吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是这个意思，还是别想着阴兵的事情比较好
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9386#       发表于 2020-8-24 07:35
+
+
+
+
+45块钱，一万套就是45万块，突然发现阿b这个真够赚钱而且是暴利的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">图都是现成的，只需要设计一下动画和表情就够了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 9387#       发表于 2020-8-24 07:37
+
+
+
+<blockquote>寒星 发表于 2020-8-24 01:26
+这阴兵是谁出啊，总不能是B站出吧退一万步B站真的出了阴兵，你指标没完成能有好果汁吃吗 ...</blockquote>
+这玩意能有啥指标...还能逼着签对赌协议不成...
+
+一不是啥出圈引发流行的大物二不是抽奖，脑子抽了才会觉得能有2W人愿意出50块给个23333指标吧。
+
+真有这么多人那今年bls轰个两三百万不是玩一样？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9388#       发表于 2020-8-24 08:28
+
+
+
+
+藤原结婚了，机会来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9389#       发表于 2020-8-24 08:45
+
+
+
+
+情敌-1？
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9390#       发表于 2020-8-24 08:46
+
+
+
+
+结婚了咩宝也会幻想她是小三，情敌-1不存在的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9391#       发表于 2020-8-24 08:54
+
+
+
+ 本帖最后由 专业划水人员 于 2020-8-24 09:10 编辑 
+
+咩宝啊，藤原结婚了要整活也别用力过猛阿，不然又有人疯了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 9392#       发表于 2020-8-24 08:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48531264&amp;ptid=1945537" target="_blank">专业划水人员 发表于 2020-8-24 08:54</a>
+咩宝啊，今晚整活别太用力了，不然又有人疯了</blockquote>
+今晚是啥啊？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9393#       发表于 2020-8-24 09:01
+
+
+
+
+藤原结婚当然是伤心过度今日不播啦
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9394#       发表于 2020-8-24 09:09
+
+
+
+
+失恋歌会请。
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 9395#       发表于 2020-8-24 09:29
+
+
+
+
+今天还是12k，没戏了没戏了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9396#       发表于 2020-8-24 09:38
+
+
+
+ 本帖最后由 A2014720 于 2020-8-24 09:42 编辑 
+
+隔壁都3w了，凉了凉了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+这东西换成sc就是50w啊<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+呐，阿b能出个bls特供版吗，我不喜欢现在这编号唉<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  百鬼绫目  
+##### 9397#       发表于 2020-8-24 09:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094247iyyavebi9regygvh.png" referrerpolicy="no-referrer">
+
+
+<strong>212000bmzmm05qc8qfupap.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094247xybnp8o24dcscd91.png" referrerpolicy="no-referrer">
+
+
+<strong>212004h7dkmz5bq775gk9q.png</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094246z1g147p414gs2gqp.png" referrerpolicy="no-referrer">
+
+
+<strong>212006nf362tmh44s4f4b4.png</strong> (1.39 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094246oypyb28guy2upsd2.png" referrerpolicy="no-referrer">
+
+
+<strong>212015d7flm5l169g1hf75.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094246jpz8pb8ehlgl5s5u.png" referrerpolicy="no-referrer">
+
+
+<strong>212017augtqaqaaawk5266.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/094244mcabkyexlab7pzff.png" referrerpolicy="no-referrer">
+
+
+<strong>212021juqxxxikdigkqiig.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 09:42 上传
+
+
+
+
+
+
+
+前情提要:用人夫施法的Mea
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9398#       发表于 2020-8-24 09:45
+
+
+
+
+希望mea用力猛一点，奶一个即使当小的也行
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9399#       发表于 2020-8-24 09:49
+
+
+
+
+希望mea用力猛一点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 9400#       发表于 2020-8-24 09:51
+
+
+
+
+ 希望MEA 演的有人发疯
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9401#       发表于 2020-8-24 09:52
+
+
+
+
+你们太坏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    
