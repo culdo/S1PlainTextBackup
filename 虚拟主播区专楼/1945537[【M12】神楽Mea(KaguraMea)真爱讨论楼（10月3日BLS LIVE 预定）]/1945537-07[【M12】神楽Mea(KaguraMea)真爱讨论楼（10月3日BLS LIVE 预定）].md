@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-24 16:05** 
+> ## **本文件最后更新于2020-08-24 18:03** 
 
 
 
@@ -8101,4 +8101,1234 @@ m楼里充满了对🦄的恶意<img src="https://static.saraba1st.com/image/smi
 
 
 
-                                  
+
+
+-----
+
+####  追风小星星  
+##### 9460#       发表于 2020-8-24 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9461#       发表于 2020-8-24 16:08
+
+
+
+
+这一套用到阿b倒闭的东西还连着大亏还要2万3，真的是张嘴就来
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9462#       发表于 2020-8-24 16:11
+
+
+
+
+所以说睿叔叔眼里只有钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。不是粉丝谁管你生态如何内卷如何竞争如何呢。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9463#       发表于 2020-8-24 16:13
+
+
+
+
+现在就看bls了，bml后星姐这个月在b的收益<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9464#       发表于 2020-8-24 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有就是这个app主题出来的时间点不太巧，不仅是因为刚刚撞到了阿库娅主题的第二天，而且有一说一从两周年开始需要掏钱的地方有点密集，各种庆祝生日音声周边谷子初3D线下会，这app达不成105万元的销售额可太tm正常了，建议别对这玩意抱有期待，真能卖出105万元建议直接当成全是阴兵
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9465#       发表于 2020-8-24 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了下，连b站评论区都焦虑这事了，啊b该搬阴兵了，另外那数量一两个小时才更一次的，一直盯着肯定焦虑的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9466#       发表于 2020-8-24 16:16
+
+
+
+ 本帖最后由 A2014720 于 2020-8-24 16:17 编辑 
+
+不怕穷就怕比啊，阿b我杀你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+这就是滑铁卢吗，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9467#       发表于 2020-8-24 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比了也没什么好怕的，阿库娅真有3万活粉那是她真的牛逼好吧，关你咩姐屁事
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9468#       发表于 2020-8-24 16:18
+
+
+
+
+跟不上时代，无法理解，你这装扮昨天那么密集的宣传该买的基本都买了，今天转这一下卖出去100套了吗，该做的都做了，剩下的应该让批站想办法，有必要那么卖力吗，难不成睿叔叔真下达了什么命令？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9469#       发表于 2020-8-24 16:18
+
+
+
+
+现在是45买个很难完整的东西不是谁买谁sb吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9470#       发表于 2020-8-24 16:20
+
+
+
+
+接受现实比较好（指粉丝和b站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的着急不如多去用用表情，说不定就吸引到人去买了。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9471#       发表于 2020-8-24 16:21
+
+
+
+
+太不安了又买了3套，我要是个有钱人就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9472#       发表于 2020-8-24 16:22
+
+
+
+
+妈的，看见一个人买了好几套我就想杀了b站，太弱智了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9473#       发表于 2020-8-24 16:23
+
+
+
+
+好几把弱智啊这东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+早知道不买了
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 9474#       发表于 2020-8-24 16:25
+
+
+
+
+买多份的你不如打sl
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9475#       发表于 2020-8-24 16:25
+
+
+
+
+冠军粉跑完贴贴人跑，贴贴人跑完事业民跑，事业民跑完毒唯…快进到bls取消，快进到受苦麻<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9476#       发表于 2020-8-24 16:26
+
+
+
+
+直播间粉丝团也就一万多人啊，这东西能卖这个数字我已经觉得粉丝转化率挺高的了，能掏钱的基本都掏钱了吧，那还能怎么样嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9477#       发表于 2020-8-24 16:38
+
+
+
+
+还是期待bls live吧,会唱新的歌曲吗? 感觉跟新3D挺搭的 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9478#       发表于 2020-8-24 16:40
+
+
+
+
+做好自己的就行了，烦恼那么多也没用
+怎么做了个梦她在玩CK3，还直播调语言结果发现不支持日语
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9479#       发表于 2020-8-24 16:40
+
+
+
+
+新曲已经有了，不是口水曲<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9480#       发表于 2020-8-24 16:41
+
+
+
+
+妈的你们 我再买几套吧 能出一分是一分
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9481#       发表于 2020-8-24 16:41
+
+
+
+
+弱智time草
+
+              
+
+补了昨天的联动，跟330还是差了点呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  闪刀姬  
+##### 9482#       发表于 2020-8-24 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536227&amp;ptid=1945537" target="_blank">鷹書たかしょ 发表于 2020-08-24 16:40:30</a>
+做好自己的就行了，烦恼那么多也没用
+怎么做了个梦她在玩CK3，还直播调语言结果发现不支持日语 ...</blockquote>Ck3的梦那就真的是梦了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9483#       发表于 2020-8-24 16:42
+
+
+
+
+陈睿，我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9484#       发表于 2020-8-24 16:42
+
+
+
+ 本帖最后由 草牛 于 2020-8-24 16:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9485#       发表于 2020-8-24 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别一边骂一边买啊，真是为了信仰多买几个谷子不好吗，纯度高一点直接slab走起啊，买什么app主题
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9486#       发表于 2020-8-24 16:44
+
+
+
+
+别多买了，只能看阿b懂不懂得每天来几个阴兵兜底来开源，现在多买就是无意义投入
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9487#       发表于 2020-8-24 16:50
+
+
+
+
+你楼突然上头，这是受什么刺激了么？有1万人愿意掏50块钱我已经笑出声了好吧
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9488#       发表于 2020-8-24 16:50
+
+
+
+
+这又不比bls，那次你咩可是有实打实的好处。一个个性主题觉得好看买了爽就完事，搞得跟打榜似的至于么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不如直接打给你咩，多吃份牛丼也是好的
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9489#       发表于 2020-8-24 16:51
+
+
+
+
+怎么回事啊你们<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别为了这个销量着魔了啊
+这两天能卖一万多套已经不错了好么，这可是五十万的流水金额啊，还是说斗虫都疯了，觉得这是小钱？
+另一方面，这段时间从两周年开始，音声，周边，线下会各种。这一万多份的45块可比前面的都卖的够多了，知足吧。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9490#       发表于 2020-8-24 16:52
+
+
+
+
+所以我前面也说了嘛，你们继续讨论下去也不可能有什么爆发性增长的，不如聊别的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去年七夕有什么活动来着么
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9491#       发表于 2020-8-24 16:55
+
+
+
+
+你楼的独角兽和连体人已经是合格的韭菜了，睿叔叔很欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，能卖一万多已经很离谱了，你咩的阿b直播间的活粉才多少人呢，我都怀疑已经有阴兵下场拱火了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9492#       发表于 2020-8-24 16:55
+
+
+
+ 本帖最后由 A2014720 于 2020-8-24 16:57 编辑 
+
+差不多该动了，棉花糖来来来
+
+谁让设了2w3的目标呢，不管了，不会咩和阿b真签了对赌协议就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9493#       发表于 2020-8-24 16:57
+
+
+
+
+我佛了，就一45块的东西没人买搞得天要塌下来一样，这东西除了污染评论区让mmr开心以外真没啥吸引力啊，这钱有能力得办个404会员，加点钱上个饭盒1000档 打个黄色sc都比这个有价值啊，六月以来需要给她花钱得活动一个接着一个，财力实在跟不上不买就不买了呗，没有的时候不照样看直播，靠这种东西刷存在感，这不就是mmr行为，yysy不是这活动我都不知道还有这功能，这玩意她能不能收上钱也不知道，404会员+饭盒+sl这种我好她也好的配置不整搁那满足mmr虚荣心，操心这个装扮属实给自己添堵
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|是这个道理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9494#       发表于 2020-8-24 16:57
+
+
+
+
+咱在阿B不评论不发弹幕，买了装扮也不装饰。买这个纯粹是信仰支持一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 9495#       发表于 2020-8-24 16:59
+
+
+
+
+本质数字，不要有奇怪的虚荣心
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9496#       发表于 2020-8-24 17:00
+
+
+
+ 本帖最后由 単推し人 于 2020-8-24 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536421&amp;ptid=1945537" target="_blank">pei23333 发表于 2020-8-24 16:57</a>
+我佛了，就一45块的东西没人买搞得天要塌下来一样，这东西除了污染评论区让mmr开心以外真没啥吸引力啊，这 ...</blockquote>
+mea有分成的，我记得有人问了那个装扮娘还是另外哪个官方来着，回复说有分成
+分成多少倒不知道
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9497#       发表于 2020-8-24 17:00
+
+
+
+
+这分成不会有sc多吧，那不完事了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9498#       发表于 2020-8-24 17:01
+
+
+
+
+想要促进销量的话在其他up下面评论的时候试着多用用戳便便表情吧，其它表情太平淡了，没什么路人缘。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9499#       发表于 2020-8-24 17:01
+
+
+
+
+说真的，真别上了cr的当，买来自己玩玩表情不就挺好，为了个指标额外交智商税，不可取<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9500#       发表于 2020-8-24 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实我是觉得B站那默认主题看腻了想换个那种想法的，结果阿B这阶段解锁罪大恶极
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9501#       发表于 2020-8-24 17:04
+
+
+
+
+bls这个页面是挂了一会就没了么，不去翻官组的动态我还找不到了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9502#       发表于 2020-8-24 17:05
+
+
+
+
+好想看mea完不成任务的样子，😆
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9503#       发表于 2020-8-24 17:05
+
+
+
+
+别说主题了，我这表情都显示不出来，一看评论区都是[神楽Mea_咩]之类的文字
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9504#       发表于 2020-8-24 17:05
+
+
+
+
+唉，🐴的，不管咋样看着好焦心，好想成为石油王
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9505#       发表于 2020-8-24 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536517&amp;ptid=1945537" target="_blank">IrisL 发表于 2020-08-24 17:04:40</a>
+bls这个页面是挂了一会就没了么，不去翻官组的动态我还找不到了</blockquote>一直有的，我用chrome直接把那个链接固定了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9506#       发表于 2020-8-24 17:07
+
+
+
+
+只能说叔叔的手段真的很厉害，石油佬买的多那是娱乐，看你们傻愣愣的买我只能无能狂怒
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9507#       发表于 2020-8-24 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536522&amp;ptid=1945537" target="_blank">鷹書たかしょ 发表于 2020-8-24 17:05</a>
+
+别说主题了，我这表情都显示不出来，一看评论区都是[神楽Mea_咩]之类的文字 ...</blockquote>
+啊，那是真没钱买的mmr搁那打字蹭热度呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，况且专属表情直播时打不了更没吸引力了，还是404会员香
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9508#       发表于 2020-8-24 17:09
+
+
+
+
+主要是买了tm是个残次品，十分愤怒
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9509#       发表于 2020-8-24 17:12
+
+
+
+ 本帖最后由 単推し人 于 2020-8-24 17:14 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/171028ml9oyy1k8ioz4y2o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>qq_pic_merged_1598260127618.jpg</strong> (208.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 17:10 上传
+
+
+
+
+阿睿好像也很着急的样子
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9510#       发表于 2020-8-24 17:13
+
+
+
+
+阿睿你阴兵呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就这样吧，我等晚上直播
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9511#       发表于 2020-8-24 17:14
+
+
+
+
+对啊，你让b站的平台去宣传不就完了，自己急个什么劲，服了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9512#       发表于 2020-8-24 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是真的很想用那个主题啊，那咋办嘛。
+syl，去年貌似七夕没B限那看来今年也说不准了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9513#       发表于 2020-8-24 17:15
+
+
+
+
+有被笑到
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9514#       发表于 2020-8-24 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536561&amp;ptid=1945537" target="_blank">pei23333 发表于 2020-8-24 17:07</a>
+啊，那是真没钱买的mmr搁那打字蹭热度呢，况且专属表情直播时打不了更没吸引力了，还是404会员香 ...</blockquote>
+有的是打字的，但我这也的确显示不出来这些表情，连[doge][妙啊]这些都是文字
+我就是冲着粉丝编号买的，其他的我这上古版本app啥都用不了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9515#       发表于 2020-8-24 17:16
+
+
+
+
+阿b七夕活动就邀请了19个，这要是来b限就是特意查了日子的了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9516#       发表于 2020-8-24 17:17
+
+
+
+
+预约期间看到有人私信官方要求是不是订的太高了，然后官方表示“我觉得达到23333没那么难哦”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这是自己打自己脸吗
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9517#       发表于 2020-8-24 17:17
+
+
+
+
+你倒是更新啊，那么恋旧干啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9518#       发表于 2020-8-24 17:18
+
+
+
+
+七夕她总知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9519#       发表于 2020-8-24 17:18
+
+
+
+
+希望前面那位老哥还没买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9520#       发表于 2020-8-24 17:19
+
+
+
+
+特意查还要知道查中国的农历，b不拉来不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9521#       发表于 2020-8-24 17:20
+
+
+
+
+我有明日方舟的主题，可以混着用<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9522#       发表于 2020-8-24 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48536636&amp;ptid=1945537" target="_blank">鷹書たかしょ 发表于 2020-8-24 17:15</a>
+
+有的是打字的，但我这也的确显示不出来这些表情，连[doge][妙啊]这些都是文字
+
+我就是冲着粉丝编号买的， ...</blockquote>
+那不是更好，你是没见昨天b博下面粉色拉满，好像小秦那也被冲烂了，这东西除了污染评论区一点用没有，看不见更好
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9523#       发表于 2020-8-24 17:28
+
+
+
+
+你们觉得见面会那毛巾有什么B用吗？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9524#       发表于 2020-8-24 17:30
+
+
+
+
+拍照打tag发推用
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9525#       发表于 2020-8-24 17:30
+
+
+
+
+买一个是纪念，买那么多有啥用啊，闲钱多当我没说
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9526#       发表于 2020-8-24 17:30
+
+
+
+
+啊这，live上用完后就剩收藏了吧
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9527#       发表于 2020-8-24 17:32
+
+
+
+ 本帖最后由 単推し人 于 2020-8-24 17:33 编辑 
+
+所有live的毛巾除了当时用不都只剩收藏用了吗？又不只咩一家这样
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9528#       发表于 2020-8-24 17:35
+
+
+
+
+周边除了荧光棒我都没拆封，留作纪念了
+荧光棒下回还能用
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9529#       发表于 2020-8-24 17:54
+
+
+
+
+这app皮肤多买有啥用？不要上脑啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9530#       发表于 2020-8-24 17:57
+
+
+
+
+多买可以送人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 9531#       发表于 2020-8-24 17:59
+
+
+
+
+播一播啊。。来点歌
+
+
+
+
+
+                                
