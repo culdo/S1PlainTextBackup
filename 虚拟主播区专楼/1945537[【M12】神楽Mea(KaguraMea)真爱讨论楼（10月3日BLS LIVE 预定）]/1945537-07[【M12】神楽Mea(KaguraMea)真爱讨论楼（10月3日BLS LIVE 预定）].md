@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-24 20:03** 
+> ## **本文件最后更新于2020-08-24 22:04** 
 
 
 
@@ -9927,4 +9927,1932 @@ syl，去年貌似七夕没B限那看来今年也说不准了
 
 
 
-                               
+
+
+-----
+
+####  路人庚  
+##### 9566#       发表于 2020-8-24 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我还是支持多喷喷弱智的，不然弱智只会越来越多（虽然我自己对于独角兽一直都很克制来着
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9567#       发表于 2020-8-24 20:14
+
+
+
+
+这个时雨rain已经nt了两个月了吧，可能不止，要爬就爬，像个怨妇在这真的难看
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9568#       发表于 2020-8-24 20:22
+
+
+
+
+你要是个企业势，你公司也会掏钱用你的形象约一堆图拿来出周边卖。你咩约图基本都是为了歌，拿这个说她不约稿我觉得不行。
+这段时间和阿b的合作也不少了，成果也检验过一轮了，还不够用心吗，咱讲道理啊。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9569#       发表于 2020-8-24 20:27
+
+
+
+
+fmt上阿咩够用心了吧
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9570#       发表于 2020-8-24 20:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/203003byxmmklumi6xkddm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>d0a5bb7bdab44aedd11b9cb7a41c8701a08bfb4f.jpg</strong> (152.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 20:30 上传
+
+
+
+
+
+
+建议复读你咩名言，你楼事业民杀不光，说明你咩太不用心了，建议加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9571#       发表于 2020-8-24 20:31
+
+
+
+
+……没啥必要回他，他已经yygq你咩几个月了，这怨妇爬了最好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9572#       发表于 2020-8-24 20:35
+
+
+
+
+何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9573#       发表于 2020-8-24 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">我没说见面会mea不可爱，我也觉得很可爱啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">但又不代表她做什么都是对的，我追这个人也不是把她当圣人去追的，我更愿意把当成一个普通的有趣的朋友去看
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9574#       发表于 2020-8-24 20:35
+
+
+
+
+喷走一个人 就少一个忍打钱啊……
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9575#       发表于 2020-8-24 20:37
+
+
+
+
+没说她是圣人啊 我也觉得粉丝没必要太急 不过这跟阿咩不用心有什么关系……
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9576#       发表于 2020-8-24 20:37
+
+
+
+
+什么是对什么是错不是由你来决定的，你咩姐不全是对的，你也是，想证明自己是对的可以驳倒我，欢迎辩论
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9577#       发表于 2020-8-24 20:38
+
+
+
+
+不多b限的话 人都会走光的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9578#       发表于 2020-8-24 20:42
+
+
+
+ 本帖最后由 単推し人 于 2020-8-24 20:44 编辑 
+
+她的态度和以前相比已经发生了很大的变化，从“你们只是观众”变成了“我们是朋友吧”，所以我觉得也没必要一直拿她以前的一些话出来呛，不过跟个怨妇一样一直yygq阿咩还是不可取，自己有黑泥建议可以和我一样开个文件夹写文书自己慢慢吐，不会影响到别人
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9579#       发表于 2020-8-24 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你对你普通的有趣的朋友要求还蛮高的，既要同接打钱比得过彩虹木口保持你心中的“不凉”，又要处处上心给一个无所谓的app主题约几个精美稿子，既要线下整活唱歌跳舞，又要线上说段子搞联动
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9580#       发表于 2020-8-24 20:43
+
+
+
+
+阿咩快播啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，一天没见全疯了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9581#       发表于 2020-8-24 20:45
+
+
+
+
+你楼难得大逃杀，主角还不是龙魂，建议加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9582#       发表于 2020-8-24 20:46
+
+
+
+
+等我成为她的普罗丢瑟她就不会那么累了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9583#       发表于 2020-8-24 20:48
+
+
+
+
+建议龙魂出来于其辩经
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9584#       发表于 2020-8-24 20:48
+
+
+
+
+什么叫选图不用心，Pretender曲绘难道不是默秒全？
+
+公主图到处都是一点都不稀奇，泳装图lsp都懒得看，看了有啥用，有P站实用？
+
+Pretender曲绘之前是我QQ头像，现在是我app版头，而且我在买装扮的时候压根没想到居然塞了这张图，那是真的喜悦
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9585#       发表于 2020-8-24 20:48
+
+
+
+
+一进来看你们在这祈忧，我也不过顺着话题走了一下，而且我也不是你mea姐的事业民
+希望明年粉丝人数对折也不算假话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9586#       发表于 2020-8-24 20:49
+
+
+
+
+希望人数对折....这就是事业民alter吗
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9587#       发表于 2020-8-24 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂犬还希望就剩他一个粉丝呢，不奇怪
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9588#       发表于 2020-8-24 20:51
+
+
+
+
+这就是暗黑事业民吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9589#       发表于 2020-8-24 20:51
+
+
+
+
+时雨 你要是希望阿咩多整活 就多给正反馈 可以在推上发发你喜欢的她整活的片段啊
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9590#       发表于 2020-8-24 20:51
+
+
+
+
+说起来，最近看到狂犬在mea2吧装mmr，装得还挺像<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9591#       发表于 2020-8-24 20:51
+
+
+
+
+给创作者反馈总不算是粉丝过度操心了吧
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9592#       发表于 2020-8-24 20:52
+
+
+
+
+我还希望对折那，我还想听她zqsg的哭一场
+
+她现在多快乐啊，烦恼都是快乐的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9593#       发表于 2020-8-24 20:53
+
+
+
+
+啊....本来我对头像框数根本不在乎的...现在也有点难受了
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9594#       发表于 2020-8-24 20:54
+
+
+
+
+粉丝真对折了开心的只是你们吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9595#       发表于 2020-8-24 20:54
+
+
+
+
+不要顺劈狂犬吧，别人现在越来越好了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9596#       发表于 2020-8-24 20:55
+
+
+
+
+粉丝数不要对折啊……翻倍啊……
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9597#       发表于 2020-8-24 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狂犬自从离开了s1感觉精神状态已经恢复的比较正常了，线下会那句少逛s1诚不我欺
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9598#       发表于 2020-8-24 20:55
+
+
+
+
+感觉自己的灵魂宝石也快黑了……明明这两天看直播时这么快乐....
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fsfs_freeze| + 1|少看s1|
+| 素人不相识| + 1|别黑，继续快乐下去|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9599#       发表于 2020-8-24 20:56
+
+
+
+
+我希望她能越来越火，粉丝数还是翻倍好
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9600#       发表于 2020-8-24 20:58
+
+
+
+
+草，那就别看楼了啊，这几天我倒是很开心，因为好久没能整段得看直播了。对了，还收获了一堆3D的gif，爽到。
+
+
+而且又拿了一张麻图，爽到（物理）<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9601#       发表于 2020-8-24 20:59
+
+
+
+
+在乎也不是什么坏事，粉圈经济，你不在乎你是粉丝么，再怎么嘴上说不在乎心里终归膈应一点
+
+打个不恰当的比方，当年粉周杰伦，然后哪天jay新专跟王力宏新专撞车了，撞车了不谈还被倍杀了，倍杀不谈新专卖得还越来越慢
+
+你就算是个再理智的粉丝你心情会舒畅吗
+
+
+要分析理由那可以有千千万，问题只有一个你能不能接受现实，现实很简单，这不算什么重要的事，就像jay哪张新专卖不过王力宏jay就变华语三流歌手了吗？
+
+不是什么重要的事就不要上纲上线
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9602#       发表于 2020-8-24 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538750&amp;ptid=1945537" target="_blank">Cla0221 发表于 2020-8-24 20:58</a>
+草，那就别看楼了啊，这几天我倒是很开心，因为好久没能整段得看直播了。对了，还收获了一堆3D的gif，爽到 ...</blockquote>
+我要麻图(伸手)
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9603#       发表于 2020-8-24 20:59
+
+
+
+
+麻图？风向一转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9604#       发表于 2020-8-24 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538750&amp;ptid=1945537" target="_blank">Cla0221 发表于 2020-8-24 20:58</a>
+草，那就别看楼了啊，这几天我倒是很开心，因为好久没能整段得看直播了。对了，还收获了一堆3D的gif，爽到 ...</blockquote>
+麻图求求<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9605#       发表于 2020-8-24 21:00
+
+
+
+
+什么几把，怎么cla就有麻图了？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9606#       发表于 2020-8-24 21:00
+
+
+
+
+麻图求求<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9607#       发表于 2020-8-24 21:01
+
+
+
+
+日 clay小心又被骗炮
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9608#       发表于 2020-8-24 21:01
+
+
+
+
+建议橄榄clay，md有图不发还非得说出来，爬爬爬<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我要🥜舞元了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9609#       发表于 2020-8-24 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啊这，我没有劈狂犬的意思，在网络上寻求慰藉也未尝不可，不歧视的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9610#       发表于 2020-8-24 21:02
+
+
+
+
+谜语人滚出哥谭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9611#       发表于 2020-8-24 21:02
+
+
+
+
+有新麻图——伸s···不对，是clay？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Pseudoephedrine  
+##### 9612#       发表于 2020-8-24 21:02
+
+
+
+
+那么麻图呢？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9613#       发表于 2020-8-24 21:03
+
+
+
+
+看不懂啊，线下会，还麻图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+楼友私底下比我想的还乱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9614#       发表于 2020-8-24 21:05
+
+
+
+
+心里没有一丝波动
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9615#       发表于 2020-8-24 21:06
+
+
+
+
+clay一击脱离了，谁来把他抓出来公审？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9616#       发表于 2020-8-24 21:09
+
+
+
+
+clay能冲的出来我一直蛮佩服的，在网络上我越是喜欢的女生越难生出那种工口的心思，就像我不看喜欢的纸片人的本子一样，clay精神还真是好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鷹書たかしょ| + 2|私も同じ|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9617#       发表于 2020-8-24 21:09
+
+
+
+
+啊这，我瞎掰的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这几天确实很爽到，草莓这个皮又幼她还弄了好多特别嗯的动作<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 単推し人| + 1|好，很有精神！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 9618#       发表于 2020-8-24 21:10
+
+
+
+
+ ……
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9619#       发表于 2020-8-24 21:11
+
+
+
+
+草，我就特别喜欢看我喜欢的纸片人本子，重口的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9620#       发表于 2020-8-24 21:11
+
+
+
+
+睡了，明早上希望能看到麻图<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9621#       发表于 2020-8-24 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">说吧，判几年
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9622#       发表于 2020-8-24 21:11
+
+
+
+
+怎么又没有了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9623#       发表于 2020-8-24 21:12
+
+
+
+
+《麻图来了》
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9624#       发表于 2020-8-24 21:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538891&amp;ptid=1945537" target="_blank">惑星 发表于 2020-8-24 21:11</a>
+草，我就特别喜欢看我喜欢的纸片人本子，重口的那种</blockquote>
+真是残酷的男人😱我看到喜欢的纸片人的本子会生理不适的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9625#       发表于 2020-8-24 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538870&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-8-24 21:09</a>
+
+clay能冲的出来我一直蛮佩服的，在网络上我越是喜欢的女生越难生出那种工口的心思，就像我不看喜欢的纸片人 ...</blockquote>
+最近用过的主要还是咩图，虽然有一张这个月也经常用但是如果我直球说出来我对那个用了好几次估计会被所有人鄙视<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">所以还是算了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9626#       发表于 2020-8-24 21:14
+
+
+
+
+所以为什么昨天那么好的直播为什么官组不烤呢，好不容易可以有点热度的东西又白白浪费了，能回味回味也不至于发一天疯啊
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9627#       发表于 2020-8-24 21:15
+
+
+
+
+官组已经脱粉了吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9628#       发表于 2020-8-24 21:15
+
+
+
+
+如月那里有切片 可以先拿来顶一下
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9629#       发表于 2020-8-24 21:16
+
+
+
+
+啊这，开始车官组了吗，那我溜了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 9630#       发表于 2020-8-24 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538922&amp;ptid=1945537" target="_blank">pei23333 发表于 2020-8-24 21:14</a>
+所以为什么昨天那么好的直播为什么官组不烤呢，好不容易可以有点热度的东西又白白浪费了，能回味回味也不至 ...</blockquote>
+车官组也是发疯<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9631#       发表于 2020-8-24 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9632#       发表于 2020-8-24 21:19
+
+
+
+ 本帖最后由 59268416 于 2020-8-24 21:21 编辑 
+
+都是人啊，想烤就烤呗，好久都没看过投稿了，追直播就挺累的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9633#       发表于 2020-8-24 21:20
+
+
+
+
+又动了，发了个表情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9634#       发表于 2020-8-24 21:20
+
+
+
+
+大概是holo看多了给你错觉什么组都拥有光速烤肉的能力，mea组就算在巅峰时期也比holo那群人慢一大截，24内小时烤肉如果没有组员发电的话基本不可能出来
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9635#       发表于 2020-8-24 21:20
+
+
+
+
+叔叔放过小麻吧……
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9636#       发表于 2020-8-24 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以到底有没有新麻图
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9637#       发表于 2020-8-24 21:21
+
+
+
+
+又发表情了，睿叔叔拿着鞭子在后面逼着呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9638#       发表于 2020-8-24 21:21
+
+
+
+
+不建议把叔叔的任务这种脑补当成事实来折磨自己，就当她觉得表情好玩不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9639#       发表于 2020-8-24 21:22
+
+
+
+
+想通了 不上头 不多买 下次有整活的时候打SL 
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9640#       发表于 2020-8-24 21:23
+
+
+
+
+yysy，一开始我还以为戳便便是那边给的提议她没在意才放进去的，现在看来她真的很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9641#       发表于 2020-8-24 21:23
+
+
+
+
+藤原话题来了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9642#       发表于 2020-8-24 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538988&amp;ptid=1945537" target="_blank">cgz 发表于 2020-8-24 21:20</a>
+
+大概是holo看多了给你错觉什么组都拥有光速烤肉的能力，mea组就算在巅峰时期也比holo那群人慢一大截，24内 ...</blockquote>
+我没说全熟啊，有个切片也行啊，这都做不到了吗，隔壁保护协会都搞了啊
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9643#       发表于 2020-8-24 21:25
+
+
+
+
+那就更可怕了，叔叔的任务好歹还能拿来当借口安慰自己，那岂不是小咩看到皮肤滞销特意过来推荐，然而进展依然缓慢，小咩灰心意冷默默伤心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9644#       发表于 2020-8-24 21:26
+
+
+
+
+哎 要是能免费放一段见面会的录像出来了就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9645#       发表于 2020-8-24 21:26
+
+
+
+
+小三宣言呢
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9646#       发表于 2020-8-24 21:27
+
+
+
+
+话说mea的这次见面会在Nico上有免费试看的部分吗？👀
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 9647#       发表于 2020-8-24 21:27
+
+
+
+
+震撼咩宝。梦，碎了
+
+
+
+
+
+
+
+-----
+
+####  czkt615477  
+##### 9648#       发表于 2020-8-24 21:28
+
+
+
+
+这……是叔叔的任务还是有分成还是她真的喜欢？这也太积极了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9649#       发表于 2020-8-24 21:28
+
+
+
+
+噫，好，醒了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+等tc
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9650#       发表于 2020-8-24 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你咩姐这种宣传方式就很好，不会散播焦虑情绪，散播焦虑就中了叔叔的套了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9651#       发表于 2020-8-24 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539065&amp;ptid=1945537" target="_blank">czkt615477 发表于 2020-8-24 21:28</a>
+这……是叔叔的任务还是有分成还是她真的喜欢？这也太积极了</blockquote>
+分成是真的有的，有人问过官方，就是不知道具体分成多少，这么积极应该一部分是有分成和自己喜欢这装扮的原因，另一部分就是叔叔的任务吧，都有。
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 9652#       发表于 2020-8-24 21:32
+
+
+
+ 本帖最后由 素人不相识 于 2020-8-24 21:34 编辑 
+
+file:///D:/mea/1598275707564.png新麻图(，够麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+1598275707564.png
+(490.49 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-24 21:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/213228mcoy2h667cqurbbh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|可以了，已经足够麻了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9653#       发表于 2020-8-24 21:33
+
+
+
+
+已经可以了😂，只需等阴兵借道了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| シオン诗音| + 1|不小心看成了引道|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9654#       发表于 2020-8-24 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539102&amp;ptid=1945537" target="_blank">素人不相识 发表于 2020-8-24 21:32</a>
+新麻图(，够麻</blockquote>
+好吃。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9655#       发表于 2020-8-24 21:36
+
+
+
+
+她要是没到23333套之前每天晚上过来发一下表情，楼里的焦虑度会不会逐渐累积<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9656#       发表于 2020-8-24 21:37
+
+
+
+
+clay…你够狠…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9657#       发表于 2020-8-24 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48539102&amp;ptid=1945537" target="_blank">素人不相识 发表于 2020-8-24 21:32</a>
+新麻图(，够麻</blockquote>
+经典吃 麻婆 豆腐
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9658#       发表于 2020-8-24 21:39
+
+
+
+
+无限麻图定律：无限的粉丝不停的P图 总可以P出真麻图的
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9659#       发表于 2020-8-24 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看饿了，想起正在节食的现状
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9660#       发表于 2020-8-24 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你楼就这么几个人，焦不焦虑无所谓，要是b站评论区焦虑那问题大了，就像你楼打架无所谓，评论区打架是真的不行
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 9661#       发表于 2020-8-24 21:40
+
+
+
+
+一天过去就涨了1000，输了，都输了
+
+— from HUAWEI LIO-AN00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9662#       发表于 2020-8-24 21:42
+
+
+
+
+一个问题，在哪看销量？
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 9663#       发表于 2020-8-24 21:43
+
+
+
+
+5w-剩余库存，自己算吧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9664#       发表于 2020-8-24 21:43
+
+
+
+
+试着写了写mea的安科贴，回来看贵楼咋又要祈忧了，慢慢来呗。又不是到不了了。闲的时候多给自己找点事做，你会发现现实更头疼，哪怕是写一个安科，尝试之后才知道骰子的不确定性到底是多头疼。这么担心她的热度不妨为她多做点能增加正面流量的东西。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cla0221| + 1|加油！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9665#       发表于 2020-8-24 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我选择继续打牛
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9666#       发表于 2020-8-24 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl，今天推也发了B博也发了，明天七夕的预告也无，最近应该是摸了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9667#       发表于 2020-8-24 21:51
+
+
+
+
+我原来是这楼里最喜欢车字幕组的人之一了，现在字幕组产量依旧不行，但我已经懒得提了，因为没用，操心装扮销量还有涨粉速度也是同理，没能力的话就做一个只打钱的粉丝
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 9668#       发表于 2020-8-24 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48538647&amp;ptid=1945537" target="_blank">时雨rain 发表于 2020-8-24 20:48</a>
+
+一进来看你们在这祈忧，我也不过顺着话题走了一下，而且我也不是你mea姐的事业民
+
+希望明年粉丝人数对折也不 ...</blockquote>
+希望明年你家里人数对折<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 9669#       发表于 2020-8-24 22:03
+
+
+
+
+建议事业民都去推苔总，你看mea不去蹭舞元，本人亲自上，多么上心啊，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9670#       发表于 2020-8-24 22:03
+
+
+
+
+基德基德，开开泥头车就够了，太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9671#       发表于 2020-8-24 22:03
+
+
+
+
+“有谁来买我的火柴”
+
+
+
+
+
+
+B400698D-1012-4A1B-97CF-F07AEFB52481.jpeg
+(29.8 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-24 22:03 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/24/220346z11m8s71r1bxeql8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+                           
