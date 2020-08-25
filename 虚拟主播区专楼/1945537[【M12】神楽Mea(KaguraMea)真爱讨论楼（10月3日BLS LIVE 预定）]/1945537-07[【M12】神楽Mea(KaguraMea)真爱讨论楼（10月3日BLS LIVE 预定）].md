@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-25 22:03** 
+> ## **本文件最后更新于2020-08-26 00:05** 
 
 
 
@@ -16813,4 +16813,535 @@ syl，推迟到东京24点开
 
 
 
-                  
+
+
+-----
+
+####  Sanguine  
+##### 9951#       发表于 2020-8-25 22:04
+
+
+
+
+小姑娘愿意继续做直播就不错了，抱着看一场少一场的心态且看且珍惜吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 快乐做老父亲粉，她开心的话怎么作都好
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9952#       发表于 2020-8-25 22:19
+
+
+
+
+八月的饭盒语音有丶可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，比装扮值了，一听心情都好了起来
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9953#       发表于 2020-8-25 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好消息好消息，马上就能听歌了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9954#       发表于 2020-8-25 23:03
+
+
+
+
+怎么油管也被憨憨表情刷屏了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9955#       发表于 2020-8-25 23:07
+
+
+
+
+昨天还和如月玩了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9956#       发表于 2020-8-25 23:12
+
+
+
+
+又学歌了？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9957#       发表于 2020-8-25 23:13
+
+
+
+
+啊 终于又听到她的声音了 好想抱抱她
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9958#       发表于 2020-8-25 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9959#       发表于 2020-8-25 23:16
+
+
+
+
+【“气味很不妙”你又没闻过你怎么知道】
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9960#       发表于 2020-8-25 23:18
+
+
+
+
+clay老哥在吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">官组为啥不弄等级禁言呢，每次都有0级1级小号刷“money money money”或者“debudebudebu”，不想想办法么
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9961#       发表于 2020-8-25 23:19
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-8-25 23:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+这笑声也太顶了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9962#       发表于 2020-8-25 23:19
+
+
+
+
+这笑声太顶了我的妈
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9963#       发表于 2020-8-25 23:20
+
+
+
+
+还好吧，咩直播间真的是超宽容的vtuber直播间了，只要不是复读机式刷攻击性语言都不会被禁
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9964#       发表于 2020-8-25 23:22
+
+
+
+
+今天唱的好哇
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9965#       发表于 2020-8-25 23:22
+
+
+
+
+爽啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9966#       发表于 2020-8-25 23:23
+
+
+
+
+神清气爽
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9967#       发表于 2020-8-25 23:24
+
+
+
+
+不要杀路人粉谢谢
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9968#       发表于 2020-8-25 23:25
+
+
+
+
+阿b又卡了 辣鸡
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9969#       发表于 2020-8-25 23:25
+
+
+
+
+来了来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9970#       发表于 2020-8-25 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9971#       发表于 2020-8-25 23:26
+
+
+
+
+淦我油管卡的不行，回过来一看怎么阿B也这么卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9972#       发表于 2020-8-25 23:26
+
+
+
+
+这一直卡是转播的问题还是阿b的问题啊，官组还行不行啊
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9973#       发表于 2020-8-25 23:27
+
+
+
+
+今天转播怎么老是卡，梯子还正好到期了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9974#       发表于 2020-8-25 23:29
+
+
+
+
+九月很闲，bls稳了？
+
+好！<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 9975#       发表于 2020-8-25 23:29
+
+
+
+
+最近的梯子好像都有点问题
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9976#       发表于 2020-8-25 23:29
+
+
+
+
+好卡一歌回<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9977#       发表于 2020-8-25 23:33
+
+
+
+
+这就是反差萌么？我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9978#       发表于 2020-8-25 23:37
+
+
+
+
+今天状态很好的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9979#       发表于 2020-8-25 23:41
+
+
+
+
+你麻断了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9980#       发表于 2020-8-25 23:42
+
+
+
+
+犬山在啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9981#       发表于 2020-8-25 23:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么404也卡了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9982#       发表于 2020-8-25 23:57
+
+
+
+
+今天真的好元气啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9983#       发表于 2020-8-26 00:00
+
+
+
+
+闹腾的咩真可爱
+
+
+
+
+
+                 

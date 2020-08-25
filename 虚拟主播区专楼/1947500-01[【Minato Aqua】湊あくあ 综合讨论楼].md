@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-23 22:05** 
+> ## **本文件最后更新于2020-08-26 00:06** 
 
 
 
@@ -21465,4 +21465,551 @@ crew破产
 
 
 
-       
+
+
+-----
+
+####  mengnvpu  
+##### 1262#       发表于 2020-8-24 02:24
+
+
+
+
+这位就是这次的舞蹈老师<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202008/24/022345rjlqdd9n4ljcj49j.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200824022125.png</strong> (218.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-24 02:23 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 1263#       发表于 2020-8-24 03:11
+
+
+
+
+羡慕舞蹈老师<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1264#       发表于 2020-8-24 03:41
+
+
+
+
+藤原老师能告诉我凛子换发型了吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月影镇魂曲  
+##### 1265#       发表于 2020-8-24 09:19
+
+
+
+
+求片源啊
+
+有购买凭证兑换
+
+想重温完整版的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 1266#       发表于 2020-8-24 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48531478&amp;ptid=1947500" target="_blank">月影镇魂曲 发表于 2020-8-24 09:19</a>
+
+求片源啊
+
+有购买凭证兑换
+
+想重温完整版的</blockquote>
+往前翻，我发了网盘
+
+或者隔壁V楼2楼
+
+
+
+
+
+
+
+-----
+
+####  月影镇魂曲  
+##### 1267#       发表于 2020-8-24 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48531608&amp;ptid=1947500" target="_blank">vorastrix 发表于 2020-8-24 09:30</a>
+
+往前翻，我发了网盘
+
+或者隔壁V楼2楼</blockquote>
+感谢老板，get了~
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1268#       发表于 2020-8-24 11:38
+
+
+
+
+游戏民想看夸宝打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1269#       发表于 2020-8-24 11:46
+
+
+
+
+近期大概率会有live的同步视听吧。游戏什么的还得往后靠靠。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1270#       发表于 2020-8-24 17:50
+
+
+
+
+晚上和紫宝玩51，不知道自己开不开台
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 1271#       发表于 2020-8-24 21:23
+
+
+
+
+这两熊孩子，吵死了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1272#       发表于 2020-8-24 21:25
+
+
+
+
+当击球员的时候死活不调整位置，诗音都提醒了。也不知道是不是放海，感觉像是纯傻<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1273#       发表于 2020-8-24 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">旗鼓相当，傻紫略胜一筹
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1274#       发表于 2020-8-24 21:35
+
+
+
+
+神经衰弱，作为crew先替她投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1275#       发表于 2020-8-24 21:36
+
+
+
+
+拼手速的游戏总是不会输的
+
+
+记忆力，就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1276#       发表于 2020-8-24 21:40
+
+
+
+ 本帖最后由 面具13 于 2020-8-24 21:41 编辑 
+
+原来半斤八两啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+黑杰克很难的。当年我在新维加斯就靠这个发家致富<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1277#       发表于 2020-8-24 21:40
+
+
+
+
+好奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1278#       发表于 2020-8-24 21:54
+
+
+
+
+她说网络老梗时的配音比小动画里的棒读要顺畅有灵性多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1279#       发表于 2020-8-24 22:03
+
+
+
+
+这人总是在动脑游戏里有自己的解法<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1280#       发表于 2020-8-24 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这孩子总是对需要动脑的东西有迷之自信
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1281#       发表于 2020-8-25 17:36
+
+
+
+
+夸哥这相同推发在龙皇后面3min
+这两人的本社见面，感觉好奇妙
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1282#       发表于 2020-8-25 20:28
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 1283#       发表于 2020-8-25 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">我突然想起来，爱知县这次紧急事态自肃是6号到24号。这是刚解除就跑本社去收录了啊
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 1284#       发表于 2020-8-25 21:22
+
+
+
+
+又不是卖不出去，这些皮套man干嘛呢，这操作也太招黑了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1285#       发表于 2020-8-25 21:27
+
+
+
+
+你湊阿夸能卖3w还不好好谢谢我们温暖大家庭的宣传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soci  
+##### 1286#       发表于 2020-8-25 21:28
+
+
+
+
+这应该是holo运营的任务吧。不过我实在想不出来这操作除了给夸招黑还有什么作用。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1287#       发表于 2020-8-25 21:31
+
+
+
+
+给某些人一个台阶下呗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1288#       发表于 2020-8-25 21:31
+
+
+
+
+我真是谢谢yagoo全家
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1289#       发表于 2020-8-25 21:37
+
+
+
+
+就我看到的，coco、pekora、星姐这几个官号都是没有用装扮的，我觉得不是集体性质的要求。而且装扮类似大会员是可以送的。
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1290#       发表于 2020-8-25 21:53
+
+
+
+
+现在住爱知？那搬家前住哪的？
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 1291#       发表于 2020-8-25 22:16
+
+
+
+
+一看你楼都不关注装扮啊，买那个装扮可以DIY头像框和使用别人DIY上传的头像框的
+
+
+
+
+
+
+
+-----
+
+####  魔鬼人阿Q  
+##### 1292#       发表于 2020-8-25 23:19
+
+
+
+
+不搞这些也卖出去3w多套了，这来刷屏一波倒好像是大家庭的功劳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1293#       发表于 2020-8-25 23:36
+
+
+
+
+搞这一套以前就有人认为卖了3w是大家庭的功劳了，我xxx都卖不到1w6，你能卖3w？
+
+
+
+
+
+      
