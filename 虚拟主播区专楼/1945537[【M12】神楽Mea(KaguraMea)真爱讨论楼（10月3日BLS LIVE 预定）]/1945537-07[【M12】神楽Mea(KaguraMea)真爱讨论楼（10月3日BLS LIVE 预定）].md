@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-25 10:02** 
+> ## **本文件最后更新于2020-08-25 14:04** 
 
 
 
@@ -12988,10 +12988,11 @@ SYL，阴间TC怎么了，虽然追不上，但我上班补差点笑出声来。
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Sanguine| + 1|马克|
 | シオン诗音| + 1|我也觉得剪辑比较好|
 | 路人庚| + 1|干货|
 
@@ -14057,4 +14058,522 @@ syl，话说9.15线上票信息才出，10.3预定就开live了，那这次线�
 
 
 
-                       
+
+
+-----
+
+####  シオン诗音  
+##### 9788#       发表于 2020-8-25 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国庆节假期该去的线下要去啊，你楼怎么也得贡献个30张票吧，退一步说到时候又落单了“少逛s1”吗
+反正按时举办的话我买一张问题不大
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9789#       发表于 2020-8-25 10:10
+
+
+
+
+说明阿b还是懂你圈的，知道你圈粉丝分层，45块的割没钱的韭菜，线下票割有钱的老板
+
+你楼被割个韭菜都能被阿pua，阿b真是太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9790#       发表于 2020-8-25 10:14
+
+
+
+
+昨晚梦到阿B搞了个装扮自选靓号，22100号50倍价格，0802号100倍，221号150倍
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9791#       发表于 2020-8-25 10:19
+
+
+
+
+话说bls的大部分场景都可以提前录好吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">虽然说咱是没钱没时间去现场了，不过到时候要是再网络卡顿那就太拉跨了
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 9792#       发表于 2020-8-25 10:19
+
+
+
+
+?没了解过，是mea直播间送过礼物就可以免票？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9793#       发表于 2020-8-25 10:27
+
+
+
+
+不到20天的售票期…千人场…当初打钱了到底有没有票现在也看阿b一张嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+嘛，还没到九月走着看好了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9794#       发表于 2020-8-25 10:28
+
+
+
+ 本帖最后由 路人庚 于 2020-8-25 10:30 编辑 
+
+之前有人发过询问客服的截图，是去年bls打榜比赛时间段给直播间送过金瓜子礼物就算“应援”，“应援”的主播拿了第一你就能免bls门票（所以当时有很多人给每个主播都送了1块钱的金瓜子礼物
+
+
+没记错的话，bls赛后有人统计过打钱人数，你咩姐这的数据是打了1元及以上的人数是8千多人，打了6元及以上的人数是3千多人
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9795#       发表于 2020-8-25 10:36
+
+
+
+
+yysy，你咩的常驻打钱人口就几百号，这次买装扮，能及时到位的核心粉就四千多，也不知道阿b哪来的胆子开3000人场的，希望到时阿b能打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9796#       发表于 2020-8-25 10:36
+
+
+
+
+说是线上收入全归主播吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。问题是要是真这样白嫖的人一大堆，会有几个不是白嫖的买线上票呢
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9797#       发表于 2020-8-25 10:39
+
+
+
+
+有的，我去年还没看v<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9798#       发表于 2020-8-25 11:15
+
+
+
+
+你楼原来还有今年入坑的吗……我好感动
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9799#       发表于 2020-8-25 11:25
+
+
+
+
+0202年的卡古拉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9800#       发表于 2020-8-25 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9801#       发表于 2020-8-25 11:32
+
+
+
+ 本帖最后由 椎名mahuyo 于 2020-8-25 11:43 编辑 
+
+不知道官方有没有把那几段舞剪出来单独投稿的想法，毕竟就算b站80万粉丝也还有一大堆人没看过(<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+其实想想我会想这种问题果然还是这见面会**回看都没有(
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9802#       发表于 2020-8-25 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉线上票要买300左右吧，毕竟还有嘉宾的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9803#       发表于 2020-8-25 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线上票价不是你咩姐定吗，大概不会比见面会高的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9804#       发表于 2020-8-25 11:50
+
+
+
+
+啊，每次逛nico体验都太他吗阴间了，等一个阿b收购nico阿咩反向进军本土盘好吧，也不知道霓虹人怎么忍受的了这个阴间页面的，阿b快去拯救他们<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9805#       发表于 2020-8-25 11:55
+
+
+
+
+光看注册日期我也是萌新了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 9806#       发表于 2020-8-25 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48540724&amp;ptid=1945537" target="_blank">Ky·Kiske 发表于 2020-8-25 00:12</a>
+风评？现在管人还有风评？
+
+现在你咩就是我目前觉得风评最好的管人之一，其他鬼知道她们到底是什么东西，哪 ...</blockquote>
+V8黑屁入脑还行，丢泥潭的脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9807#       发表于 2020-8-25 12:09
+
+
+
+
+泥潭水平也就这样了啊，昨天到今天明明没动你们还轮了这么多页，早晨起来爬楼看得头都大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9808#       发表于 2020-8-25 12:21
+
+
+
+
+V8弱智归弱智，但这种东西总会慢慢扩散开的，到时候环境就跟弱智了，希望大家到时候还清醒<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 9809#       发表于 2020-8-25 12:35
+
+
+
+
+昨晚做了个梦，新原创曲是像hh那种3dmv，反正就很帅很震撼！
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9810#       发表于 2020-8-25 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48543039&amp;ptid=1945537" target="_blank">vorastrix 发表于 2020-8-25 10:19</a>
+
+?没了解过，是mea直播间送过礼物就可以免票？</blockquote>
+bls期间给第一名打过钱的线上票免费，应该是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9811#       发表于 2020-8-25 13:01
+
+
+
+
+线上收益会不会是和其他嘉宾平分啊，大家还是不要买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9812#       发表于 2020-8-25 13:11
+
+
+
+
+怎么可能，其他嘉宾最多出场个一小段，主角还是她，就按劳分配来说都不可能平分
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9813#       发表于 2020-8-25 13:14
+
+
+
+
+上海组个这样的场要多少钱啊，bls那点真的够吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9814#       发表于 2020-8-25 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别家打的钱不是钱咯
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9815#       发表于 2020-8-25 13:24
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 13:29 编辑 
+
+其实那个极光公主的3d如果好好做的话感觉就要花不少钱，不过阿b也不能这么算，毕竟他们自己人建模的话可以压榨员工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿b在霓虹还有个动画公司呢
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9816#       发表于 2020-8-25 13:49
+
+
+
+
+说不定极光公主只是个概念图，很本没有3d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9817#       发表于 2020-8-25 13:59
+
+
+
+
+反转了，是粉丝cos服，10.3阿b现场贩卖
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9818#       发表于 2020-8-25 14:01
+
+
+
+
+到时候线下演唱会卖周边，请樱群来cosmea极光公主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
