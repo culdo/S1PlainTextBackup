@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-25 14:04** 
+> ## **本文件最后更新于2020-08-25 18:04** 
 
 
 
@@ -14576,4 +14576,475 @@ bls期间给第一名打过钱的线上票免费，应该是这样<img src="http
 
 
 
-                      
+
+
+-----
+
+####  A2014720  
+##### 9819#       发表于 2020-8-25 14:06
+
+
+
+
+粉丝cos下面是不是要塞那个还原效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9820#       发表于 2020-8-25 14:06
+
+
+
+
+樱群跟你咩姐八杆子打不着吧……
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9821#       发表于 2020-8-25 14:07
+
+
+
+
+对了 s1官号转了那个极光肛塞的梗图
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9822#       发表于 2020-8-25 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">樱群还行，你们根本不是一个系统的好吧（
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9823#       发表于 2020-8-25 14:32
+
+
+
+
+请cos可还行
+那阿b不如整点狠活，到时候请几个舞见分别cos阿咩的不同衣服在舞台上当伴舞，虚拟与现实的结合<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">以后还可以作为自己技术宣传点吹一波
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9824#       发表于 2020-8-25 14:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梦做大点，万一成真了呢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9825#       发表于 2020-8-25 14:39
+
+
+
+
+阿b的技术？今年的bml?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9826#       发表于 2020-8-25 14:39
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 14:41 编辑 
+
+想了一下，感觉阿b这样的大公司搞live成本可能比想象中还低，因为建模渲染调音动作设计这些都可以压榨员工嘛，主要费用可能是场馆费?果然叔叔怎么样都是赚的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还是不要小看了阿b的技术，今年bml就是根本没认真搞，它在霓虹可有家动画公司，我看今年的好多国创和番剧都有阿b参与制作的
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9827#       发表于 2020-8-25 14:47
+
+
+
+
+几个舞见里面有一个真货？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9828#       发表于 2020-8-25 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，最debu的那个？
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9829#       发表于 2020-8-25 14:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48545945&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-8-25 14:39</a>
+
+想了一下，感觉阿b这样的大公司搞live成本可能比想象中还低，因为建模渲染调音动作设计这些都可以压榨员工 ...</blockquote>
+这种东西阿B还是只能外包的，自己没有工作时
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9830#       发表于 2020-8-25 15:17
+
+
+
+
+你楼竟然有人对阿b的技术力抱有期待的？不知道这世上有个东西叫做外包么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9831#       发表于 2020-8-25 15:20
+
+
+
+
+八月要无了，夜宵大概真的是跑路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9832#       发表于 2020-8-25 15:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/25/152739x2vz2a4oeges949s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>659.JPG</strong> (96.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-25 15:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/25/152740vh99o1t6t6wjzots.jpg" referrerpolicy="no-referrer">
+
+
+<strong>658.JPG</strong> (45.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-25 15:27 上传
+
+
+
+
+
+
+阿b日本总部好像就是人形町スクエア5楼，他的动画工作室也在那，秋叶原的分部前一阵好像关了，那阿咩如果有事要去b站工作的话应该就是去这个总部了，楼友们可以去蹲守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9833#       发表于 2020-8-25 15:34
+
+
+
+
+不懂就问，b站日本分部有3d棚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9834#       发表于 2020-8-25 15:45
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 16:20 编辑 
+
+那就不知道了，不过一些商谈或者录音啥的应该会去本部做吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过做动画有可能需要3d棚子?只知道做游戏需要3d棚子来动作捕捉，做动画就不清楚了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9835#       发表于 2020-8-25 16:13
+
+
+
+
+阿b向来都很“充分”使用自己的解释权，到时候来一个BLS期间打钱超过门票钱才能免票的概率我觉得非常高，要是想避免被打钱快到门票的人开团，还可以来一个免除（BLS期间应援mea的部分的）门票钱，否则我觉得让打1毛钱的人白嫖太蠢了。嘉宾一般来说都是给个固定出场费的，不用担心。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9836#       发表于 2020-8-25 16:22
+
+
+
+
+据说是线上部分收入大头归主播的，这样的话阿B说不定不在乎线上也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。不过反过来想这样能吸引一般打钱白嫖的人来看以咩为中心的演唱会，能吸一波粉也说不定。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9837#       发表于 2020-8-25 16:29
+
+
+
+
+我对阿b的草台还是很有信心的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+快进到炎上停办毕业<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9838#       发表于 2020-8-25 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 9839#       发表于 2020-8-25 16:51
+
+
+
+
+图找不着了，有人问过客服啊，就是bls给第一名打钱就算的
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9840#       发表于 2020-8-25 17:05
+
+
+
+
+线上多点人看不好么，反正没法去现场的财布在线上看也会额外打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9841#       发表于 2020-8-25 17:07
+
+
+
+
+那确实，我大概率是没法去线下了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9842#       发表于 2020-8-25 17:09
+
+
+
+
+好像很多大学这学期想出校门都难。。。（我就是）希望有多点人能去线下
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9843#       发表于 2020-8-25 17:10
+
+
+
+
+想她了，这几天特别糟心，想看她<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 9844#       发表于 2020-8-25 17:33
+
+
+
+
+到时候啊b免费票概念坑人，引起公愤
+
+咩咩站出来决定全部免费的桥段有没有
+
+
+有被帅到
+
+
+
+
+
+
+
+-----
+
+####  tuna  
+##### 9845#       发表于 2020-8-25 17:37
+
+
+
+
+那不是基础人设彻底崩塌，，，
+
+快进到三酱隔代指定接班人
+
+
+
+
+
+                     
