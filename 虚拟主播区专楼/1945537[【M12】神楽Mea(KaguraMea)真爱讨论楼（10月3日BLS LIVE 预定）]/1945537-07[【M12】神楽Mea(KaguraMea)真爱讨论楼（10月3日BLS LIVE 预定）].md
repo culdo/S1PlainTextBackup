@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-25 18:04** 
+> ## **本文件最后更新于2020-08-25 22:03** 
 
 
 
@@ -15047,4 +15047,1770 @@ bls期间给第一名打过钱的线上票免费，应该是这样<img src="http
 
 
 
-                     
+
+
+-----
+
+####  A2014720  
+##### 9846#       发表于 2020-8-25 18:14
+
+
+
+
+全部免费，叔叔绝不给你好果子吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9847#       发表于 2020-8-25 18:39
+
+
+
+
+七夕会有限定贴贴直播么？如月对光明贴贴人杀伤力太大了，急需贴贴能量补充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tuna  
+##### 9848#       发表于 2020-8-25 18:41
+
+
+
+
+这里建议贴贴人线下特定呢，摄像头安上了记得开转播
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9849#       发表于 2020-8-25 18:43
+
+
+
+
+别急，mea正在特定藤原<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9850#       发表于 2020-8-25 18:50
+
+
+
+
+看数据是真的不需要了，再也不会有贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9851#       发表于 2020-8-25 19:14
+
+
+
+
+多久没播了，我怎么感觉快一星期没看到她了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9852#       发表于 2020-8-25 19:16
+
+
+
+
+不是才一天没播嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9853#       发表于 2020-8-25 19:21
+
+
+
+
+我都感觉半个月没见她了，呜呜呜，孤独的七夕夜，我想听歌
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9854#       发表于 2020-8-25 19:22
+
+
+
+
+我现在只想快进到BLS
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9855#       发表于 2020-8-25 19:23
+
+
+
+
+我现在只想快进到BLS+1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9856#       发表于 2020-8-25 19:23
+
+
+
+
+bsyl，同好会又把seco架上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是要逐步蚕食官组么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9857#       发表于 2020-8-25 19:24
+
+
+
+
+见面会后遗症再加上bls大饼带来的结果就是胡思乱想弱智time<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不过只要咩咩一播就能好.... 所以咩咩播吧呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9858#       发表于 2020-8-25 19:28
+
+
+
+<blockquote>Dualist彩 发表于 2020-8-25 19:23
+bsyl，同好会又把seco架上了
+
+这是要逐步蚕食官组么？</blockquote>
+seco早就不看咩姐了。。。这个是去年的mix
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9859#       发表于 2020-8-25 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐行不行啊，剪个录像都磕磕绊绊的，爱剪辑有国际版吗，送她用用吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9860#       发表于 2020-8-25 19:33
+
+
+
+
+也可能是网太烂
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9861#       发表于 2020-8-25 19:35
+
+
+
+
+已经
+不再需要贴贴了
+现在
+是meall的好时代
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9862#       发表于 2020-8-25 19:36
+
+
+
+ 本帖最后由 A2014720 于 2020-8-25 19:49 编辑 
+
+我棉花糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">20w纪念gkd
+
+让人看视频，今晚不会又没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9863#       发表于 2020-8-25 19:38
+
+
+
+
+饭盒
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9864#       发表于 2020-8-25 19:50
+
+
+
+
+咩咩这狗叫学得好像啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9865#       发表于 2020-8-25 20:12
+
+
+
+
+10点术力口歌回
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9866#       发表于 2020-8-25 20:14
+
+
+
+
+终于能听羊唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 想她
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9867#       发表于 2020-8-25 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9868#       发表于 2020-8-25 20:15
+
+
+
+
+直接送主题了还行。。。白担心了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9869#       发表于 2020-8-25 20:16
+
+
+
+
+卖装扮的小女孩 在火焰中见到了她的主题
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9870#       发表于 2020-8-25 20:16
+
+
+
+
+歌回歌回，复活了！ψ(｀∇´)ψ
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9871#       发表于 2020-8-25 20:16
+
+
+
+ 本帖最后由 惑星 于 2020-8-25 20:21 编辑 
+
+我说什么来着，要让批站想办法
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9872#       发表于 2020-8-25 20:17
+
+
+
+
+是助眠歌回<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9873#       发表于 2020-8-25 20:18
+
+
+
+
+我终于发现就这个装扮是你咩是跟大半个杏箱比销量，其中还有贴贴人子集
+
+就算这样隔壁也才卖过3w，单靠你咩真能卖出23333吗？
+
+睿叔叔是不是喝上头了以为现在还是dd的时代呢？
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9874#       发表于 2020-8-25 20:20
+
+
+
+
+啊批算做了回人事，cr的🐎保住了
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9875#       发表于 2020-8-25 20:22
+
+
+
+
+个人拿头和箱比...
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9876#       发表于 2020-8-25 20:22
+
+
+
+
+哎 今天应该是不来这边了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9877#       发表于 2020-8-25 20:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不懂就问,怎么数字没变,突然就解锁主题了啊?
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9878#       发表于 2020-8-25 20:26
+
+
+
+
+cr懂了
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9879#       发表于 2020-8-25 20:26
+
+
+
+
+送你了啊，阿批知道卖不了23333份了啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9880#       发表于 2020-8-25 20:27
+
+
+
+
+不是1w5了嘛，还是有希望的
+
+但是我极光呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9881#       发表于 2020-8-25 20:27
+
+
+
+
+叔叔的任务没有完成<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9882#       发表于 2020-8-25 20:28
+
+
+
+
+天天默认拿你咩跟世界第一大箱比，mmr就算了，运营也这么搞笑么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9883#       发表于 2020-8-25 20:28
+
+
+
+
+批站不是人，莫得感情的，你硬着头皮往里砸钱，叔叔只会觉得韭菜好割，下次还割
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9884#       发表于 2020-8-25 20:29
+
+
+
+
+运营就不是mmr了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9885#       发表于 2020-8-25 20:29
+
+
+
+
+那你猜睿叔叔会不会转去当杏仁的狗啊？
+
+资本虽然可恶，但至少还挺好预测的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9886#       发表于 2020-8-25 20:29
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 20:41 编辑 
+
+还剩个16666的任务，这个应该能完成
+杏仁的狗?你开啥玩笑，只有阿b看不看的上杏仁的份，杏仁可和阿b没有可比性，好歹是上市企业，现在杏仁越来越不理阿b这边了，我看阿b也不一定有多看的上他<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+阿b现在还没有真正去开拓日本市场，真等收购nico进军霓虹了，资本大手面前什么彩虹杏仁不都是臭鱼烂虾?到时候牙膏怕是想给阿睿舔菊都排不上号<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9887#       发表于 2020-8-25 20:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得后台数据睿叔叔能看到，收入多少该怎么做他心里还是有数的
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9888#       发表于 2020-8-25 20:34
+
+
+
+
+别想了，任务都是同等的，你管人在阿批才提供几个收入啊还要杏去看得起阿批
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 9889#       发表于 2020-8-25 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549109&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-8-25 20:29</a>
+
+还剩个16666的任务，这个应该能完成
+
+杏仁的狗?你开啥玩笑，只有阿b看不看的上杏仁的份，杏仁可和阿b没有可 ...</blockquote>
+那就不用担心你的那些小祈忧
+
+这东西本质跟代理游戏和自研游戏一个道理，虽然你咩不是睿叔叔自研的，但毕竟没有中间商拿抽成
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9890#       发表于 2020-8-25 20:36
+
+
+
+
+装伴娘说本来主题是红的 你麻选了蓝的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9891#       发表于 2020-8-25 20:37
+
+
+
+ 本帖最后由 笋狐 于 2020-8-25 20:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼装扮购买榜发现了熟人，毒唯费拉不堪？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9892#       发表于 2020-8-25 20:37
+
+
+
+
+蓝色好看，咩品味真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9893#       发表于 2020-8-25 20:37
+
+
+
+
+木口本土发达了后可没那么听阿b的话了，你咩起码不会跑
+
+
+syl
+
+黄色头图蓝色主题还有张暗色的pretender曲绘，这配色也是醉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然是她自己定的，审美啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9894#       发表于 2020-8-25 20:38
+
+
+
+
+红蓝我无所谓
+反正杏34期对这边也就那样了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，有vr还要你杏？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9895#       发表于 2020-8-25 20:38
+
+
+
+
+现在懂你咩姐的审美了吧，就很业余
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9896#       发表于 2020-8-25 20:39
+
+
+
+
+装扮娘说之后会兼容夜间模式！！！！
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9897#       发表于 2020-8-25 20:39
+
+
+
+
+这个主题配圣皇的主题的图，贴贴🥰
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9898#       发表于 2020-8-25 20:41
+
+
+
+
+要我说holo和mea都不是B站喜欢的类型，一个不需要你的市场，一个活的太洒脱不容易管。在B站没有自己的虚拟区直播一姐前，还是需要这些yhm来拉人气的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9899#       发表于 2020-8-25 20:43
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 20:45 编辑 
+
+我感觉咩老听阿b的话了，还不好管?叫干啥干啥，带货也贼卖力，我记得目前为止就拒绝过一次apex的工商吧，还是因为不会打
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9900#       发表于 2020-8-25 20:46
+
+
+
+
+b博了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9901#       发表于 2020-8-25 20:46
+
+
+
+
+...
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9902#       发表于 2020-8-25 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549179&amp;ptid=1945537" target="_blank">笋狐 发表于 2020-8-25 20:37</a>
+
+看了眼装扮购买榜发现了熟人，毒唯费拉不堪？</blockquote>
+贴贴人都是行动派，毒唯拉胯和找借口一直可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9903#       发表于 2020-8-25 20:46
+
+
+
+
+叔叔单纯看不上虚拟区而已<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">随便空降个uo主就能橄榄的地方
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9904#       发表于 2020-8-25 20:46
+
+
+
+
+我去发个七夕节快乐
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9905#       发表于 2020-8-25 20:46
+
+
+
+
+拒绝apex工商一看就是不谙世事，原因竟然是不会打，我人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 9906#       发表于 2020-8-25 20:47
+
+
+
+
+这波我怀疑是你B的极限施压，前几天瞧把你们给急得，有的人恨不得再多买几套，这一来一回睿叔叔多赚了多少个45啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 9907#       发表于 2020-8-25 20:47
+
+
+
+
+她真的很喜欢搓💩💩
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9908#       发表于 2020-8-25 20:47
+
+
+
+
+刚说完就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看看，看看这态度，两个字，忠心！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9909#       发表于 2020-8-25 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">那次本来可以看鱼板玉米的，都怪没人陪她练打枪（
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9910#       发表于 2020-8-25 20:48
+
+
+
+
+七夕おめでとうございます 七夕节快乐是这么说的吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9911#       发表于 2020-8-25 20:49
+
+
+
+
+戳一次掉粉一次，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+喜欢就戳，挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9912#       发表于 2020-8-25 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">🍥🌽是真的
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">你mea这三张图颜色真的不配主题换过头图去了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9913#       发表于 2020-8-25 20:55
+
+
+
+
+戳便便也能洗粉？那多洗点吧，反正那些人也不会打钱
+戳便便多可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9914#       发表于 2020-8-25 21:00
+
+
+
+
+理论上她拒绝的工商应该不少，因为她不止一次的说过“请不要再找她接工商了”。你看看狗妈在B站火了之后接到多少工商，不会真觉得去年她那几乎B站直播女性第一的人气接不到吧，人家狗妈甚至靠着冲国人气加入了鹿乃的艺人公司，明明在油管直播才200个观众左右.还有就是手办和方舟指令联动，我是不信公司没找她宣传的，十有八九自己给拒绝了，全世界也就她会拒绝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当事业民只有死路一条
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9915#       发表于 2020-8-25 21:01
+
+
+
+<blockquote>Sanguine 发表于 2020-8-25 20:55
+戳便便也能洗粉？那多洗点吧，反正那些人也不会打钱
+
+戳便便多可爱啊 ...</blockquote>
+是动态刷屏的问题吧。。。戳便便这个表情还没看腻前真的有种迷之萌感
+
+
+
+
+
+
+
+-----
+
+####  yunzhitan  
+##### 9916#       发表于 2020-8-25 21:02
+
+
+
+
+等她收入暴跌之后，会不会后悔呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9917#       发表于 2020-8-25 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9918#       发表于 2020-8-25 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真后悔了亏的又不是你，你爱的也太深沉了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9919#       发表于 2020-8-25 21:05
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-8-25 21:14 编辑 
+
+我觉得这不过是自身想法的向外投射
+
+如果硬要说是"爱"的话， 估计在分类上和某些"中国式父母" 的"我觉得你冷" 类型的爱差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9920#       发表于 2020-8-25 21:07
+
+
+
+
+我倒觉得这个表情是真的很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过她唯独这么喜欢这一个也是奇怪，难道是觉得它独树一帜非常欣赏吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9921#       发表于 2020-8-25 21:09
+
+
+
+
+mea的审美有问题啊，这主题颜色原本预订红的，她选的蓝的。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9922#       发表于 2020-8-25 21:10
+
+
+
+
+小丫头审美不行
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9923#       发表于 2020-8-25 21:10
+
+
+
+
+有矫正审美的医院吗
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9924#       发表于 2020-8-25 21:10
+
+
+
+
+你麻没选粉的我就已经知足了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9925#       发表于 2020-8-25 21:11
+
+
+
+
+因为就这个表情最亮眼出众啊，其他人的有这种表情吗？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9926#       发表于 2020-8-25 21:11
+
+
+
+
+讲真....粉色真的俗气...小土妞咋就那么喜欢粉色
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9927#       发表于 2020-8-25 21:13
+
+
+
+
+粉色明明那么可爱那么yhm<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 9928#       发表于 2020-8-25 21:14
+
+
+
+
+kimo明明也挺好的，泛用性也高，为啥会被搓便便乱锤呢？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9929#       发表于 2020-8-25 21:14
+
+
+
+
+少女心
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9930#       发表于 2020-8-25 21:16
+
+
+
+
+红色没蓝色的好看吧。。。而且水蓝色也算咩姐的代表色
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9931#       发表于 2020-8-25 21:17
+
+
+
+
+个人感觉除了戳便便，“哭给你看”这个表情看着不仅萌还阴阳怪气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  junmuu8  
+##### 9932#       发表于 2020-8-25 21:18
+
+
+
+
+mea不爱用羊表情，证明猫党赢了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9933#       发表于 2020-8-25 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 粉色就是少女心了吗?别小看少女啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你麻就是个散装yhm
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9934#       发表于 2020-8-25 21:23
+
+
+
+
+原来这气球是あまのじゃく里的啊，配上这蓝色土炸了，宛如回到十年前，我还以为是预设的元素呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202008/25/212008s0153nsmkz7ks6n9.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020_0825_211750.png</strong> (128.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-25 21:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9935#       发表于 2020-8-25 21:25
+
+
+
+
+歌回改到11点了。呜呜呜她怎么这么喜欢阴间时间直播啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 9936#       发表于 2020-8-25 21:25
+
+
+
+
+这就是最正宗的麻味啊，你麻不麻嘛？
+
+
+syl，推迟到东京24点开
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9937#       发表于 2020-8-25 21:27
+
+
+
+
+啊 有没有什么软件能P二次元发型的 想看看阿咩换别的发型是什么样的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9938#       发表于 2020-8-25 21:27
+
+
+
+
+小土妹岂是浪得虚名的
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9939#       发表于 2020-8-25 21:27
+
+
+
+
+吐槽她审美的，忘了油管十万银盾做的那张麻味十足的粉色滤镜拉满的贺图了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9940#       发表于 2020-8-25 21:29
+
+
+
+
+原来发售时间也是她自己定的，只能说阿b这个23333套的指标还是高了点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 9941#       发表于 2020-8-25 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在懂为什么说你咩姐需要经纪人了吧，突出一个业余
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 9942#       发表于 2020-8-25 21:32
+
+
+
+
+我觉得蓝色挺好看的啊。。。这审美挺正常吧
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 9943#       发表于 2020-8-25 21:33
+
+
+
+ 本帖最后由 単推し人 于 2020-8-25 21:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549409&amp;ptid=1945537" target="_blank">cgz 发表于 2020-8-25 21:00</a>
+
+理论上她拒绝的工商应该不少，因为她不止一次的说过“请不要再找她接工商了”。你看看狗妈在B站火了之后接 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202008/25/213252ntsio9qomz9s4tdt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>666688.JPG</strong> (55.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-25 21:32 上传
+
+
+
+
+
+
+
+但是她以前也不止一次的说过拒绝的那些工商是那种中国来的完全搞不懂的邮件，因为不安就拒绝了，也就是那种没通过阿b直接去找她的工商吧，好像勒夫以前也这样找过她然后被拒绝了，而阿b之前正式的商业合作比较少是因为没签约吧，之后签了约不都多起来了？而且她其实是对阿b抱有一种感恩的心态的，上面是19年参加阿b的雀魂大赛的时候说的，我认为只要是通过阿b找她的合作她应该几乎不会拒绝。
+
+
+手办没宣传是因为井皇的原因吧，她有可能一分钱都拿不到呢，好像还搞的蛮不愉快的？记得有直球去问她的sc都被她无视了，方舟指令不是发过几个b博宣传过几次吗？之前还搞过一次钓鱼的b限发表会，还打算直播玩，但因为厂商没要求工商直播后来就算了。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9944#       发表于 2020-8-25 21:34
+
+
+
+
+啊 那个熟肉是我gachi的起点
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9945#       发表于 2020-8-25 21:36
+
+
+
+
+这不行，我要当她的p<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 9946#       发表于 2020-8-25 21:36
+
+
+
+
+这个熟肉好怀念啊，当时还只是个普通dd<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9947#       发表于 2020-8-25 21:40
+
+
+
+
+你当p能纠正她的审美那我愿称为神医<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9948#       发表于 2020-8-25 21:48
+
+
+
+
+再等几年吧，你看以前是二次元爱全开，现在就好多了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9949#       发表于 2020-8-25 21:51
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-8-25 21:56 编辑 
+
+讲真这个也太中二羞耻了，要不是怕冲塔我就开个油管名“粉色公主•魅力爱全开”给她打sc了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9950#       发表于 2020-8-25 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549728&amp;ptid=1945537" target="_blank">elect 发表于 2020-8-25 21:36</a>
+这个熟肉好怀念啊，当时还只是个普通dd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论如何从入门到入土
+
+
+
+
+
+                  
