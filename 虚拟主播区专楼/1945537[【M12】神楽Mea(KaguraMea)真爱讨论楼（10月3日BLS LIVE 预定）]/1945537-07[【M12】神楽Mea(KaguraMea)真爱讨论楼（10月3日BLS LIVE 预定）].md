@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 00:05** 
+> ## **本文件最后更新于2020-08-26 02:02** 
 
 
 
@@ -17344,4 +17344,705 @@ clay老哥在吗<img src="https://static.saraba1st.com/image/smiley/face2017/001
 
 
 
-                 
+
+
+-----
+
+####  Mikumiku831  
+##### 9984#       发表于 2020-8-26 00:05
+
+
+
+
+罗mio 青回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9985#       发表于 2020-8-26 00:10
+
+
+
+
+别kira了，过于拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9986#       发表于 2020-8-26 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典拉胯
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9987#       发表于 2020-8-26 00:12
+
+
+
+
+跟老妈煲了俩小时电话粥，才发现mea播了。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9988#       发表于 2020-8-26 00:12
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9989#       发表于 2020-8-26 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 9990#       发表于 2020-8-26 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 这首歌好可爱
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9991#       发表于 2020-8-26 00:17
+
+
+
+
+メリュー，好
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9992#       发表于 2020-8-26 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 9993#       发表于 2020-8-26 00:21
+
+
+
+
+喵喵的宇宙论 会场吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuyuyuyu  
+##### 9994#       发表于 2020-8-26 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 9995#       发表于 2020-8-26 00:26
+
+
+
+
+好啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9996#       发表于 2020-8-26 00:30
+
+
+
+
+magnet<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9997#       发表于 2020-8-26 00:31
+
+
+
+ 本帖最后由 Sanguine 于 2020-8-26 00:34 编辑 
+
+magnet帮大忙了！！咱终于听到magnet力<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+草草草能不能认真点唱一次magnet<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9998#       发表于 2020-8-26 00:33
+
+
+
+
+パスタ作っだお前<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9999#       发表于 2020-8-26 00:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">パスタ作っだお前
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10000#       发表于 2020-8-26 00:49
+
+
+
+
+文乃的幸福理论诶<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10001#       发表于 2020-8-26 01:18
+
+
+
+
+这首夜明けと蛍值了，不枉熬到现在
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10002#       发表于 2020-8-26 01:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10003#       发表于 2020-8-26 01:19
+
+
+
+
+命嫌<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 10004#       发表于 2020-8-26 01:20
+
+
+
+
+今天状态不是太好，高音跑调破音数次，不过还是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10005#       发表于 2020-8-26 01:20
+
+
+
+
+这个点她太有精神了我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10006#       发表于 2020-8-26 01:25
+
+
+
+
+咩能量极大补充<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10007#       发表于 2020-8-26 01:25
+
+
+
+
+今天爽了兄弟们
+速速入眠了，害怕tc
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10008#       发表于 2020-8-26 01:27
+
+
+
+
+这欲言又止的 肯定还有TC 等麻过来陪我加班<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 10009#       发表于 2020-8-26 01:35
+
+
+
+
+有爽到
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10010#       发表于 2020-8-26 01:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202008/26/013743qxy6kyx22d6ep5ab.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (59.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-26 01:37 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">八月都快完了夜宵还是没动静，这是中途跑路的节奏？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10011#       发表于 2020-8-26 01:40
+
+
+
+
+虽然她唱完了但我还是没有赶完综述<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|原创曲鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10012#       发表于 2020-8-26 01:41
+
+
+
+
+🌿，奶错了，加就加呗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10013#       发表于 2020-8-26 01:41
+
+
+
+ 本帖最后由 时雨rain 于 2020-8-26 01:45 编辑 
+
+Smjb今天加不了了，慢慢来吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10014#       发表于 2020-8-26 01:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">黄旭东你奶的好呀黄旭东.mp3  看在反奶出一首帅歌的份上也别整栋楼，意思意思加几个得了
+
+
+
+
+
+                
