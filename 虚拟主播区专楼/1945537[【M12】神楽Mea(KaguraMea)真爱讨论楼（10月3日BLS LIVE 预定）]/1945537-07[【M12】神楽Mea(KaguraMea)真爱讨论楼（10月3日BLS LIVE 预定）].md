@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 02:02** 
+> ## **本文件最后更新于2020-08-26 10:04** 
 
 
 
@@ -18045,4 +18045,174 @@ Smjb今天加不了了，慢慢来吧
 
 
 
-                
+
+
+-----
+
+####  时雨rain  
+##### 10015#       发表于 2020-8-26 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48551309&amp;ptid=1945537" target="_blank">笋狐 发表于 2020-8-26 01:52</a>
+黄旭东你奶的好呀黄旭东.mp3  看在反奶出一首帅歌的份上也别整栋楼，意思意思加几个得了 ...</blockquote>
+啊，只是加发过言的人的鹅，你楼不会有100多个人发过言吧<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10016#       发表于 2020-8-26 07:05
+
+
+
+
+我到要看看你有多少鹅
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 10017#       发表于 2020-8-26 07:15
+
+
+
+
+听歌听睡着了……也不知道今天会不会播……
+
+
+
+
+
+
+
+-----
+
+####  贴贴捏  
+##### 10018#       发表于 2020-8-26 07:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549051&amp;ptid=1945537" target="_blank">追风小星星 发表于 2020-8-25 20:25</a>
+不懂就问,怎么数字没变,突然就解锁主题了啊?</blockquote>
+怎么解锁呀？怎么我还没解锁
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10019#       发表于 2020-8-26 07:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48551797&amp;ptid=1945537" target="_blank">贴贴捏 发表于 2020-8-26 07:48</a>
+怎么解锁呀？怎么我还没解锁</blockquote>
+在购买页面点右上角的齿轮，然后设置就可以了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10020#       发表于 2020-8-26 08:32
+
+
+
+
+鹅🦢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10021#       发表于 2020-8-26 08:54
+
+
+
+
+有鹅？
+
+
+
+
+
+
+
+-----
+
+####  贴贴捏  
+##### 10022#       发表于 2020-8-26 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48549565&amp;ptid=1945537" target="_blank">追风小星星 发表于 2020-8-25 21:19</a>
+粉色就是少女心了吗?别小看少女啊
+
+
+ 你麻就是个散装yhm</blockquote>
+粉色系应该会比现在这个水蓝好看
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10023#       发表于 2020-8-26 09:27
+
+
+
+
+来领鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 10024#       发表于 2020-8-26 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得现在这个挺清新的。很好。b站自己的就是粉色的，看腻了
+
+
+
+
+
+               
