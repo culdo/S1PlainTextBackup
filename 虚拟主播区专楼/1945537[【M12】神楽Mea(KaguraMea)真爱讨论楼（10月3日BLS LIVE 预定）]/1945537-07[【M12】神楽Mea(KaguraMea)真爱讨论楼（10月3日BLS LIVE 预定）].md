@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 20:02** 
+> ## **本文件最后更新于2020-08-27 00:03** 
 
 
 
@@ -19028,10 +19028,11 @@ Smjb今天加不了了，慢慢来吧
 
 
 
- 参与人数 23战斗力 +25
+ 参与人数 24战斗力 +26
 
 |昵称|战斗力|理由|
 |----|---|---|
+| planetcd| + 1|好评加鹅|
 | dilemma| + 1|好评加鹅|
 | Dualist彩| + 1|好评加鹅|
 | turezyy| + 2|好评加鹅|
@@ -19051,7 +19052,6 @@ Smjb今天加不了了，慢慢来吧
 | nightmare902015| + 1|加都可以加|
 | junmuu8| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
-| 愛繋璃まつり| + 1|欢乐多|
 
 
 
@@ -19805,4 +19805,600 @@ Smjb今天加不了了，慢慢来吧
 
 
 
-             
+
+
+-----
+
+####  noaki  
+##### 10095#       发表于 2020-8-26 20:06
+
+
+
+
+老的弱智车轱辘车出了新的弱智角度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10096#       发表于 2020-8-26 20:14
+
+
+
+
+安排不动变身了…监视器有无<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 10097#       发表于 2020-8-26 20:35
+
+
+
+
+你麻肯定逛s1的（或者眼线），下次杂谈又有话题了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10098#       发表于 2020-8-26 20:39
+
+
+
+
+她要是能看s1是或者让眼线给她带个话让她动一下好不好<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10099#       发表于 2020-8-26 20:43
+
+
+
+
+其实活动多了虽然播的少了，她很忙，不过说不定其实她蛮喜欢这种经常出门，一直忙忙碌碌的感觉，以前她不就经常说一直呆在家里直播脱离社会的空虚感会越来越重，才会去打工吗？看最近她是一点都不空虚了，充足的一匹，昨天说这个夏天和学生时代一样忙的时候听的出来的快乐，本质阳角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10100#       发表于 2020-8-26 20:47
+
+
+
+
+等她吃到苦头就回来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10101#       发表于 2020-8-26 21:10
+
+
+
+
+真正爱一个人不就是不管变成什么样子都会喜欢一辈子的吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10102#       发表于 2020-8-26 21:32
+
+
+
+
+毁容还行
+
+我这两天啥都没看你楼都到这程度了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10103#       发表于 2020-8-26 21:40
+
+
+
+
+弱智time只会越来越强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 10104#       发表于 2020-8-26 21:43
+
+
+
+
+果然如月被mea很认真的上下乱摸，不知道该说啥好了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10105#       发表于 2020-8-26 21:48
+
+
+
+
+唉，夜宵什么时候才会动呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10106#       发表于 2020-8-26 21:51
+
+
+
+
+不急<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 10107#       发表于 2020-8-26 21:56
+
+
+
+ 本帖最后由 追风小星星 于 2020-8-26 21:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202008/26/214447ou7n2ig6eiuzz3pi.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200822195931.png</strong> (222.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-26 21:44 上传
+
+
+
+
+
+
+
+扎麻步<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 快进到下次的小动作time
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10108#       发表于 2020-8-26 22:34
+
+
+
+
+阳角好啊，谁希望自己真的死宅到白天睡觉晚上活动拉开窗帘都只能看到黑夜的生活呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10109#       发表于 2020-8-26 22:37
+
+
+
+
+这种事只要有钱有网有饭不爽的一匹嘛…
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10110#       发表于 2020-8-26 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">好想当yhm啊。不仅能被小麻乱摸，还能收银毛照片
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10111#       发表于 2020-8-26 22:41
+
+
+
+
+额， 
+
+
+你会有许多健康问题的
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 10112#       发表于 2020-8-26 22:44
+
+
+
+
+这健康，不要也罢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10113#       发表于 2020-8-26 22:46
+
+
+
+
+这就是阳角yhm和阴郁死宅的区别啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10114#       发表于 2020-8-26 22:50
+
+
+
+
+就算成了yhm也要长的好看或者身材好才能吸引咩咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10115#       发表于 2020-8-26 22:53
+
+
+
+
+看不见阳光很容易抑郁啊...不然北欧人民为什么要搞人造太阳光<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 而且你麻生活质量跟前几年似乎没什么变化啊，为什么一块炸鸡放四天还问能不能吃，请把吃不完的东西都扔掉点新的外卖好吗<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10116#       发表于 2020-8-26 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日本的外卖是真鸡儿贵
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10117#       发表于 2020-8-26 22:59
+
+
+
+
+阳角，颜狗，受人喜爱，我现实中最讨厌这样的人了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+出门全靠出租车的人会考虑贵嘛，只是懒罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10118#       发表于 2020-8-26 23:06
+
+
+
+ 本帖最后由 时雨rain 于 2020-8-26 23:08 编辑 
+
+人来疯，辣妹，天空树，前男友为她打工，手指戒指，蓝洞约会，不要怀疑了这人铁阳角，除非真的毁容应该长得还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10119#       发表于 2020-8-26 23:07
+
+
+
+
+这次创轨新加的两个女角色，一个白毛蓝黄异色瞳，一个粉毛双马尾卷发<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10120#       发表于 2020-8-26 23:08
+
+
+
+ 本帖最后由 単推し人 于 2020-8-26 23:09 编辑 
+
+感觉她很适合在拆那生活呢，霓虹那又慢种类又少的外卖她都天天点，体验了拆那的外卖服务后怕是要变成大肥羊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10121#       发表于 2020-8-26 23:13
+
+
+
+
+所以说谁能快点把麻酱绑到拆那生活呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10122#       发表于 2020-8-26 23:14
+
+
+
+
+我算是看懂了，单推人只是想把羊拐来中国。其他都是假的。这么一想我突然就感觉他傻逼的时候有点可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10123#       发表于 2020-8-26 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10124#       发表于 2020-8-26 23:21
+
+
+
+
+你发现了，他的一切论点其实都建立在靠近中国上，其他都是幌子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10125#       发表于 2020-8-26 23:39
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-8-26 23:42 编辑 
+
+矩阵同学显然是那种在"群体身份" 中获得满足感的人
+
+不管这个群体是 中国/阿b/整体粉丝
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10126#       发表于 2020-8-26 23:58
+
+
+
+
+草，现实中这种女孩子不是应该人见人爱吗，只不过没办法接近很酸<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 10127#       发表于 2020-8-27 00:00
+
+
+
+
+有时候靠脑补维持纯度挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10128#       发表于 2020-8-27 00:00
+
+
+
+ 本帖最后由 A2014720 于 2020-8-27 00:02 编辑 
+
+睡了，不动<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            
