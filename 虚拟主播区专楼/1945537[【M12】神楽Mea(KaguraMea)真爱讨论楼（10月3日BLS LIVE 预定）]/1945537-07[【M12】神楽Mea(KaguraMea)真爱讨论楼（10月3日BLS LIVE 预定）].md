@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 16:03** 
+> ## **本文件最后更新于2020-08-26 20:02** 
 
 
 
@@ -19028,10 +19028,18 @@ Smjb今天加不了了，慢慢来吧
 
 
 
- 参与人数 15战斗力 +15
+ 参与人数 23战斗力 +25
 
 |昵称|战斗力|理由|
 |----|---|---|
+| dilemma| + 1|好评加鹅|
+| Dualist彩| + 1|好评加鹅|
+| turezyy| + 2|好评加鹅|
+| A-Wie| + 1|好评加鹅|
+| lovcavil| + 2||
+| Mikumiku831| + 1|好评加鹅|
+| makourisu| + 1|好评加鹅|
+| ylssb10438| + 1|好评加鹅|
 | whbstc4545| + 1|好评加鹅|
 | 离心| + 1|好评加鹅|
 | sunisover2000| + 1|好评加鹅|
@@ -19044,9 +19052,6 @@ Smjb今天加不了了，慢慢来吧
 | junmuu8| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
 | 愛繋璃まつり| + 1|欢乐多|
-| 息衍| + 1|好评加鹅|
-| 木板春香| + 1|欢乐多|
-| やト| + 1|好评加鹅|
 
 
 
@@ -19187,4 +19192,617 @@ Smjb今天加不了了，慢慢来吧
 
 
 
-              
+
+
+-----
+
+####  A2014720  
+##### 10058#       发表于 2020-8-26 16:04
+
+
+
+
+等家用3d<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 10059#       发表于 2020-8-26 16:20
+
+
+
+
+想看小动作得有人配合，软软冰一说话这人就搞怪，然后到她说了就立正站好，太萌了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10060#       发表于 2020-8-26 16:24
+
+
+
+
+她也是不想在翻译的时候冷场吧<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10061#       发表于 2020-8-26 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48555527&amp;ptid=1945537" target="_blank">黒長直姫 发表于 2020-8-26 15:08</a>
+有新人是好事，为啥要看s1
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+就是因为看s1才入的v圈<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10062#       发表于 2020-8-26 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48556147&amp;ptid=1945537" target="_blank">KL25001 发表于 2020-8-26 16:20</a>
+
+想看小动作得有人配合，软软冰一说话这人就搞怪，然后到她说了就立正站好，太萌了 ...</blockquote>
+看软软冰基本对mea的吐槽也不客气的，说明两个人关系不错
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10063#       发表于 2020-8-26 16:47
+
+
+
+
+只是软软冰懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望打脸
+
+该动一动了
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10064#       发表于 2020-8-26 17:15
+
+
+
+
+彩排了这么几天总是能混熟的，而且mea完全就是阳角，直播都是骗人的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10065#       发表于 2020-8-26 18:02
+
+
+
+
+可是阳角为何在网络上rp的如此真实，可怕的女人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10066#       发表于 2020-8-26 18:05
+
+
+
+
+越漂亮的女人越会骗人<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10067#       发表于 2020-8-26 18:05
+
+
+
+
+还是无忌他妈说的对<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 10068#       发表于 2020-8-26 18:08
+
+
+
+
+这个小妖女
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10069#       发表于 2020-8-26 18:09
+
+
+
+
+很现实的问题，如果你麻真的很丑，你们还会爱她么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10070#       发表于 2020-8-26 18:10
+
+
+
+
+很多阳角只是怕被伤害的阴角伪装
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10071#       发表于 2020-8-26 18:10
+
+
+
+
+风怒
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10072#       发表于 2020-8-26 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着你楼都是被mea吊着的凯子，明知道她不在意你，还期望她心里有你
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">真是个罪孽深重的女人
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10073#       发表于 2020-8-26 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是几几年的版本的车轱辘啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">首先你的假设不可能，其次你这种假设成立的话，得问她会不会爱我们
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10074#       发表于 2020-8-26 18:12
+
+
+
+
+只要她爱我都是可以的，我这人对外貌不是很看重，灵魂有趣就行了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10075#       发表于 2020-8-26 18:15
+
+
+
+
+好吧，那不基德一次，原谅我，要是毁容了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10076#       发表于 2020-8-26 18:16
+
+
+
+
+当然是不爱了，丑女给爷爬
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10077#       发表于 2020-8-26 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是和女人扯头皮毁容了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">输了那不太行，赢了还可以
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10078#       发表于 2020-8-26 18:19
+
+
+
+
+和圣皇互泼硫酸<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10079#       发表于 2020-8-26 18:22
+
+
+
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 10080#       发表于 2020-8-26 18:23
+
+
+
+
+这个问题一定要分清楚，爱不爱和硬不硬有时候是两件事情
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10081#       发表于 2020-8-26 18:24
+
+
+
+
+草，你们不要小麻我要了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">因为毁容就能被我独占吗，还有这种好事
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10082#       发表于 2020-8-26 18:26
+
+
+
+
+颜值也要分不同人的标准啊。v综不看好的吧主我就觉得很可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。她要是不好看最多不对她有色色的幻想就是了，推还是要推的。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10083#       发表于 2020-8-26 18:31
+
+
+
+
+真是因为外伤反而会让人心怜，但是天生那就看是不是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+我又理解坦克民了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10084#       发表于 2020-8-26 18:33
+
+
+
+
+丑女我爱，这样得到她的几率就更高了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+不如说是丑女更好了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10085#       发表于 2020-8-26 18:40
+
+
+
+
+她塑造的这个嚣张女仆的形象多好冲，凌 辱起来肯定特别色
+原来只有我是二次元，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10086#       发表于 2020-8-26 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48557579&amp;ptid=1945537" target="_blank">惑星 发表于 2020-8-26 18:40</a>
+她塑造的这个嚣张女仆的形象多好冲，凌 辱起来肯定特别色
+原来只有我是二次元，哭了 ...</blockquote>
+不要再说了，真的要冲了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10087#       发表于 2020-8-26 19:04
+
+
+
+
+知道为什么大家都喜欢mea虐了吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10088#       发表于 2020-8-26 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然一直觉得你们不对劲，不过你们确实太不对劲了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10089#       发表于 2020-8-26 19:29
+
+
+
+
+正常人谁会待这个楼
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10090#       发表于 2020-8-26 19:31
+
+
+
+
+因为毁容担心没人要的麻酱 这时候发现依然有人在背后默默爱着她...<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10091#       发表于 2020-8-26 19:36
+
+
+
+
+咩看到你们这么安排她，好，和五元联动去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 10092#       发表于 2020-8-26 19:38
+
+
+
+
+声音更重要点。只要她不是学豫让漆身吞炭就行。
+扪心自问，一个女人后天毁容+失声的话，我觉得完全可当做另一个人了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10093#       发表于 2020-8-26 19:44
+
+
+
+
+隐退结婚 -》生了孩子-》 毁容 -》 被男人抛弃 -》为了养家重新开始直播 -》 为了金钱搞h色  <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 10094#       发表于 2020-8-26 19:47
+
+
+
+
+说了半天还是没有新麻图<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
