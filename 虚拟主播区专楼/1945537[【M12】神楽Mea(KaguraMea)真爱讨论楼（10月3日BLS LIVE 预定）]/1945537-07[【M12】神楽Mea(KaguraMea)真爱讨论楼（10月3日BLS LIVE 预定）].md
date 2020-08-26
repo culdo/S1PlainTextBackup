@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 10:04** 
+> ## **本文件最后更新于2020-08-26 16:03** 
 
 
 
@@ -17630,6 +17630,25 @@ magnet帮大忙了！！咱终于听到magnet力<img src="https://static.saraba1
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18028,6 +18047,25 @@ Smjb今天加不了了，慢慢来吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18041,6 +18079,25 @@ Smjb今天加不了了，慢慢来吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">黄旭东你奶的好呀黄旭东.mp3  看在反奶出一首帅歌的份上也别整栋楼，意思意思加几个得了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
 
 
 
@@ -18146,6 +18203,25 @@ Smjb今天加不了了，慢慢来吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18160,6 +18236,25 @@ Smjb今天加不了了，慢慢来吧
 
 有鹅？
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
 
 
 
@@ -18182,6 +18277,25 @@ Smjb今天加不了了，慢慢来吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18196,6 +18310,25 @@ Smjb今天加不了了，慢慢来吧
 
 来领鹅了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
 
 
 
@@ -18213,6 +18346,845 @@ Smjb今天加不了了，慢慢来吧
 
 
 
+﹍﹍﹍
+
+评分
 
 
-               
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 10025#       发表于 2020-8-26 10:12
+
+
+
+
+你楼奶得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|都是好事|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10026#       发表于 2020-8-26 10:31
+
+
+
+
+来领🦢了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 10027#       发表于 2020-8-26 10:35
+
+
+
+
+鹅鹅鹅
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Pseudoephedrine  
+##### 10028#       发表于 2020-8-26 10:35
+
+
+
+
+能多上几个小号领鹅吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10029#       发表于 2020-8-26 10:35
+
+
+
+
+你楼kpi第二来源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10030#       发表于 2020-8-26 10:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">怎么还有人一起送鹅的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10031#       发表于 2020-8-26 10:39
+
+
+
+
+486爱你哦
+鹅也没啥用
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10032#       发表于 2020-8-26 10:45
+
+
+
+
+听说有鹅领我就来了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 10033#       发表于 2020-8-26 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 10034#       发表于 2020-8-26 10:53
+
+
+
+
+ 鹅又不值钱，原创曲是好事啊
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10035#       发表于 2020-8-26 10:58
+
+
+
+
+要是能把曲绘做成新衣服就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 息衍| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10036#       发表于 2020-8-26 10:58
+
+
+
+
+啊这，486的鹅不是毒鹅吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+千里不知道现在还欠着多少鹅<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 息衍| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10037#       发表于 2020-8-26 11:03
+
+
+
+
+原创曲听着是马上能放出来那种…不知道是20w放还是bls放…
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10038#       发表于 2020-8-26 11:16
+
+
+
+
+提到千里我就想他。
+该三年之期已到，恭迎yhm归位了。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10039#       发表于 2020-8-26 11:17
+
+
+
+
+送鹅了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10040#       发表于 2020-8-26 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，新楼友看起来不认识486，全是他一个人的
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10041#       发表于 2020-8-26 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48553546&amp;ptid=1945537" target="_blank">Sanguine 发表于 2020-8-26 11:17</a>
+
+送鹅了还行好奇这些都是谁的小号</blockquote>
+你楼竟然真的有新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我还以为都是老ass在rpg<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斗斗一号  
+##### 10042#       发表于 2020-8-26 11:27
+
+
+
+
+这个是做什么的，S1逛了这么久没搞明白，负的不也能正常发言么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|玩具|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10043#       发表于 2020-8-26 11:28
+
+
+
+
+鹅就是赌博用的（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10044#       发表于 2020-8-26 11:31
+
+
+
+
+486不认识，但千里的鹅我知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Re.Troy  
+##### 10045#       发表于 2020-8-26 11:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">居然还有人抢着要486的毒鹅？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10046#       发表于 2020-8-26 11:40
+
+
+
+
+好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fsfs_freeze  
+##### 10047#       发表于 2020-8-26 14:35
+
+
+
+
+草你们没事干吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10048#       发表于 2020-8-26 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">486的鹅都敢要
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 10049#       发表于 2020-8-26 15:08
+
+
+
+
+有新人是好事，为啥要看s1
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  vorastrix  
+##### 10050#       发表于 2020-8-26 15:13
+
+
+
+
+收到我录播的是不是也得给我加一个<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+凑够两百就行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 15战斗力 +15
+
+|昵称|战斗力|理由|
+|----|---|---|
+| whbstc4545| + 1|好评加鹅|
+| 离心| + 1|好评加鹅|
+| sunisover2000| + 1|好评加鹅|
+| fsfs_freeze| + 1|没要录播也加一个|
+| physi1202| + 1||
+| 路人庚| + 1|加，都可以加|
+| SNOWIMEA| + 1||
+| 肚子疼了| + 1|什么录播发我一份|
+| nightmare902015| + 1|加都可以加|
+| junmuu8| + 1|好评加鹅|
+| Mr.shelter| + 1|好评加鹅|
+| 愛繋璃まつり| + 1|欢乐多|
+| 息衍| + 1|好评加鹅|
+| 木板春香| + 1|欢乐多|
+| やト| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 10051#       发表于 2020-8-26 15:21
+
+
+
+
+？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10052#       发表于 2020-8-26 15:32
+
+
+
+
+翻昨天的夜明けと蛍听，前奏时随着节奏点头好可爱
+
+<img src="https://img.saraba1st.com/forum/202008/26/153110lu9dby6kvbuhq09v.gif" referrerpolicy="no-referrer">
+
+
+<strong>bili_v_d_1598426781064.gif</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2020-8-26 15:31 上传
+
+
+
+
+
+
+
+动图发的出来不
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10053#       发表于 2020-8-26 15:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是机体限制了你咩姐的小动作，呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 10054#       发表于 2020-8-26 15:34
+
+
+
+
+发出来了啊 小动作好玩的
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10055#       发表于 2020-8-26 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48555569&amp;ptid=1945537" target="_blank">vorastrix 发表于 2020-8-26 15:13</a>
+
+收到我录播的是不是也得给我加一个
+
+凑够两百就行</blockquote>
+是什么好东西吗，我加鹅了，发我一份<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10056#       发表于 2020-8-26 16:00
+
+
+
+
+咩咩，咩咩，想要小动作不断的咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10057#       发表于 2020-8-26 16:03
+
+
+
+
+咩咩3D小动作没看够，还想看😭
+
+
+
+
+
+              
