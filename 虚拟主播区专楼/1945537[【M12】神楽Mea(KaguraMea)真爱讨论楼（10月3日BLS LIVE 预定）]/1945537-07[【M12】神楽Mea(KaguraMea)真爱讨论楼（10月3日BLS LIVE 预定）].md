@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-27 00:03** 
+> ## **本文件最后更新于2020-08-27 16:03** 
 
 
 
@@ -19028,10 +19028,11 @@ Smjb今天加不了了，慢慢来吧
 
 
 
- 参与人数 24战斗力 +26
+ 参与人数 25战斗力 +27
 
 |昵称|战斗力|理由|
 |----|---|---|
+| A2014720| + 1|好评加鹅|
 | planetcd| + 1|好评加鹅|
 | dilemma| + 1|好评加鹅|
 | Dualist彩| + 1|好评加鹅|
@@ -19051,7 +19052,6 @@ Smjb今天加不了了，慢慢来吧
 | 肚子疼了| + 1|什么录播发我一份|
 | nightmare902015| + 1|加都可以加|
 | junmuu8| + 1|好评加鹅|
-| Mr.shelter| + 1|好评加鹅|
 
 
 
@@ -20401,4 +20401,313 @@ Smjb今天加不了了，慢慢来吧
 
 
 
-            
+
+
+-----
+
+####  シオン诗音  
+##### 10129#       发表于 2020-8-27 08:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">捞一下，我睡了她没有突击，她心里有我
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10130#       发表于 2020-8-27 08:52
+
+
+
+
+在外面赶火车她没有突击，她心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10131#       发表于 2020-8-27 09:30
+
+
+
+
+我睡了楼友也不说话了，楼友都是我小号
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10132#       发表于 2020-8-27 12:48
+
+
+
+
+其实你是不自觉地操作大量账号的精神分裂症患者<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10133#       发表于 2020-8-27 12:59
+
+
+
+ 本帖最后由 惑星 于 2020-8-27 13:03 编辑 
+
+今晚九点发布合唱曲
+
+<img src="https://img.saraba1st.com/forum/202008/27/130308y9i4i9x55zqk8wv4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200827_130232.jpg</strong> (450.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-27 13:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10134#       发表于 2020-8-27 13:01
+
+
+
+ 本帖最后由 A2014720 于 2020-8-27 13:09 编辑 
+
+noe你看见了吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+昨晚没睡吗…真羡慕啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10135#       发表于 2020-8-27 13:01
+
+
+
+
+好耶
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10136#       发表于 2020-8-27 14:25
+
+
+
+
+如月mea是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 10137#       发表于 2020-8-27 14:54
+
+
+
+
+12 FAN CLUB<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10138#       发表于 2020-8-27 15:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">谁选的曲
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10139#       发表于 2020-8-27 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动物园联动指定外援她lei了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10140#       发表于 2020-8-27 15:16
+
+
+
+
+天了噜期待已久的雪山人狼来了 猝不及防<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10141#       发表于 2020-8-27 15:24
+
+
+
+
+好，好，好
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10142#       发表于 2020-8-27 15:24
+
+
+
+
+明天开不开台还是问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，快进到在7个直播间里找羊
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10143#       发表于 2020-8-27 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非她主办的雪山狼人她有开过台吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 10144#       发表于 2020-8-27 15:27
+
+
+
+
+好，希望开台
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10145#       发表于 2020-8-27 15:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不开台不是血压爆炸
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10146#       发表于 2020-8-27 16:03
+
+
+
+
+说起来，你咩和绿熊好久没联动了吧，明天是久违的同台吗
+
+据说职业哥是咩绿贴贴人，不知道作何感想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
