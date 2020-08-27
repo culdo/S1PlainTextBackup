@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-27 16:03** 
+> ## **本文件最后更新于2020-08-27 22:03** 
 
 
 
@@ -19028,10 +19028,11 @@ Smjb今天加不了了，慢慢来吧
 
 
 
- 参与人数 25战斗力 +27
+ 参与人数 26战斗力 +28
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 昨夜雨| + 1|加上|
 | A2014720| + 1|好评加鹅|
 | planetcd| + 1|好评加鹅|
 | dilemma| + 1|好评加鹅|
@@ -19051,7 +19052,6 @@ Smjb今天加不了了，慢慢来吧
 | SNOWIMEA| + 1||
 | 肚子疼了| + 1|什么录播发我一份|
 | nightmare902015| + 1|加都可以加|
-| junmuu8| + 1|好评加鹅|
 
 
 
@@ -20710,4 +20710,1065 @@ noe你看见了吗<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
-           
+
+
+-----
+
+####  2014720  
+##### 10147#       发表于 2020-8-27 16:04
+
+
+
+
+来个tc血压就不爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+好久没tc了啊，不是你们谁真的对她说tc虚无了吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 10148#       发表于 2020-8-27 16:09
+
+
+
+
+觉得寂寞的时候就开TC，可能最近感觉不怎么寂寞吧（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10149#       发表于 2020-8-27 16:12
+
+
+
+
+现充爆炸吧<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10150#       发表于 2020-8-27 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48566559&amp;ptid=1945537" target="_blank">肚子疼了 发表于 2020-8-27 16:03</a>
+说起来，你咩和绿熊好久没联动了吧，明天是久违的同台吗
+
+据说职业哥是咩绿贴贴人，不知道作何感想 ...</blockquote>
+上次不就在职业哥那里联动过 倒是这次有星街和那个白皮特攻箱领袖这点只能说izumi牛逼了
+
+—— 来自 OPPO PDEM30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10151#       发表于 2020-8-27 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48566677&amp;ptid=1945537" target="_blank">ashero 发表于 2020-8-27 16:13</a>
+
+上次不就在职业哥那里联动过 倒是这次有星街和那个白皮特攻箱领袖这点只能说izumi牛逼了
+
+
+—— 来自 OPPO ...</blockquote>
+那个白皮特攻箱好像最近飞速涨粉，不知道前景如何，这次竟然会叫上你咩，怪哦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10152#       发表于 2020-8-27 16:19
+
+
+
+
+特攻箱三人上次跟杏星两人还有kuku和izumi联动狼人了，看起来跟kk，iz在狼人这方面走的挺近的，被拉来不奇怪的。至于兔鞠跟咩应该是黄兔子拉的。
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10153#       发表于 2020-8-27 16:28
+
+
+
+
+咩熊，咩兔鞠，咩巧可，我好了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10154#       发表于 2020-8-27 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48566818&amp;ptid=1945537" target="_blank">kolu33 发表于 2020-8-27 16:28</a>
+
+咩熊，咩兔鞠，咩巧可，我好了</blockquote>
+很久没看mea性骚扰兔鞠了，想看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10155#       发表于 2020-8-27 16:40
+
+
+
+
+大型联动不是很有感觉…反正吸不动<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 10156#       发表于 2020-8-27 16:56
+
+
+
+
+下次单人直播是什么时候，要死了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10157#       发表于 2020-8-27 17:01
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-8-27 17:07 编辑 
+
+雪山人狼这游戏已经没新鲜感了。而且玩的好的比如绿熊控场太强了，反而有点无趣。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10158#       发表于 2020-8-27 17:36
+
+
+
+
+该奶她是不是做慈善直播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10159#       发表于 2020-8-27 17:40
+
+
+
+ 本帖最后由 2014720 于 2020-8-27 17:57 编辑 
+
+做人最重要的是开心<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+不注意就20.5w了，棉花糖棉花糖<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+恐怖游戏…我还是选多人联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10160#       发表于 2020-8-27 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怖游戏呢，被扫进历史的角落了吗
+
+
+
+
+
+
+
+-----
+
+####  tuna  
+##### 10161#       发表于 2020-8-27 18:57
+
+
+
+
+恐怖游戏偶尔玩玩还好，出一个能玩的就一拥而上去玩就很emmmm
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10162#       发表于 2020-8-27 19:05
+
+
+
+
+又不是一个游戏全社玩一遍的大家庭，她播游戏都是别人推荐了感兴趣就玩一下，和跟风无缘的女人
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10163#       发表于 2020-8-27 19:18
+
+
+
+
+yysy，雪山这游戏观感也就那样好吧
+
+                     
+
+有这阵容为什么不打块，我要看你麻认真输出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10164#       发表于 2020-8-27 19:31
+
+
+
+ 本帖最后由 2014720 于 2020-8-27 19:35 编辑 
+
+现在恐怖游戏有犬山助阵其实还行，主要是我觉得游戏辣鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+呐，动一动啊
+
+以前挺希望她能当个什么游戏的人柱力，看到最近越来越阳角的她，我好怀念过去<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10165#       发表于 2020-8-27 19:45
+
+
+
+
+现在聊天多的联动才是你麻404涨粉密码，看她自由发挥橄榄全场还蛮爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10166#       发表于 2020-8-27 19:49
+
+
+
+
+阳角多好，出去多浪一浪回来杂谈才有素材，你麻都被关半年了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 10167#       发表于 2020-8-27 20:00
+
+
+
+
+想她<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10168#       发表于 2020-8-27 20:01
+
+
+
+
+也就最多到v骚那个人数，再多一点再来几个不熟的她就成哑巴了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 10169#       发表于 2020-8-27 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1年前这时候还能把木口彩虹拉来狼人杀，时代变了
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10170#       发表于 2020-8-27 20:21
+
+
+
+
+虹应该还行，木口就不好说了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10171#       发表于 2020-8-27 20:22
+
+
+
+
+现在要拉虹杏还是能拉的8，虹五元星川，杏老师绿粽
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10172#       发表于 2020-8-27 20:43
+
+
+
+
+你麻还是学不会阿苔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10173#       发表于 2020-8-27 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脸皮厚点的话能拉不少人
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10174#       发表于 2020-8-27 20:57
+
+
+
+
+咩式拉人：我要和大家交朋友！
+然后拉来一堆明面上根本没接触过的人联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10175#       发表于 2020-8-27 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天知道去年生日她是怎么拉来这么多人的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10176#       发表于 2020-8-27 21:07
+
+
+
+
+那会儿不认识的都敢搭讪
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10177#       发表于 2020-8-27 21:08
+
+
+
+
+现在也一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+那为啥不爱自己开台了呢<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+新合唱没人评价？挺不错的
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10178#       发表于 2020-8-27 21:09
+
+
+
+
+你麻交际能力又没问题
+
+这种不就是看她个人心情想法嘛，你麻奇怪的执念又不是第一次见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ASMR都能觉得自己堕落了的女人，脑回路没那么好理解的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10179#       发表于 2020-8-27 21:09
+
+
+
+
+🤔🤔🤔
+
+<img src="https://img.saraba1st.com/forum/202008/27/210930sm0xrgregre5d8rm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200827_210838_com.google.android.you.jpg</strong> (772.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-27 21:09 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/210930fmh54m35hjn82azt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200827_210821_com.google.android.you.jpg</strong> (797.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-8-27 21:09 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10180#       发表于 2020-8-27 21:09
+
+
+
+
+开台了就要在意节目效果了， 你麻才不想玩游戏还服务你们这些死宅<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10181#       发表于 2020-8-27 21:10
+
+
+
+ 本帖最后由 kolu33 于 2020-8-27 21:11 编辑 
+
+这小舌头伸的太戳我xp了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10182#       发表于 2020-8-27 21:13
+
+
+
+
+草评论区13评论4个鬼佬…<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+这欧美市场开辟这么成功的…
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10183#       发表于 2020-8-27 21:16
+
+
+
+
+这咩画的莫名色啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10184#       发表于 2020-8-27 21:19
+
+
+
+
+说色的已经被咩姐调教成功了，这套就是典型的mea式H——我是说不露肤色
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10185#       发表于 2020-8-27 21:20
+
+
+
+
+隔壁说读sc都不让转是个啥哦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+专门念sc不让转还是转播不让读sc啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10186#       发表于 2020-8-27 21:21
+
+
+
+
+不知道。不过cover自主规制大概跟咩咩不沾边吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10187#       发表于 2020-8-27 21:23
+
+
+
+
+以为露的多-&gt;涩的人根本就不懂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 10188#       发表于 2020-8-27 21:23
+
+
+
+
+打开视频首先听到的就是拉满的背景音……可爱倒是蛮可爱的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10189#       发表于 2020-8-27 21:26
+
+
+
+
+这个mix我已经习惯了，甚至能做到脑内自动调低音量
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10190#       发表于 2020-8-27 21:26
+
+
+
+
+她有这个bls立绘以后高质量的二创图多了不少啊
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10191#       发表于 2020-8-27 21:32
+
+
+
+ 本帖最后由 路人庚 于 2020-8-27 21:34 编辑 
+
+（听新曲之前先去循环几遍野兽之舞再来感觉还蛮好的
+
+
+syl，这回你咩的唱法有点回归了，好起来了
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10192#       发表于 2020-8-27 21:34
+
+
+
+
+混酱给爷爬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10193#       发表于 2020-8-27 21:36
+
+
+
+
+这次还行，先放过<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+（希望不是耳朵适应了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10194#       发表于 2020-8-27 21:39
+
+
+
+
+俺寻思梅糖是不是见过咩啊，怎么这么懂<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+咩 .jpg
+(39.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-27 21:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/213751vuubiq04ixwwiwi0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+麻 .jpg
+(31.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-27 21:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/213750qm3njommmomolnuv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dualist彩| + 1|思路广|
+| 2014720| + 1|别，顶不住|
+| Mr.shelter| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10195#       发表于 2020-8-27 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了多少次换人也没用（野兽之舞有几段连唱的啥都完全听不出来，所以才说感觉还蛮好的
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 10196#       发表于 2020-8-27 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48569452&amp;ptid=1945537" target="_blank">2014720 发表于 2020-8-27 21:20</a>
+
+隔壁说读sc都不让转是个啥哦
+
+专门念sc不让转还是转播不让读sc啊</blockquote>
+只能说体量大了会有奇怪的东西吧，昨天狗狗读SC有个怪名字搞得她档都不敢放出来要处理档，然后估计这边就一刀切了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10197#       发表于 2020-8-27 21:50
+
+
+
+
+人家读sc可是真读sc，和你麻没关系，管它那么多呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 10198#       发表于 2020-8-27 21:52
+
+
+
+
+草，我现在才后知后觉的发现，苔姨说的你咩吐舌照怕不是就是这种麻图。咩给梅糖也发过吐舌照可能性微存
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10199#       发表于 2020-8-27 21:55
+
+
+
+
+当画师就可以被发舌图吗？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10200#       发表于 2020-8-27 21:56
+
+
+
+
+浴衣照算不算目前为止最色气的麻图？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10201#       发表于 2020-8-27 21:57
+
+
+
+ 本帖最后由 2014720 于 2020-8-27 21:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+难受，快播啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 10202#       发表于 2020-8-27 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48569733&amp;ptid=1945537" target="_blank">路人庚 发表于 2020-8-27 21:55</a>
+
+当画师就可以被发舌图吗？</blockquote>
+至少得是女的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
