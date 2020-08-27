@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-26 00:06** 
+> ## **本文件最后更新于2020-08-28 00:04** 
 
 
 
@@ -22012,4 +22012,578 @@ crew破产
 
 
 
-      
+
+
+-----
+
+####  贝伦二世  
+##### 1294#       发表于 2020-8-26 01:07
+
+
+
+
+草，这玩意是夸哥又不是holo装扮
+
+还以为能闲一点的，叹气
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1295#       发表于 2020-8-26 02:08
+
+
+
+
+傻逼天狗就酸吧，主播拉垮粉丝也都是些穷鬼<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| airclab|-2|我酸了|
+| A2014720|-1|草，真的不至于啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  过来玩玩  
+##### 1296#       发表于 2020-8-26 02:13
+
+
+
+
+感谢脑瘫过来反串提供团建，我先屏蔽再骂不过分吧
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1297#       发表于 2020-8-26 02:43
+
+
+
+
+这是进来自己骂自己？什么毛病啊，搞不懂了
+
+
+
+
+
+
+
+-----
+
+####  买表大户  
+##### 1298#       发表于 2020-8-26 02:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48551341&amp;ptid=1947500" target="_blank">jhouo8989 发表于 2020-8-26 02:08</a>
+傻逼天狗就酸吧，主播拉垮粉丝也都是些穷鬼</blockquote>
+？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1299#       发表于 2020-8-26 03:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48551341&amp;ptid=1947500" target="_blank">jhouo8989 发表于 2020-8-26 02:08</a>
+傻逼天狗就酸吧，主播拉垮粉丝也都是些穷鬼</blockquote>
+放平心态不好吗，没必要为了管人而装sb不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 1300#       发表于 2020-8-26 08:13
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1301#       发表于 2020-8-26 10:36
+
+
+
+
+还有被斗虫逼急的，CR你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1302#       发表于 2020-8-26 13:17
+
+
+
+
+晚上总该有一播了吧
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 1303#       发表于 2020-8-26 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">还在想80WB限能不能8月份落地呢
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 1304#       发表于 2020-8-26 13:49
+
+
+
+
+忙啊忙啊，忙点好啊
+
+
+
+
+
+
+
+-----
+
+####  shiroslime  
+##### 1305#       发表于 2020-8-26 14:09
+
+
+
+
+油管也拖了一万个纪念了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1306#       发表于 2020-8-26 16:13
+
+
+
+
+转了个盐水娃娃机工商，今天感觉又摸了。仅剩的可能是突击会限
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1307#       发表于 2020-8-26 16:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上次在自己频道播游戏是什么时候，上次歌回又是什么时候
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 1308#       发表于 2020-8-26 17:11
+
+
+
+
+18号之后只在自己频道播过1次live感想回。这人确实挺能憋的，小学生都知道摸了要发个推稳定一下军心，这人就是谜语让你们猜。希望能打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lightsuger  
+##### 1309#       发表于 2020-8-26 17:17
+
+
+
+
+昨天算是不错了，说了收录（不播），老粉一看就懂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1310#       发表于 2020-8-26 17:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">有抗体了，坏女人这招已经破不了防了
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1311#         楼主| 发表于 2020-8-26 18:26
+
+
+
+ 本帖最后由 sky5 于 2020-8-26 18:38 编辑 
+
+这人直接开了个明天的直播间，今天没了
+28号会限同时视听
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1312#       发表于 2020-8-26 19:01
+
+
+
+
+28号晚上十点（北京时间），同步视听泣きたい私は猫をかぶる（想哭的我戴上了猫的面具）。
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 1313#       发表于 2020-8-26 19:19
+
+
+
+
+算了下去年9月到现在看管人用的钱，比预想中的少啊
+
+还行
+
+
+
+
+
+
+
+-----
+
+####  HerbelD  
+##### 1314#       发表于 2020-8-26 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">今天又无
+
+
+
+
+
+
+
+-----
+
+####  kata魂  
+##### 1315#       发表于 2020-8-27 16:16
+
+
+
+
+今天又出门的样子？感觉live结束后比开始前还要忙啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1316#       发表于 2020-8-27 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不知道又在弄什么肉猪
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1317#       发表于 2020-8-27 18:15
+
+
+
+
+没说收录默认去便利店买可乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+8点和诗音联动抓娃娃机（联动商品），9点自枠。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 1318#       发表于 2020-8-27 20:35
+
+
+
+
+搁这烧烤呢
+
+
+
+
+
+
+
+-----
+
+####  Medling  
+##### 1319#       发表于 2020-8-27 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老板今天改设置了吧
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1320#       发表于 2020-8-27 22:02
+
+
+
+ 本帖最后由 面具13 于 2020-8-27 22:12 编辑 
+
+为什么她能从几百个说祈祷应该是对的评论里挑一个祈祷了不太妙的评论。。。冲着BE就去了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1321#       发表于 2020-8-27 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不就是故意的，要不就是不信
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1322#       发表于 2020-8-27 22:13
+
+
+
+
+虽然说是BE，但这悲鸣还是挺美妙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 1323#       发表于 2020-8-27 22:20
+
+
+
+ 本帖最后由 单推贝伦 于 2020-8-27 22:22 编辑 
+
+这BGM
+
+草
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1324#       发表于 2020-8-27 22:35
+
+
+
+ 本帖最后由 面具13 于 2020-8-27 22:39 编辑 
+
+下周会有live的同步视听。nico的回放好像也没剩几天了。
+
+绞刨冰制酱，还挺有新意的
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1325#       发表于 2020-8-27 22:57
+
+
+
+
+今天来晚了没看到开头，有说最近在忙什么和明天播不播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 1326#         楼主| 发表于 2020-8-27 23:33
+
+
+
+
+最近还有很多收录，还想上舞蹈课。。。直播都要变成副业了
+
+
+
+
+
+
+
+-----
+
+####  fightonion  
+##### 1327#       发表于 2020-8-27 23:35
+
+
+
+
+跳舞应该不是每天跳吧 说是自己想锻炼身体 并非喜欢跳没听错的话
+
+
+
+
+
+     
