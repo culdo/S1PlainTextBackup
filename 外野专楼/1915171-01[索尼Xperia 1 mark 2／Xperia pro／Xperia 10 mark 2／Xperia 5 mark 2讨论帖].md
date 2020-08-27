@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-18 16:03** 
+> ## **本文件最后更新于2020-08-27 10:03** 
 
 
 
@@ -281,7 +281,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 90)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 95)
 
 下载附件
 
@@ -5275,7 +5275,7 @@ B站视频里面已经写了是UFS2.1和LPDDR4X了<img src="https://static.sarab
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_OBz44" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_Mw7Wb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20985,4 +20985,599 @@ X5M2的渲染图有点像z3c啊</blockquote>
 
 
 
-              
+
+
+-----
+
+####  Cray  
+##### 1053#       发表于 2020-8-18 16:09
+
+
+
+<blockquote>引用第1049楼leystage于2020-08-18 14:20发表的  :
+
+索尼日本推出无锁版 X1M2，12G内存256G存储。国行看来是12G了</blockquote>
+都说是12+512
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  暗铁  
+##### 1054#       发表于 2020-8-18 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，还真有12G版本啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">下次一定
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 1055#       发表于 2020-8-18 18:28
+
+
+
+
+不买了，继续用XZ1  等到热情都没了
+
+
+这代存在的问题也不少而且是极其low的：马达没改进，屏幕亮度没进步，自动亮度没进步，电池不再凝胶（永久），摄像头还差一口气，不支持连wifi开热点。
+
+
+当然也是看到相机部门今年发力，想看看下代，小问题也希望下代能改进。
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1056#       发表于 2020-8-18 18:56
+
+
+
+<blockquote>淡定君 发表于 2020-8-18 18:28
+不买了，继续用XZ1  等到热情都没了
+
+
+这代存在的问题也不少而且是极其low的：马达没改进，屏幕亮度没进步， ...</blockquote>
+马达其实有变化，比1那个奇葩效果是改进的
+
+别的嘛… 明年会更好…
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1057#       发表于 2020-8-18 21:12
+
+
+
+
+马达更新过 …变得更大了
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  zhongjie  
+##### 1058#       发表于 2020-8-18 21:33
+
+
+
+
+x1m2也太晚了吧，等m3了
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 1059#       发表于 2020-8-18 21:42
+
+
+
+
+7年来第一个手机壳献给你索的背板了。。
+
+真是不整个活不舒服（<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+TIM截图20200818214020.png
+(465.48 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-18 21:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/18/214109xe2segf2hfvvwfae.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  gulant  
+##### 1060#       发表于 2020-8-18 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48475497&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-8-18 18:28</a>
+
+不买了，继续用XZ1  等到热情都没了
+
+
+这代存在的问题也不少而且是极其low的：马达没改进，屏幕亮度没进步， ...</blockquote>
+电池不再凝胶（永久）<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+脑子被门夹了？
+
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 1061#       发表于 2020-8-18 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48475817&amp;ptid=1915171" target="_blank">leystage 发表于 2020-8-18 18:56</a>
+
+马达其实有变化，比1那个奇葩效果是改进的
+
+别的嘛… 明年会更好…</blockquote>
+我看网上黑评都说变化不大，撑死摄影大师反馈舒服。
+
+
+打字后退场景震动相比以前改善否不？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1062#       发表于 2020-8-19 03:33
+
+
+
+
+5马克兔就是z3/x经典复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 1063#       发表于 2020-8-20 14:19
+
+
+
+
+为什么我看5M2侧边还是3颗按键？保留了指纹电源分开设计？
+
+
+
+
+
+
+
+-----
+
+####  鹰富士茄子  
+##### 1064#       发表于 2020-8-20 14:36
+
+
+
+
+国行是不是到时候和5一块发布了
+
+
+
+
+
+
+
+-----
+
+####  runningch  
+##### 1065#       发表于 2020-8-20 18:13
+
+
+
+
+12g版本可以刷港版系统吗？全家桶是刚需。
+
+
+
+
+
+
+
+-----
+
+####  wyjbnb  
+##### 1066#       发表于 2020-8-20 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没找到x5m2的图，能给个地址看看吗？
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1067#       发表于 2020-8-20 19:17
+
+
+
+<blockquote>引用第1065楼wyjbnb于2020-08-20 18:34发表的  :
+
+没找到x5m2的图，能给个地址看看吗？</blockquote>
+<img src="http://crawl.ws.126.net/img/c344ad0e31c65b982d81eef723873583.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  leyenda  
+##### 1068#       发表于 2020-8-20 19:59
+
+
+
+
+离得这么远肯定不是电源，难道是相机部门做一个单独的拍照app还不够，连快门都要分开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 1069#       发表于 2020-8-20 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48477908&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-08-18 21:42:02</a>
+7年来第一个手机壳献给你索的背板了。。
+
+真是不整个活不舒服（</blockquote>这刮花的这么严重
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 1070#       发表于 2020-8-20 21:46
+
+
+
+<blockquote>leyenda 发表于 2020-8-20 19:59
+离得这么远肯定不是电源，难道是相机部门做一个单独的拍照app还不够，连快门都要分开吗 ...</blockquote>
+按相机来考虑，不是录像就是回放，哈哈
+
+
+
+
+
+
+
+-----
+
+####  runningch  
+##### 1071#       发表于 2020-8-20 21:52
+
+
+
+ 本帖最后由 runningch 于 2020-8-21 20:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">9月中旬，国行能开卖吗？
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 1072#       发表于 2020-8-21 00:45
+
+
+
+
+会员表示目前为止没收到……
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 1073#       发表于 2020-8-21 01:09
+
+
+
+
+说不定是挂绳孔回归呢，多塞一颗按键真不知道有啥用，放在那个位置也不好用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.3.0
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 1074#       发表于 2020-8-21 02:46
+
+
+
+
+Audio Pro ！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shionking32  
+##### 1075#       发表于 2020-8-23 21:45
+
+
+
+
+坐等5M2和国行系统信息，看看是不是让我彻底死心解毒。
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 1076#       发表于 2020-8-24 00:57
+
+
+
+
+所以等了这么久，究竟什么时候公布啊
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  烁影  
+##### 1077#       发表于 2020-8-25 13:17
+
+
+
+
+4K屏、骁龙865、非异形屏……集齐这样的元素的手机有且只有一款，那就是索尼Xperia 1 Ⅱ。继2月份发布、6/7月份上市后，索尼日本宣布了新款Xperia 1 Ⅱ，型号XQ-AT42。新款是无运营商定制的无锁版本，而且在配置上也有变化。首先是运行内存（RAM）从8GB调整至12GB，这也是索尼第一款配备12GB RAM的手机。
+
+其次是磨砂黑配色的加入，相较于当前的亮面黑，可以减少指纹沾染。再次是新增128GB ROM版本，此前只有256GB一种选项。最后就是原生双卡，而且无网络锁。
+
+其它配置则保持不变，包括4K HDR OLED显示屏、前置800万像素，后置1200万广角+1200万超广角+1200万长焦三摄，4000mAh电池，保留了3.5mm耳机孔，侧面指纹识别。
+
+据悉，XQ-AT42定于10月30日在日本率先上市，起步价124000日元（约合8095元）。
+
+[https://www.cnbeta.com/articles/tech/1018241.htm](https://www.cnbeta.com/articles/tech/1018241.htm)
+
+
+
+
+
+
+
+-----
+
+####  kila31  
+##### 1078#       发表于 2020-8-27 00:20
+
+
+
+
+evleaks 的渲染图来了，这个配色不是太喜欢。
+
+
+
+
+
+
+gsmarena_001.jpg
+(22.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-8-27 00:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/001959jkb6sm6mk24ip46s.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  biscuit_guo  
+##### 1079#       发表于 2020-8-27 01:53
+
+
+
+
+如果5m2只是尺寸缩小的1m2就好了，屏幕相机砍一点无所谓，主要是心水这个方正的外观，顺带要是也有磨砂就好了。
+
+但看这渲染感觉中框还是圆滑的那种，难顶。
+
+
+
+
+
+
+
+-----
+
+####  supersnake0410  
+##### 1080#       发表于 2020-8-27 06:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说点个人意见，这外观还是算了吧。
+
+
+
+
+
+
+
+-----
+
+####  kila31  
+##### 1081#       发表于 2020-8-27 08:33
+
+
+
+
+快门旁边的按键令人在意。
+
+— from Google Pixel 4, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.1
+
+
+
+
+
+             
