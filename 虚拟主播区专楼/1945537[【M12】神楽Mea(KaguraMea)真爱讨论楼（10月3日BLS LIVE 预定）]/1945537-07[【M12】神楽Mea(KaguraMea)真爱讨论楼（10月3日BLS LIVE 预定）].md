@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-08-27 22:03** 
+> ## **本文件最后更新于2020-08-28 14:03** 
 
 
 
@@ -21275,7 +21275,7 @@ ASMR都能觉得自己堕落了的女人，脑回路没那么好理解的
 <img src="https://img.saraba1st.com/forum/202008/27/210930sm0xrgregre5d8rm.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20200827_210838_com.google.android.you.jpg</strong> (772.93 KB, 下载次数: 0)
+<strong>Screenshot_20200827_210838_com.google.android.you.jpg</strong> (772.93 KB, 下载次数: 1)
 
 下载附件
 
@@ -21288,7 +21288,7 @@ ASMR都能觉得自己堕落了的女人，脑回路没那么好理解的
 <img src="https://img.saraba1st.com/forum/202008/27/210930fmh54m35hjn82azt.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20200827_210821_com.google.android.you.jpg</strong> (797.94 KB, 下载次数: 0)
+<strong>Screenshot_20200827_210821_com.google.android.you.jpg</strong> (797.94 KB, 下载次数: 1)
 
 下载附件
 
@@ -21557,7 +21557,7 @@ syl，这回你咩的唱法有点回归了，好起来了
 
 
 咩 .jpg
-(39.67 KB, 下载次数: 0)
+(39.67 KB, 下载次数: 2)
 
 
 
@@ -21586,7 +21586,7 @@ syl，这回你咩的唱法有点回归了，好起来了
 
 
 麻 .jpg
-(31.26 KB, 下载次数: 0)
+(31.26 KB, 下载次数: 2)
 
 
 
@@ -21621,10 +21621,11 @@ syl，这回你咩的唱法有点回归了，好起来了
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fsfs_freeze| + 1|下面那张求一个原图|
 | Dualist彩| + 1|思路广|
 | 2014720| + 1|别，顶不住|
 | Mr.shelter| + 1|思路广|
@@ -21771,4 +21772,552 @@ syl，这回你咩的唱法有点回归了，好起来了
 
 
 
-         
+
+
+-----
+
+####  Mr.shelter  
+##### 10203#       发表于 2020-8-27 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48569742&amp;ptid=1945537" target="_blank">鷹書たかしょ 发表于 2020-8-27 21:56</a>
+
+浴衣照算不算目前为止最色气的麻图？</blockquote>
+我觉得视频里截的图也应该算麻图<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+IMG_20200814_211133.jpg
+(51.03 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-8-27 22:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/220625fxdptjd7pwxxpdx4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+215d1f3562db6d06.jpg
+(50.98 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-8-27 22:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202008/27/220624d2zghfyz92m9ym63.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 10204#       发表于 2020-8-27 22:08
+
+
+
+
+这个no胖火腿肠确实是最色麻图
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10205#       发表于 2020-8-27 22:16
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10206#       发表于 2020-8-27 22:17
+
+
+
+
+吓死我了，差点错过
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10207#       发表于 2020-8-27 22:18
+
+
+
+
+LPL打完开播，她心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 10208#       发表于 2020-8-27 22:25
+
+
+
+
+说好的出门只打的呢，这人满嘴跑火车
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10209#       发表于 2020-8-27 22:26
+
+
+
+ 本帖最后由 2014720 于 2020-8-27 22:28 编辑 
+
+还是打的吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+唉…
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10210#       发表于 2020-8-27 22:31
+
+
+
+
+气抖冷<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10211#       发表于 2020-8-27 22:36
+
+
+
+
+草在爬你楼突然被吓一跳，祈祷成功可还行
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10212#       发表于 2020-8-27 22:45
+
+
+
+
+哦哦，能吸咩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10213#       发表于 2020-8-27 22:49
+
+
+
+
+熟悉的节奏
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10214#       发表于 2020-8-27 23:10
+
+
+
+
+人外bl<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10215#       发表于 2020-8-27 23:15
+
+
+
+
+是范特西！范特西，你懂吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10216#       发表于 2020-8-27 23:15
+
+
+
+
+希望这人别沾澳门线上赌 场之类的东西…
+
+女粉大概可以理解bl吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10217#       发表于 2020-8-27 23:16
+
+
+
+
+其实前两天无聊就去看了几本bl<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。女画师（原谅我偏见bl画师大部分都是女的）似乎更注重细节一点，喜欢在画h的同时讲一个完整的故事，而不是上来就开始脱裤子。还有就是画风更精细一点来着。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10218#       发表于 2020-8-27 23:18
+
+
+
+
+你咩姐喜欢看的bl漫就是这种
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10219#       发表于 2020-8-27 23:20
+
+
+
+
+不能理解…专注于故事和精美的画风那种本子只会让我软下来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10220#       发表于 2020-8-27 23:28
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-8-27 23:30 编辑 
+
+袁藤冲人那种？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">yysy我挺喜欢他的作品的，尤其是最近那本（futa）真的超好冲的啊。
+
+草会被鲨的吗，怕了怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10221#       发表于 2020-8-27 23:28
+
+
+
+ 本帖最后由 2014720 于 2020-8-27 23:31 编辑 
+
+会被杀的快编辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+冲就是冲啊，想那么多干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这就没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 10222#       发表于 2020-8-27 23:31
+
+
+
+
+是要深夜害人吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10223#       发表于 2020-8-27 23:32
+
+
+
+
+可能还会播还行
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 10224#       发表于 2020-8-27 23:43
+
+
+
+
+半夜油管会播什么呢
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10225#       发表于 2020-8-28 02:21
+
+
+
+
+播个锤子,又摸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 10226#       发表于 2020-8-28 03:07
+
+
+
+
+动啊 咩啊 为什么不动<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 10227#       发表于 2020-8-28 06:56
+
+
+
+ 本帖最后由 2014720 于 2020-8-28 07:05 编辑 
+
+醒了，没有施布明<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+到底是错过一次直播亏还是少一次录播亏呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 10228#       发表于 2020-8-28 11:25
+
+
+
+
+当然是少一次录播亏
+
+
+看起来在手头的事情告一段落之后她就算凌晨醒着也不会开播熬人了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10229#       发表于 2020-8-28 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺突然的，不知道又是怎么心血来潮了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10230#       发表于 2020-8-28 12:16
+
+
+
+
+你咩今年也不怎么凌晨开播熬人吧
+当然早晨5点上播不算凌晨（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10231#       发表于 2020-8-28 12:50
+
+
+
+
+麻图莫多莫多
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+        
